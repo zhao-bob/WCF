@@ -1,8 +1,19 @@
 # 威斯敏斯特信心告白
+
 [The Westminster Confession of Faith](https://westminsterstandards.org/westminster-confession-of-faith/)
+
+
 翻译：Job Zhao
 
 ## 第一章 论圣经
+
+Of the Holy Scripture
+
+### {#custom-id}
+
+> Although the light of nature, and the works of creation and providence do so far manifest the goodness, wisdom, and power of God, as to leave men unexcusable; yet are they not sufficient to give that knowledge of God, and of His will, which is necessary unto salvation. Therefore it pleased the Lord, at sundry times, and in divers manners, to reveal Himself, and to declare that His will unto His Church; and afterwards for the better preserving and propagating of the truth, and for the more sure establishment and comfort of the Church against the corruption of the flesh, and the malice of Satan and of the world, to commit the same wholly unto writing; which makes the Holy Scripture to be most necessary; those former ways of God's revealing His will unto His people being now ceased.
+
+尽管迄今本性之光，及创世与神意的杰作确实彰显上帝的善良、智慧和大能，至使人无可辩驳；但它们不足以给与那对拯救必要的，上帝以及祂的意志的知识。于是，这使主愿意在各种时代，以各样的方式启示祂自己，并向祂的教会宣告祂那意志；而之后，为真理更好的保守和传扬，为教会更确知的确立与安慰，对抗肉体的败坏，及撒旦和世界的恶意，祂将相同的事情全然交托于写作；这使圣经成为至要；使上帝从前向祂的子民启示祂意志的那些方法现在被停息。
 
 
 
