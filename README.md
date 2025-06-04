@@ -5,11 +5,10 @@
 
 翻译：Job Zhao
 
-## 第一章 论圣经
+## [第一章 论圣经 Of the Holy Scripture](https://zhao-bob.github.io/WCF/chapter1)
 
-Of the Holy Scripture
 
-### {#custom-id}
+### 1. 1
 
 > Although the light of nature, and the works of creation and providence do so far manifest the goodness, wisdom, and power of God, as to leave men unexcusable; yet are they not sufficient to give that knowledge of God, and of His will, which is necessary unto salvation. Therefore it pleased the Lord, at sundry times, and in divers manners, to reveal Himself, and to declare that His will unto His Church; and afterwards for the better preserving and propagating of the truth, and for the more sure establishment and comfort of the Church against the corruption of the flesh, and the malice of Satan and of the world, to commit the same wholly unto writing; which makes the Holy Scripture to be most necessary; those former ways of God's revealing His will unto His people being now ceased.
 
