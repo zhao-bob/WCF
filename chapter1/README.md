@@ -8,7 +8,8 @@ Of the Holy Scripture
 
 尽管迄今本性之光，及创世与神意的杰作确实彰显上帝的善良、智慧和大能，至使人无可辩驳[^1]；
 
-<font color=blue>译者注：</font> 1. "nature"在本文中均被翻译为“本性”，而非“自然”。从本段的注解也可知，"the light of nature"是指人本性受着道德和上帝的制约（良心）。
+<font color=blue>译者注：</font> 
+<font size=2>1. "nature"在本文中被翻译为“本性”，而非“自然”。从本段的注解也可知，"the light of nature"是指人本性上受着道德（良心）和上帝的制约。</font>
 
 > yet are they not sufficient to give that knowledge of God, and of His will, which is necessary unto salvation.
 
