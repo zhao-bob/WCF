@@ -44,7 +44,7 @@ Of the Holy Scripture
 
 > Under the name of Holy Scripture, or the Word of God written, are now contained all the books of the Old and New Testament, which are these: All which are given by inspiration of God to be the rule of faith and life.
 
-在圣经或上帝书写的圣言名下，现在被包含有旧约和新约的所有书，它们是这些\ref{bible</a>：所有这些都被上帝的灵感赐予，成为信心和生活的规则[^7]。
+在圣经或上帝书写的圣言名下，现在被包含有旧约和新约的所有书，它们是这些：所有这些都被上帝的灵感赐予，成为信心和生活的规则[^7]。
 
 <table>
     <tr>
