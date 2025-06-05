@@ -8,12 +8,16 @@ Of the Holy Scripture
 
 尽管迄今本性之光，及创世与神意的杰作确实彰显上帝的善良、智慧和大能，至使人无可辩驳[^1]；
 
-<font color=blue>译者注：</font> 
-<font size=2>1. "nature"在本文中被翻译为“本性”，而非“自然”。从本段的注解也可知，"the light of nature"是指人本性上受着道德（良心）和上帝的制约。</font>
+<font color=blue size=2>译者注：</font> 
+<font color=blue size=2>1. "nature"在本文被翻译为“本性”，而非“自然”。从本段的注解也可知，"the light of nature"是指人内在地受着道德（良心）的制约，这引导着所有人向善。</font>
+<font color=blue size=2>2. "providence"在本文被翻译为“神意”，而不使用“护理”，以区分于"care"一词。“神意”是上帝对万物运行与治理，是上帝意志的体现。</font>
 
 > yet are they not sufficient to give that knowledge of God, and of His will, which is necessary unto salvation.
 
 但它们不足以给与那对拯救必要的，上帝以及祂的意志的知识[^2]。
+
+<font color=blue size=2>译者注：</font> 
+<font color=blue size=2>1. "will"在本文被翻译为“意志”，而非“旨意”，以区分于"purpose"一词。“意志”在先，而“旨意”在后。</font>
 
 > Therefore it pleased the Lord, at sundry times, and in divers manners, to reveal Himself, and to declare that His will unto His Church;
 
