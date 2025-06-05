@@ -44,7 +44,7 @@ Of the Holy Scripture
 
 > Under the name of Holy Scripture, or the Word of God written, are now contained all the books of the Old and New Testament, which are these: All which are given by inspiration of God to be the rule of faith and life.
 
-在圣经或上帝书写的圣言名下，现在被包含有旧约和新约的所有书，它们是这些\ref{bible}：所有这些都被上帝的灵感赐予，成为信心和生活的规则[^7]。
+在圣经或上帝书写的圣言名下，现在被包含有旧约和新约的所有书，它们是这些\ref{bible</a>：所有这些都被上帝的灵感赐予，成为信心和生活的规则[^7]。
 
 <table>
     <tr>
@@ -52,10 +52,10 @@ Of the Holy Scripture
         <td colspan="2">新约</td>
     </tr>
     <tr>
-        <td><a href="https://biblehub.com/bibles/genesis">创世纪（Genesis创）</td>
+        <td><a href="https://biblehub.com/bibles/genesis">创世纪（Genesis创）</a></td>
         <td><a href="https://biblehub.com/bibles/hosea">何西阿书（Hosea何）</a></td>
         <td rowspan="4">福音书</td>
-        <td><a href="https://biblehub.com/bibles/matthew">马太福音（Matthew太）</td>
+        <td><a href="https://biblehub.com/bibles/matthew">马太福音（Matthew太）</a></td>
     </tr>
     <tr>
         <td><a href="https://biblehub.com/bibles/exodus">出埃及记（Exodus出）</a></td>
@@ -71,6 +71,129 @@ Of the Holy Scripture
         <td><a href="https://biblehub.com/bibles/numbers">民数记（Numbers民）</a></td>
         <td><a href="https://biblehub.com/bibles/obadiah">俄巴底亚书（Obadiah俄）</a></td>
         <td><a href="https://biblehub.com/bibles/john">约翰福音（John约）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/deuteronomy">申命记（Deuteronomy申）</a></td>
+        <td><a href="https://biblehub.com/bibles/jonah">约拿书（Jonah拿）</a></td>
+        <td></td>
+        <td><a href="https://biblehub.com/bibles/acts">使徒行传（Acts徒）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/joshua">约书亚记（Joshua约）</a></td>
+        <td><a href="https://biblehub.com/bibles/micah">弥迦书（Micah弥）</a></td>
+        <td rowspan="13">保罗书信</td>
+        <td><a href="https://biblehub.com/bibles/romans">罗马书（Romans罗）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/judges">士师记（Judges士）</a></td>
+        <td><a href="https://biblehub.com/bibles/nahum">那鸿书（Nahum鸿）</a></td>
+        <td><a href="https://biblehub.com/bibles/1_corinthians">哥林多前书（Corinthians I林前）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/ruth">路得记（Ruth得）</a></td>
+        <td><a href="https://biblehub.com/bibles/habakkuk">哈巴谷书（Habakkuk哈）</a></td>
+        <td><a href="https://biblehub.com/bibles/2_corinthians">哥林多后书（Corinthians II林后）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/1_samuel">撒母耳记上（I Samuel撒上）</a></td>
+        <td><a href="https://biblehub.com/bibles/zephaniah">西番雅书（Zephaniah番）</a></td>
+        <td><a href="https://biblehub.com/bibles/galatians">加拉太书（Galatians加）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/2_samuel">撒母耳记下（II Samuel撒下）</a></td>
+        <td><a href="https://biblehub.com/bibles/haggai">哈该书（Haggai该）</a></td>
+        <td><a href="https://biblehub.com/bibles/ephesians">以弗所书（Ephesians弗）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/1_kings">列王纪上（I Kings王上）</a></td>
+        <td><a href="https://biblehub.com/bibles/zechariah">撒迦利亚书（Zechariah亚）</a></td>
+        <td><a href="https://biblehub.com/bibles/philippians">腓立比书（Philippians腓）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/2_kings">列王纪下（II Kings王下）</a></td>
+        <td><a href="https://biblehub.com/bibles/malachi">玛拉基书（Malachi玛）</a></td>
+        <td><a href="https://biblehub.com/bibles/colossians">歌罗西书（Colossians西）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/1_chronicles">历代志上（I Chronicles代上）</a></td>
+        <td></td>
+        <td><a href="https://biblehub.com/bibles/1_thessalonians">帖撒罗尼迦前书（Thessalonians I帖前）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/2_chronicles">历代志下（II Chronicles代下）</a></td>
+        <td></td>
+        <td><a href="https://biblehub.com/bibles/2_thessalonians">帖撒罗尼迦后书（Thessalonians II帖后）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/ezra">以斯拉记（Ezra拉）</a></td>
+        <td></td>
+        <td><a href="https://biblehub.com/bibles/1_timothy">提摩太前书（Timothy I提前）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/nehemiah">尼希米记（Nehemiah尼）</a></td>
+        <td></td>
+        <td><a href="https://biblehub.com/bibles/2_timothy">提摩太后书（Timothy II提后）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/esther">以斯帖记（Esther斯）</a></td>
+        <td></td>
+        <td><a href="https://biblehub.com/bibles/titus">提多书（Titus多）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/job">约伯记（Job伯）</a></td>
+        <td></td>
+        <td><a href="https://biblehub.com/bibles/philemon">腓利门书（Philemon门）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/psalms">诗篇（Psalms诗）</a></td>
+        <td></td>
+        <td></td>
+        <td><a href="https://biblehub.com/bibles/hebrews">希伯来书（The Epistle to the Hebrews来）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/proverbs">箴言（Proverbs箴）</a></td>
+        <td></td>
+        <td></td>
+        <td><a href="https://biblehub.com/bibles/james">雅各书（The Epistle of James雅）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/ecclesiastes">传道书（Ecclesiastes传）</a></td>
+        <td></td>
+        <td rowspan="2">彼得书信</td>
+        <td><a href="https://biblehub.com/bibles/1_peter">彼得前书（I Peter彼前）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/songs">雅歌（The Song of Songs歌）</a></td>
+        <td></td>
+        <td><a href="https://biblehub.com/bibles/2_peter">彼得后书（II Peter彼后）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/isaiah">以赛亚书（Isaiah赛）</a></td>
+        <td></td>
+        <td rowspan="3">约翰书信</td>
+        <td><a href="https://biblehub.com/bibles/1_john">约翰一书（I John约壹）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/jeremiah">耶利米书（Jeremiah耶）</a></td>
+        <td></td>
+        <td><a href="https://biblehub.com/bibles/2_john">约翰二书（II John约贰）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/lamentations">耶利米哀歌（Lamentations哀）</a></td>
+        <td></td>
+        <td><a href="https://biblehub.com/bibles/3_john">约翰三书（III John约叁）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/ezekiel">以西结书（Ezekiel结）</a></td>
+        <td></td>
+        <td></td>
+        <td><a href="https://biblehub.com/bibles/jude">犹大书（The Epistle of Jude犹）</a></td>
+    </tr>
+    <tr>
+        <td><a href="https://biblehub.com/bibles/daniel">但以理书（Daniel但）</a></td>
+        <td></td>
+        <td></td>
+        <td><a href="https://biblehub.com/bibles/revelation">启示录（The Revelation of John启）</a></td>
     </tr>
 </table>
 
