@@ -46,6 +46,19 @@ Of the Holy Scripture
 
 在圣经或上帝书写的圣言名下，现在被包含有旧约和新约的所有书，它们是这些\ref{bible}：所有这些都被上帝的灵感赐予，成为信心和生活的规则[^7]。
 
+<table>
+    <tr>
+        <td colspan="2">旧约</td>
+        <td colspan="2">新约</td>
+    </tr>
+    <tr>
+        <td>[创世纪（Genesis创）](https://biblehub.com/bibles/genesis)</td>
+        <td>[何西阿书（Hosea何）](https://biblehub.com/bibles/hosea)</td>
+        <td rowspan="4">福音书</td>
+        <td>[马太福音（Matthew太）](https://biblehub.com/bibles/matthew)</td>
+    </tr>
+</table>
+
 | 旧约                                               | 新约                                        |
 |------------------------------------------------------------------------|-----------------------------------------------------------------|
 | [创世纪（Genesis创）](https://biblehub.com/bibles/genesis)              | [何西阿书（Hosea何）](https://biblehub.com/bibles/hosea)          | 福音书   | [马太福音（Matthew太）](https://biblehub.com/bibles/matthew)                      |
