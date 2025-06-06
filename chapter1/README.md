@@ -10,14 +10,14 @@ Of the Holy Scripture
 
 <font color=blue size=2>译者注：</font> 
 <font color=blue size=2>1. "nature"在本文被翻译为“本性”，而非“自然”。从本段的注解也可知，"the light of nature"是指人内在地受着道德（良心）的制约，这引导着所有人向善。</font>
-<font color=blue size=2>2. "providence"在本文被翻译为“神意”，而不使用“护理”，以区分于"care"一词。“神意”是上帝对万物运行与治理，是上帝意志的体现。</font>
+<font color=blue size=2>2. "providence"在本文被翻译为“神意”，而不用“护理”，以区分于"care"一词。“神意”是上帝对万物运行与治理，是上帝意志的体现。</font>
 
 > yet are they not sufficient to give that knowledge of God, and of His will, which is necessary unto salvation.
 
 但它们不足以给与那对拯救必要的，上帝以及祂的意志的知识[^2]。
 
-<font color=blue size=2>译者注：</font> 
-<font color=blue size=2>1. "will"在本文被翻译为“意志”，而非“旨意”，以区分于"purpose"一词。“意志”在先，而“旨意”在后。</font>
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>"will"在本文被翻译为“意志”，而非“旨意”，以区分于"purpose"一词。“意志”孕育出“旨意”，而“意志”与“旨意”发出“神意”。“意志”、“旨意”与“神意”三者构成三位一体，对应上帝三个位格。</font>
 
 > Therefore it pleased the Lord, at sundry times, and in divers manners, to reveal Himself, and to declare that His will unto His Church;
 
@@ -26,6 +26,9 @@ Of the Holy Scripture
 > and afterwards for the better preserving and propagating of the truth, and for the more sure establishment and comfort of the Church against the corruption of the flesh, and the malice of Satan and of the world, to commit the same wholly unto writing; 
 
 而之后，为真理更好的保守和传扬，为教会更确知的确立与安慰，对抗肉体的败坏，及撒旦和世界的恶意，祂将相同的事情全然交托于写作[^4]；
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>圣经并非人的著作，而是上帝的著作。不加以区分，就会堕入谬误与罪恶。</font>
 
 > which makes the Holy Scripture to be most necessary;
 
@@ -206,3 +209,10 @@ Of the Holy Scripture
 
 [^7]: [路16:29](https://biblehub.com/luke/16-29.htm) “亚伯拉罕回复：‘他们有摩西和众先知；让你的兄弟听从他们。’ [31](https://biblehub.com/luke/16-31.htm) “他对他说：‘如果他们不听从摩西和众先知，即使某人从死人醒来，他们也不会被坚信。’” [弗2:20](https://biblehub.com/ephesians/2-20.htm) 以基督耶稣祂自己为主奠基石，建造在众使徒和众先知的根基上。 [启22:18](https://biblehub.com/revelation/22-18.htm) 我警告每一个听到这卷预言的词句的人：如果任何人在它们上添任何东西，上帝将把这卷中描述的灾害加给那个人。 [19](https://biblehub.com/revelation/22-19.htm) 而如果任何人从这卷预言中拿除词句，上帝将从那个人拿除这卷中描述的在生命树和圣城中的任何份额。 [提后3:16](https://biblehub.com/2_timothy/3-16.htm) 所有圣经都是上帝吐息的，且对在正义中教导、训斥、纠正和训练是有用的，
 
+## 1. 3
+
+> The books commonly called Apocrypha, not being of divine inspiration, are no part of the canon of the Scripture, and therefore are of no authority in the Church of God, nor to be any otherwise approved, or made use of, than other human writings.
+
+通常被称为次经的书，不属神的灵感，不是经书正典的一部分，而因此在上帝的教会中没有权威，也不得以任何其他方式被赞成或使用，相比其他人类写作无异[^8]。
+
+[^8]: [路24:27](https://biblehub.com/luke/24-27.htm) 并从摩西和所有先知开始，祂向他们解释在所有圣经中所说的涉及祂自己的话。 [44](https://biblehub.com/luke/24-44.htm) 耶稣对他们说：“这是我仍然与你们一同时告诉了你们的：摩西律法、先知书和诗篇中记的关于我的一切都必被成全。”  [罗3:2](https://biblehub.com/romans/3-2.htm) 在每个方面都很多！首先，犹太人已被授信以那上帝同一的言词。 [彼后1:21](https://biblehub.com/2_peter/1-21.htm) 因为预言从未在人意中有它的起源，而众先知虽是人类，却源自上帝讲话，如同他们被圣灵带引。
