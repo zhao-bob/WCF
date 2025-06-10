@@ -262,3 +262,17 @@ Of the Holy Scripture
 <font color=blue size=2>圣经的话语能运用于世俗的治理，但基督徒在行使时必须遵从上帝的意志，慎之又慎。</font>
 
 [^14]: [林前11:13](https://biblehub.com/1_corinthians/11-13.htm) 你们自己判断：一个女人不蒙头向上帝祷告是否恰当？ [14](https://biblehub.com/1_corinthians/11-14.htm) 事物的同一本性难道不是教导你们，如果一个男人有长头发，这对他是一种羞耻， [26](https://biblehub.com/1_corinthians/11-26.htm) 那么弟兄姊妹，我们该说什么呢？当你们来到一起时，你们各人都有一首赞美诗，或一言教导，一个启示，一种方言或一种释义。一切都必须被完成，以致教会才能被造就。 [40](https://biblehub.com/1_corinthians/11-40.htm) 而一切都该以一种适合而有序的方法被完成。
+
+## 1. 6
+
+> All things in Scripture are not alike plain in themselves, nor alike clear unto all:
+
+经书中所有事情本身都不是相仿直白的，也不是对所有人都相仿清晰的[^15]：
+
+[^15]: [彼后3:16](https://biblehub.com/2_peter/3-16.htm) 他在他所有的信件中以同样的方法写作，在它们中谈到这些问题。他的信件包含一些难以理解的事情，而无知和不稳定的人歪曲它们，如他们歪曲另外的经书一样，而至于他们自身的毁灭。
+
+> yet those things which are necessary to be known, believed, and observed for salvation are so clearly propounded, and opened in some place of Scripture or other, that not only the learned, but the unlearned, in a due use of the ordinary means, may attain unto a sufficient understanding of them.
+
+但那些为拯救必要被知道、相信和遵从的事情，总在经书的某处或别处被清晰地提出和敞开，使得不仅博学的人，而且没学问的人，以平凡手段的一种适当使用，能达成对它们的一种充足领悟[^16]。
+
+[^16]: [诗119:105](https://biblehub.com/psalms/119-105.htm) 祢的言是为我步行的一盏灯，是我路径上的一束光。 [130](https://biblehub.com/psalms/119-130.htm) 祢的言一展开就赐予光明；它将领悟赐予愚蒙人。
