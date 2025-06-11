@@ -222,48 +222,56 @@ Of the Holy Scripture
 
 ## 1. 4
 
+> The authority of the Holy Scripture, for which it ought to be believed, and obeyed, depends not upon the testimony of any man, or Church; but wholly upon God (who is truth itself) the author thereof: and therefore it is to be received, because it is the Word of God.
+
+圣经的权威，因其应该被相信并遵守，不依赖任何人或教会的见证；而全然依赖其中上帝这位著者（祂是真理本身）：而因此要被领受，因为它是上帝的圣言[^9]。
+
+[^10]: [彼后1:19](https://biblehub.com/2_peter/1-19.htm) 我们也有预言性的消息作为完备可靠的重要事情，你们专注其上就会做得好，如对在黑暗中照耀的一盏灯，直到白昼破晓而晨星在你们内心升起。 [21](https://biblehub.com/2_peter/1-21.htm) 因为预言从未在人意中有它的起源，而众先知虽是人类，却源自上帝讲话，如同他们被圣灵带引。 [提后3:16](https://biblehub.com/2_timothy/3-16.htm) 所有圣经都是上帝吐息的，且对在正义中教导、训斥、纠正和训练是有用的， [约壹5:9](https://biblehub.com/1_john/5-9.htm) 我们接受人类的见证，但上帝的见证更伟大，因为它是上帝的见证，是祂已赐予关于祂的儿子的。 [帖前2:13](https://biblehub.com/1_thessalonians/2-13.htm) 而我们也持续地感谢上帝，因为当你们领受了从我们听到的上帝的圣言时，你们不是将它作为人的言词接受，而实际上是作为上帝的圣言，它真确地在相信的你们中做工。
+
+## 1. 5
+
 > We may be moved and induced by the testimony of the Church to an high and reverent esteem of the Holy Scripture.
 
-我们能被教会的见证所感动并感召，以至对圣经有一种崇高和崇敬的敬重[^9]。
+我们能被教会的见证所感动并感召，以至对圣经有一种崇高和崇敬的敬重[^10]。
+
+[^10]: [提前3:15](https://biblehub.com/1_timothy/3-15.htm) 如果我被耽搁了，你会知道子民在上帝的家室里举止应该如何，这里是永活上帝的教会，是真理的支柱和根基。
 
 > And the heavenliness of the matter, the efficacy of the doctrine, the majesty of the style, the consent of all the parts, the scope of the whole (which is, to give all glory to God), the full discovery it makes of the only way of man's salvation, the many other incomparable excellencies, and the entire perfection thereof, are arguments whereby it does abundantly evidence itself to be the Word of God: yet notwithstanding, our full persuasion and assurance of the infallible truth and divine authority thereof, is from the inward work of the Holy Spirit bearing witness by and with the Word in our hearts.
 
-而题材的天国性，教义的效力，风格的威严，所有部分的顺合，整体的宗旨（就是，将所有荣耀献给上帝），对人的惟一拯救之道的充分揭示，那许多其他无与伦比的卓越性，以及其中全整的完美，均是论据，以此它确实丰盛地确证它自己就是上帝的圣言：但尽管如此，我们对其中无谬真理和神性权威的充分信念和确信，是源自圣灵的内在功劳，靠着并用圣言在我们内心受目睹[^10]。
+而题材的天国性，教义的效力，风格的威严，所有部分的顺合，整体的宗旨（就是，将所有荣耀献给上帝），对人的惟一拯救之道的充分揭示，那许多其他无与伦比的卓越性，以及其中全整的完美，均是论据，以此它确实丰盛地确证它自己就是上帝的圣言：但尽管如此，我们对其中无谬真理和神性权威的充分信念和确信，是源自圣灵的内在功劳，靠着并用圣言在我们内心受目睹[^11]。
 
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>我们对圣经的理解、真理的认识并不源自我们自己的能力，而是上帝恩赐的天赋和圣灵的运行。</font>
 
-[^9]: [提前3:15](https://biblehub.com/1_timothy/3-15.htm) 如果我被耽搁了，你会知道子民在上帝的家室里举止应该如何，这里是永活上帝的教会，是真理的支柱和根基。
+[^11]: [约壹2:20](https://biblehub.com/1_john/2-20.htm) 但你们有圣者的恩膏，并且你们所有人都认识真理。 [27](https://biblehub.com/1_john/2-27.htm) 至于你们，你们从祂那里领受的那恩膏留存在你们里面，而你们不需要任何人教导你们。但由于祂的恩膏教导你们关于万物，且由于那恩膏是真实的，而不是假冒的---正因为它已教导你们，就要留存在祂里面。 [约16:13](https://biblehub.com/john/16-13.htm) 但是当祂---真理之圣灵来时，祂将引领你们进入完整的真理。祂不会凭祂自身讲话；祂仅会讲祂听到的，祂也会告诉你们届时什么要来。 [约16:14](https://biblehub.com/john/16-14.htm) 祂会荣耀我，因为祂会领受将向你们揭晓的是源自我的。 [林前2:10](https://biblehub.com/1_corinthians/2-10.htm) 这些是上帝由祂的圣灵已向我们启示的事情。圣灵探究万物，甚至上帝深奥的事情。 [11](https://biblehub.com/1_corinthians/2-11.htm) 因为除了在他们里面他们自身的灵，谁知道一个人的心思呢？以同样的方法，除了上帝的灵，没一个知道上帝的心思。 [12](https://biblehub.com/1_corinthians/2-11.htm) 因为除了在他们里面他们自身的灵，谁知道一个人的心思呢？以同样的方法，除了上帝的灵，没一个知道上帝的心思。 [赛59:21](https://biblehub.com/isaiah/59-21.htm) “至于我，这是我同他们的圣约，”耶和华说。“我的圣灵在你们身上，不会从背离你们，而我已放置在你们口中的我的言语将总是在你们的唇上，在你们子女的唇上，以及他们后代的唇上，从这时起，直到永远”耶和华说。
 
-[^10]: [约壹2:20](https://biblehub.com/1_john/2-20.htm) 但你们有圣者的恩膏，并且你们所有人都认识真理。 [27](https://biblehub.com/1_john/2-27.htm) 至于你们，你们从祂那里领受的那恩膏留存在你们里面，而你们不需要任何人教导你们。但由于祂的恩膏教导你们关于万物，且由于那恩膏是真实的，而不是假冒的---正因为它已教导你们，就要留存在祂里面。 [约16:13](https://biblehub.com/john/16-13.htm) 但是当祂---真理之圣灵来时，祂将引领你们进入完整的真理。祂不会凭祂自身讲话；祂仅会讲祂听到的，祂也会告诉你们届时什么要来。 [约16:14](https://biblehub.com/john/16-14.htm) 祂会荣耀我，因为祂会领受将向你们揭晓的是源自我的。 [林前2:10](https://biblehub.com/1_corinthians/2-10.htm) 这些是上帝由祂的圣灵已向我们启示的事情。圣灵探究万物，甚至上帝深奥的事情。 [11](https://biblehub.com/1_corinthians/2-11.htm) 因为除了在他们里面他们自身的灵，谁知道一个人的心思呢？以同样的方法，除了上帝的灵，没一个知道上帝的心思。 [12](https://biblehub.com/1_corinthians/2-11.htm) 因为除了在他们里面他们自身的灵，谁知道一个人的心思呢？以同样的方法，除了上帝的灵，没一个知道上帝的心思。 [赛59:21](https://biblehub.com/isaiah/59-21.htm) “至于我，这是我同他们的圣约，”耶和华说。“我的圣灵在你们身上，不会从背离你们，而我已放置在你们口中的我的言语将总是在你们的唇上，在你们子女的唇上，以及他们后代的唇上，从这时起，直到永远”耶和华说。
-
-## 1. 5
+## 1. 6
 
 > The whole counsel of God concerning all things necessary for His own glory, man's salvation, faith and life, is either expressly set down in Scripture, or by good and necessary consequence may be deduced from Scripture: unto which nothing at any time is to be added, whether by new revelations of the Spirit, or traditions of men.
 
-上帝涉及对祂自身的荣耀、人的拯救、信心和生命必要的所有事情的整个密旨，要么在经书中被明确记载，要么能从经书中由切实而必要的结论被推导出：在任何时候都不要对其添加任何东西，无论是由圣灵新的启示，还是人的传统[^11]。
+上帝涉及对祂自身的荣耀、人的拯救、信心和生命必要的所有事情的整个密旨，要么在经书中被明确记载，要么能从经书中由切实而必要的结论被推导出：在任何时候都不要对其添加任何东西，无论是由圣灵新的启示，还是人的传统[^12]。
 
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>"counsel"在本文被译为“密旨”，这是上帝至绝对、至奥妙的旨意，而区分于一般的旨意。</font>
 
-[^11]: [提后3:15](https://biblehub.com/2_timothy/3-15.htm) 而你已知道如何从幼年起就明白圣经，它们能够使你对藉着在基督耶稣中的信心的拯救变得智慧。 [16](https://biblehub.com/2_timothy/3-16.htm) 所有圣经都是上帝吐息的，且对在正义中教导、训斥、纠正和训练是有用的， [17](https://biblehub.com/2_timothy/3-17.htm) 以致上帝的仆人能为每个善工被彻底装备。 [加1:8](https://biblehub.com/galatians/1-8.htm) 但即使我们或一个从天国来的天使要传讲一种福音，却不是我们传讲了你们的那个，要让他们在上帝的咒诅之下！ [9](https://biblehub.com/galatians/1-9.htm) 如我们早已说过的，而我现在再次说：如果任何人在向你们传的一种福音不是你们接受了的，就让他们在上帝的咒诅之下！ [帖后2:2](https://biblehub.com/2_thessalonians/2-2.htm) 不要轻易被据称源自我们的教导变得不安或惊慌---无论是由预言、或是由口言还是由文字---断言主的那日子已经来到。
+[^12]: [提后3:15](https://biblehub.com/2_timothy/3-15.htm) 而你已知道如何从幼年起就明白圣经，它们能够使你对藉着在基督耶稣中的信心的拯救变得智慧。 [16](https://biblehub.com/2_timothy/3-16.htm) 所有圣经都是上帝吐息的，且对在正义中教导、训斥、纠正和训练是有用的， [17](https://biblehub.com/2_timothy/3-17.htm) 以致上帝的仆人能为每个善工被彻底装备。 [加1:8](https://biblehub.com/galatians/1-8.htm) 但即使我们或一个从天国来的天使要传讲一种福音，却不是我们传讲了你们的那个，要让他们在上帝的咒诅之下！ [9](https://biblehub.com/galatians/1-9.htm) 如我们早已说过的，而我现在再次说：如果任何人在向你们传的一种福音不是你们接受了的，就让他们在上帝的咒诅之下！ [帖后2:2](https://biblehub.com/2_thessalonians/2-2.htm) 不要轻易被据称源自我们的教导变得不安或惊慌---无论是由预言、或是由口言还是由文字---断言主的那日子已经来到。
 
 > Nevertheless, we acknowledge the inward illumination of the Spirit of God to be necessary for the saving understanding of such things as are revealed in the Word
 
-尽管如此，我们承认上帝的灵的内在光照对于在圣言中被启示的这些事情的拯救性领悟是必要的[^12]，
+尽管如此，我们承认上帝的灵的内在光照对于在圣言中被启示的这些事情的拯救性领悟是必要的[^13]，
 
-[^12]: [约6:45](https://biblehub.com/john/6-45.htm) 先知书上记着：‘他们所有人都会被上帝教导’。每一个已听见圣父并向祂学习的人，都到我这里来。 [林前2:9](https://biblehub.com/1_corinthians/2-9.htm) 然而，如经上所记：“没有眼睛已看到的，没有耳朵已听到的，没有人的心灵已构想的”---是上帝已为那些爱祂的人预备的事情--- [10](https://biblehub.com/1_corinthians/2-10.htm) 这些是上帝由祂的圣灵已向我们启示的事情。圣灵探究万物，甚至上帝深奥的事情。 [11](https://biblehub.com/1_corinthians/2-11.htm) 因为除了在他们里面他们自身的灵，谁知道一个人的心思呢？以同样的方法，除了上帝的灵，没一个知道上帝的心思。 [12](https://biblehub.com/1_corinthians/2-11.htm) 因为除了在他们里面他们自身的灵，谁知道一个人的心思呢？以同样的方法，除了上帝的灵，没一个知道上帝的心思。
+[^13]: [约6:45](https://biblehub.com/john/6-45.htm) 先知书上记着：‘他们所有人都会被上帝教导’。每一个已听见圣父并向祂学习的人，都到我这里来。 [林前2:9](https://biblehub.com/1_corinthians/2-9.htm) 然而，如经上所记：“没有眼睛已看到的，没有耳朵已听到的，没有人的心灵已构想的”---是上帝已为那些爱祂的人预备的事情--- [10](https://biblehub.com/1_corinthians/2-10.htm) 这些是上帝由祂的圣灵已向我们启示的事情。圣灵探究万物，甚至上帝深奥的事情。 [11](https://biblehub.com/1_corinthians/2-11.htm) 因为除了在他们里面他们自身的灵，谁知道一个人的心思呢？以同样的方法，除了上帝的灵，没一个知道上帝的心思。 [12](https://biblehub.com/1_corinthians/2-11.htm) 因为除了在他们里面他们自身的灵，谁知道一个人的心思呢？以同样的方法，除了上帝的灵，没一个知道上帝的心思。
 
 > and that there are some circumstances concerning the worship of God, and government of the Church, common to human actions and societies, which are to be ordered by the light of nature, and Christian prudence, according to the general rules of the Word, which are always to be observed.
 
 而且有些涉及上帝的敬拜和教会的治理的状况与人类行为和社会是共通的，要由本性之光和基督徒的审慎，按照总要被遵从的圣言的通用规则来被排定[^14]。
 
 <font color=blue size=2>译者注：</font>
-<font color=blue size=2>圣经的话语能运用于世俗的治理，但基督徒在行使时必须遵从上帝的意志，慎之又慎。</font>
+<font color=blue size=2>圣经的话语当然应运用于世俗的治理，但基督徒在行使时必须遵从上帝的意志，慎之又慎。</font>
 
 [^14]: [林前11:13](https://biblehub.com/1_corinthians/11-13.htm) 你们自己判断：一个女人不蒙头向上帝祷告是否恰当？ [14](https://biblehub.com/1_corinthians/11-14.htm) 事物的同一本性难道不是教导你们，如果一个男人有长头发，这对他是一种羞耻， [26](https://biblehub.com/1_corinthians/11-26.htm) 那么弟兄姊妹，我们该说什么呢？当你们来到一起时，你们各人都有一首赞美诗，或一言教导，一个启示，一种方言或一种释义。一切都必须被完成，以致教会才能被造就。 [40](https://biblehub.com/1_corinthians/11-40.htm) 而一切都该以一种适合而有序的方法被完成。
 
-## 1. 6
+## 1. 7
 
 > All things in Scripture are not alike plain in themselves, nor alike clear unto all:
 
@@ -275,9 +283,12 @@ Of the Holy Scripture
 
 但那些为拯救必要被知道、相信和遵从的事情，总在经书的某处或别处被清晰地提出和敞开，使得不仅博学的人，而且没学问的人，以平凡手段的一种适当使用，能达成对它们的一种充足领悟[^16]。
 
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>并非所有人都能理解圣经，因为对圣经的理解并非人力能为，而是圣灵的运作，而能领悟圣经的人是预定的，是上帝在创造天地之前就拣选的。尽管如此，圣经所启示的内容却是普遍的，不是神秘莫测的，而是有耳就能听见、有眼就能看见的。</font>
+
 [^16]: [诗119:105](https://biblehub.com/psalms/119-105.htm) 祢的言是为我步行的一盏灯，是我路径上的一束光。 [130](https://biblehub.com/psalms/119-130.htm) 祢的言一展开就赐予光明；它将领悟赐予愚蒙人。
 
-## 1. 7
+## 1. 8
 
 > The Old Testament in Hebrew (which was the native language of the people of God of old), and the New Testament in Greek (which, at the time of the writing of it, was most generally known to the nations), being immediately inspired by God, and, by His singular care and providence, kept pure in all ages, are therefore authentical;
 
@@ -312,5 +323,8 @@ Of the Holy Scripture
 > and, through patience and comfort of the Scriptures, they may have hope.
 
 而且，藉着经书的耐心和安慰，他们能有希望[^22]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>圣经的任何译本并非直接受上帝的启发，并非完美无缺，而是都会有人的谬误。因此不要神化任何译本，这是本文在翻译时不使用和合本的原因。一个合格的译本应持续不断地修订，以接近那无限的真理，这样的译本才是活的。而一个译本有错误而不改正，是一种罪恶。</font>
 
 [^22]: [罗15:4](https://biblehub.com/romans/15-4.htm) 因为在过去所记的一切被写来教导我们，以致藉着在经书中被教导的忍受和它们提供的鼓励，我们能有希望。
