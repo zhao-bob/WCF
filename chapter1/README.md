@@ -276,3 +276,41 @@ Of the Holy Scripture
 但那些为拯救必要被知道、相信和遵从的事情，总在经书的某处或别处被清晰地提出和敞开，使得不仅博学的人，而且没学问的人，以平凡手段的一种适当使用，能达成对它们的一种充足领悟[^16]。
 
 [^16]: [诗119:105](https://biblehub.com/psalms/119-105.htm) 祢的言是为我步行的一盏灯，是我路径上的一束光。 [130](https://biblehub.com/psalms/119-130.htm) 祢的言一展开就赐予光明；它将领悟赐予愚蒙人。
+
+## 1. 7
+
+> The Old Testament in Hebrew (which was the native language of the people of God of old), and the New Testament in Greek (which, at the time of the writing of it, was most generally known to the nations), being immediately inspired by God, and, by His singular care and providence, kept pure in all ages, are therefore authentical;
+
+希伯来语旧约（这是古代上帝子民的母语）和希腊语新约（在它写作的时间，是列邦普遍知晓的语言），是直接被上帝启发，并且，由祂独特的护理和神意，在所有时代都被保持着纯洁，因此是真实可靠的[^17]；
+
+[^17]: [太5:18](https://biblehub.com/matthew/5-18.htm) 我实在告诉你们，直到天与地消失，连最小的字母，和一笔最少的笔画，都不会以任何手段从律法中消失，直至一切被成就。
+
+> so as, in all controversies of religion, the Church is finally to appeal unto them.
+
+因此，在所有宗教争论中，教会最终要向它们诉裁[^18]。
+
+[^18]: [赛8:20](https://biblehub.com/isaiah/8-20.htm) 请教上帝的指令和警告的见证，如果任何人不按照这言的讲话，他们就没有黎明之光。 [徒15:15](https://biblehub.com/acts/15-15.htm) 众先知的言词与此一致，如经上所记： [约5:39](https://biblehub.com/john/5-39.htm) 你们勤勉地研究经书，因为你们以为在它们里面你们有永生。这些正是为我作证的经书， [46](https://biblehub.com/john/5-46.htm) 如果你们相信了摩西，你们就会相信我，因为他写了我的事。
+
+> But, because these original tongues are not known to all the people of God, who have right unto, and interest in the Scriptures, and are commanded, in the fear of God, to read and search them,
+
+但是，因为这些原始方言并不是所有上帝子民都知晓的，而他们对经书有权利和兴趣，并在上帝的敬畏中，被命令去诵读和查考它们[^19]，
+
+[^19]: [约5:39](https://biblehub.com/john/5-39.htm) 你们勤勉地研究经书，因为你们以为在它们里面你们有永生。这些正是为我作证的经书，
+
+> therefore they are to be translated in to the vulgar language of every nation unto which they come,
+
+因此，它们要被翻译为它们来到的每个国族的俚俗语言[^20]，
+
+[^20]: [林前14:6](https://biblehub.com/1_corinthians/14-6.htm) 弟兄姊妹，现在如果我到你们这里来讲方言，除非我给你们带来一些启示或知识或预言或指令的言词，否则我对你们有什么好处呢？ [9](https://biblehub.com/1_corinthians/14-9.htm) 同你们也是如此。除非你们用舌头讲易懂的言词，否则怎会任何人知道你们在说什么？你们仅会是在对空气讲话。 [11](https://biblehub.com/1_corinthians/14-11.htm) 于是如果我不领会某人在说的东西的意思，那么我对讲话者是一个外国人，而讲话者对我是一个外国人。 [12](https://biblehub.com/1_corinthians/14-12.htm) 同你们也是如此。既然你们对圣灵的恩赐殷切，那就设法在那些造就教会的事情上拔萃。 [24](https://biblehub.com/1_corinthians/14-24.htm) 但是，如果每个人都在说神启时有无信仰者或慕道者进来，他们就被所有人判有罪恶的罪行，并被带到于审判之下， [27](https://biblehub.com/1_corinthians/14-27.htm) 如果任何人讲方言，应该有两人---或最多三人---讲话，一次一人轮流发言，并且必须有人释义。 [28](https://biblehub.com/1_corinthians/14-28.htm) 如果没有译员，讲话者应该在教堂里保持安静，而对他自己和上帝讲话。
+
+> that, the Word of God dwelling plentifully in all, they may worship Him in an acceptable manner;
+
+以致上帝的圣言充裕地栖居在所有人中，他们就能以悦纳的方式敬拜祂[^21]；
+
+[^21]: [西3:16](https://biblehub.com/colossians/3-16.htm) 在你们藉着诗篇、赞美诗和圣歌，以源自圣灵的所有智慧彼此教导和劝诫，在你们内心怀着感激向上帝歌唱时，让基督的消息丰富地栖居在你们中间。
+
+> and, through patience and comfort of the Scriptures, they may have hope.
+
+而且，藉着经书的耐心和安慰，他们能有希望[^22]。
+
+[^22]: [罗15:4](https://biblehub.com/romans/15-4.htm) 因为在过去所记的一切被写来教导我们，以致藉着在经书中被教导的忍受和它们提供的鼓励，我们能有希望。
