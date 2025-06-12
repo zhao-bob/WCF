@@ -328,3 +328,14 @@ Of the Holy Scripture
 <font color=blue size=2>圣经的任何译本并非直接受上帝的启发，并非完美无缺，而是都会有人的谬误。因此不要神化任何译本，这是本文在翻译时不使用和合本的原因。一个合格的译本应持续不断地修订，以接近那无限的真理，这样的译本才是活的。而一个译本有错误而不改正，是一种罪恶。</font>
 
 [^22]: [罗15:4](https://biblehub.com/romans/15-4.htm) 因为在过去所记的一切被写来教导我们，以致藉着在经书中被教导的忍受和它们提供的鼓励，我们能有希望。
+
+## 1. 9
+
+> The infallible rule of interpretation of Scripture is the Scripture itself: and therefore, when there is a question about the true and full sense of any Scripture (which is not manifold, but one), it must be searched and known by other places that speak more clearly.
+
+释义经书的无谬规则是经书本身：而因此，当对任何经文的真正和完全含义（这不是繁多的，而是独一）有疑问时，它必须由讲得更清晰的其他地方来被查考和认识[^23]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>圣经的查考应是以经解经，不是根据圣经的语句加入个人“发挥”的作文，而是对圣经的内容的“数据挖掘”。将多处内容进行比照，往往能确切理解经文的含义。</font>
+
+[^23]: [彼后1:20](https://biblehub.com/2_peter/1-20.htm) 最要紧的是，你们必须理解，经书的预言不是由先知自身对事物的释义而产生的。 [21](https://biblehub.com/2_peter/1-21.htm) 因为预言从未在人意中有它的起源，而众先知虽是人类，却源自上帝讲话，如同他们被圣灵带引。 [徒15:15](https://biblehub.com/acts/15-15.htm) 众先知的言词与此一致，如经上所记： [16](https://biblehub.com/acts/15-16.htm) “‘在这之后，我会返回并重建大卫倒塌的帐幕。我会重建它的废墟，而且我会恢复它，
