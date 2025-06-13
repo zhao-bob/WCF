@@ -5,7 +5,9 @@
 
 翻译：Job Zhao
 
-## [第一章 论圣经 Of the Holy Scripture](https://zhao-bob.github.io/WCF/chapter1)
+## [第一章 论圣经](https://zhao-bob.github.io/WCF/chapter1)
+
+## [第一章 论上帝，及圣三位一体](https://zhao-bob.github.io/WCF/chapter2)
 
 
 
