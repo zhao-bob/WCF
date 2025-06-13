@@ -340,3 +340,11 @@ Of the Holy Scripture
 <font color=blue size=2>圣经的查考应是以经解经，不是根据圣经的语句加入个人“发挥”的作文，而是对圣经的内容的“数据挖掘”。将多处内容进行比照，往往能确切理解经文的含义。</font>
 
 [^23]: [彼后1:20](https://biblehub.com/2_peter/1-20.htm) 最要紧的是，你们必须理解，经书的预言不是由先知自身对事物的释义而产生的。 [21](https://biblehub.com/2_peter/1-21.htm) 因为预言从未在人意中有它的起源，而众先知虽是人类，却源自上帝讲话，如同他们被圣灵带引。 [徒15:15](https://biblehub.com/acts/15-15.htm) 众先知的言词与此一致，如经上所记： [16](https://biblehub.com/acts/15-16.htm) “‘在这之后，我会返回并重建大卫倒塌的帐幕。我会重建它的废墟，而且我会恢复它，
+
+## 1. 10
+
+> The supreme judge by which all controversies of religion are to be determined, and all decrees of councils, opinions of ancient writers, doctrines of men, and private spirits, are to be examined, and in whose sentence we are to rest, can be no other but the Holy Spirit speaking in the Scripture.
+
+判定所有宗教争论、审查议会所有法令、古代作家的观点、人的教义和私人精神的至上审判者，除了在经书中讲话的圣灵，不可能有其他人，而我们要在祂的判决中安息[^24]。
+
+[^24]: [太22:29](https://biblehub.com/matthew/22-29.htm) 耶稣回复：“你们在谬误中，因为你们不明白经书或上帝的大能。 [31](https://biblehub.com/matthew/22-31.htm) 但关于死人复活，难道你们未曾读上帝对你们说了的， [弗2:20](https://biblehub.com/ephesians/2-20.htm) 以基督耶稣祂自己为主奠基石，建造在众使徒和众先知的根基上。 [徒28:25](https://biblehub.com/acts/28-25.htm) 他们在他们自己之间意见不合，在保罗作完这最终陈述后他们就开始离开：“圣灵在祂藉着先知以赛亚说话时将真理讲给了你们的祖先：
