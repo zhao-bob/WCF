@@ -55,3 +55,35 @@ Of God, and of the Holy Trinity
 [^23]: [诗5:5](https://biblehub.com/psalms/5-5.htm) 自傲的人不能在祢的临在中站立。祢憎恨所有行恶的人；
 
 [^24]: [鸿1:2](https://biblehub.com/nahum/1-2.htm) 耶和华是一位忌邪和复仇的上帝；耶和华报仇，并以忿怒被充满。耶和华在祂的仇敌上报仇，对祂的敌人倾泻祂的忿怒。 [3](https://biblehub.com/nahum/1-3.htm) 耶和华不轻易发怒，却权柄巨大；耶和华不会使有罪行的人免受惩罚。祂的道路在旋风和风暴中，而云彩是祂脚下的尘土。 [出34:7](https://biblehub.com/exodus/34-7.htm) 对千万人维护爱，并饶恕邪恶、悖逆和罪恶。但祂并没有使有罪行的人免受惩罚；祂对父母的罪恶惩罚那些子女及子女的子女，直到第三和第四代。”
+
+## 2.2
+
+> God has all life, glory, goodness, blessedness, in and of Himself; and is alone in and unto Himself all-sufficient, not standing in need of any creatures which He has made, nor deriving any glory from them, but only manifesting His own glory in, by, unto, and upon them. He is the alone fountain of all being, of whom, through whom, and to whom are all things; and has most sovereign dominion over them, to do by them, for them, or upon them whatsoever Himself pleases. In His sight all things are open and manifest, His knowledge is infinite, infallible, and independent upon the creature, so as nothing is to Him contingent, or uncertain. He is most holy in all His counsels, in all His works, and in all His commands. To Him is due from angels and men, and every other creature, whatsoever worship, service, or obedience He is pleased to require of them.
+
+上帝有所有生命[^25]，荣耀[^26]，善良[^27]，和祝福[^28]，都在祂自己里面并属于祂自己；且惟独在祂自己里面并对祂自己完全充足的，既不需要靠祂已制造的任何受造物站立[^29]，也不从它们派生任何荣耀[^30]，但惟在它们中、通过它们、向它们并在它们上彰显祂自身的荣耀。祂是万有的惟独泉源，而万物都属于祂，藉着祂并归向祂[^31]；并对它们拥有至全权的管辖权，以由它们、为它们或在它们上做无论什么祂自己愿意的[^32]。在祂视域中，万物都是敞开并明显的[^33]，祂的知识是无限的、无缪的、并独立于受造物的[^34]，因此，没有什么对祂是偶然的或不确定的[^35]。祂在祂所有密旨、在祂所有杰作并在祂所有命令中是至圣的[^36]。归向祂是源自众天使和人，以及每个其他受造物的责任，而无论谁敬拜、服侍或顺服，祂都愿意以此要求他们[^37]。
+
+[^25]: [约5:26](https://biblehub.com/john/5-26.htm) 因为如同圣父在祂自己里面有生命，祂已准予圣子也在祂自己里面有生命。
+
+[^26]: [徒7:2](https://biblehub.com/acts/7-2.htm) 对此他回复：“父老弟兄，听我说！荣耀的上帝向我们的父亲亚伯拉罕显现，当时他仍然在美索不达米亚，在他住在哈兰之前。
+
+[^27]: [诗119:68](https://biblehub.com/psalms/119-68.htm) 祢是善良的，而祢所做的是善的；请教导我祢的预旨。
+
+[^28]: [提前6:15](https://biblehub.com/1_timothy/6-15.htm) 上帝会在祂自身的时间使其奏效---上帝，有福且惟一的统治者，万王之王和万主之主， [罗9:5](https://biblehub.com/1_timothy/6-15.htm) 列祖是他们的，从他们被追溯到弥赛亚的人类祖宗，而祂是所有之上的上帝，永远被赞美！阿门。
+
+[^29]: [徒17:24](https://biblehub.com/acts/17-24.htm) “制造了世界和其中一切的上帝是天与地的主，而不住在人手所建造的神殿里。 [25](https://biblehub.com/acts/17-25.htm) 而且祂不被人手侍奉，仿佛祂需要任何东西。相反，祂本身赐给每个人生命与呼吸以及其他一切。
+
+[^30]: [伯22:2](https://biblehub.com/job/22-2.htm) “一个人能对上帝有益处吗？就算一个智者能使祂受益吗？ [3](https://biblehub.com/job/22-3.htm) 假使你是正义的，它会给全能者带来什么喜悦？假使你的方法是无可指摘的，祂会获得什么呢？
+
+[^31]: [罗11:36](https://biblehub.com/romans/11-36.htm) 因为万物都源自祂，而藉着祂，并为了祂。荣耀永远归于祂！阿门。
+
+[^32]: [启4:11](https://biblehub.com/revelation/4-11.htm) “我们的主和上帝，祢值得接收荣耀与尊贵和权柄，因为祢创造了万物，并由祢的意志万物被创造并有他们的存有。” [提前6:15](https://biblehub.com/1_timothy/6-15.htm) 上帝会在祂自身的时间使其奏效---上帝，有福且惟一的统治者，万王之王和万主之主， [但4:25](https://biblehub.com/daniel/4-25.htm) 你将从族民被驱除，与野兽一同生活；你会像牛一样吃草，被天国的露水浸透。你会经过七次，直到你承认至高者是地上所有国度之上的主宰，并将它们赐给祂希冀的任何人。 [35](https://biblehub.com/daniel/4-35.htm) 地上万族都被当作无物。祂随心所欲地用天国的能天使和地上的列族。没有人能拦住祂的手或对祂说：“祢已做什么？”
+
+[^33]: [来4:13](https://biblehub.com/hebrews/4-13.htm) 所有造物中无物从上帝视域被隐藏。一切都是无遮盖的，赤裸在祂眼前，对祂我们必须给出交代。
+
+[^34]: [罗11:33](https://biblehub.com/romans/11-33.htm) 深哉，上帝智慧和知识的丰富！祂的判断何其难测，而祂的路径超出追踪！ [34](https://biblehub.com/romans/11-34.htm) “谁已知道主的心意？或者谁曾是祂的参事？” [诗147:5](https://biblehub.com/psalms/147-5.htm) 我们的主是伟大的且权柄强大；祂的理解力没有极限。
+
+[^35]: [徒15:18](https://biblehub.com/acts/15-18.htm) 从很久以前已知道的事情。 [结11:5](https://biblehub.com/ezekiel/11-5.htm) 于是耶和华的灵临在我上，而祂告诉我说：“这是耶和华说的：你们在以色列的领袖们，那是你们在说的，但我知道透过你们的心灵的是什么。
+
+[^36]: [诗145:17](https://biblehub.com/psalms/145-17.htm) 从很久以前已知道的事情。 [罗7:12](https://biblehub.com/romans/7-12.htm) 所以那么，律法是神圣的，而诫命是神圣、正义和善的。
+
+[^37]: [启5:12](https://biblehub.com/revelation/5-12.htm) 以一种高亢的话音他们在说：“被残杀了的羔羊值得接收权柄、富足、智慧、力量、尊贵、荣耀、赞美！” [13](https://biblehub.com/revelation/5-13.htm) 然后我听见每个在天国、地上、地下和海里的受造物，以及在它们其中所有，在说：“愿赞美、尊贵、荣耀、权柄归给坐在宝座上的那一位，并归给羔羊，直到永永远远！” [14](https://biblehub.com/revelation/5-14.htm) 那四个活物说：“阿们”，众长老就跪倒敬拜。
