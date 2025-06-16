@@ -7,7 +7,9 @@
 
 ## [第一章 论圣经](https://zhao-bob.github.io/WCF/chapter1)
 
-## [第一章 论上帝，及圣三位一体](https://zhao-bob.github.io/WCF/chapter2)
+## [第二章 论上帝，及圣三位一体](https://zhao-bob.github.io/WCF/chapter2)
+
+## [第三章 论上帝的永恒预旨](https://zhao-bob.github.io/WCF/chapter3)
 
 
 

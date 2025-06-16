@@ -87,3 +87,18 @@ Of God, and of the Holy Trinity
 [^36]: [诗145:17](https://biblehub.com/psalms/145-17.htm) 从很久以前已知道的事情。 [罗7:12](https://biblehub.com/romans/7-12.htm) 所以那么，律法是神圣的，而诫命是神圣、正义和善的。
 
 [^37]: [启5:12](https://biblehub.com/revelation/5-12.htm) 以一种高亢的话音他们在说：“被残杀了的羔羊值得接收权柄、富足、智慧、力量、尊贵、荣耀、赞美！” [13](https://biblehub.com/revelation/5-13.htm) 然后我听见每个在天国、地上、地下和海里的受造物，以及在它们其中所有，在说：“愿赞美、尊贵、荣耀、权柄归给坐在宝座上的那一位，并归给羔羊，直到永永远远！” [14](https://biblehub.com/revelation/5-14.htm) 那四个活物说：“阿们”，众长老就跪倒敬拜。
+
+## 2.3
+
+> In the unity of the Godhead there be three persons, of one substance, power, and eternity: God the Father, God the Son, and God the Holy Ghost: the Father is of none, neither begotten, nor proceeding; the Son is eternally begotten of the Father; the Holy Ghost eternally proceeding from the Father and the Son[^40].
+
+在神格的合一中，有三个位格，属于一个实体、大能和永恒：上帝圣父、上帝圣子和上帝圣魂[^38]：圣父不属于任何一个，既不是受生的，也不是发出的；圣子是永恒属圣父受生的[^39]；
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>“Holy Ghost”在本文被翻译为“圣魂”，“Holy Spirit”或“Spirit”则翻译为“圣灵”。“Holy Ghost”指的是三位一体中第三位位格的本体，而“Holy Spirit”则是指该位格作用在外物上的上帝之灵（The Spirit of God）。而现在的翻译一般不对这两个词进行区分，而均翻译为“圣灵”</font>
+
+[^38]: [约壹5:7](https://biblehub.com/1_john/5-7.htm) 因为有三位作证： [太3:16](https://biblehub.com/matthew/3-16.htm) 耶稣一受洗，祂就从水里上来。就在那一瞬间，天国被打开，而祂看见上帝的灵像一只鸽子降落，并飞落在祂身上。 [17](https://biblehub.com/matthew/3-17.htm) 而一个话音源自天国说：“这是我的儿子，我所爱的；我对祂十分满意。” [28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗， [林后13:14](https://biblehub.com/2_corinthians/13-14.htm) 愿主耶稣基督的恩典、上帝的爱和圣灵的团契与你们所有人同在。
+
+[^39]: [约1:14](https://biblehub.com/john/1-14.htm) 圣言成了肉体并在我们中间造了祂的居所。我们已见过祂的荣耀，那独生子的荣耀，祂从父而来，充满恩典和真理。 [15](https://biblehub.com/john/1-15.htm) 约翰作涉及祂的见证。他疾呼，说：“这是在我说‘祂在我之后来，却已超越我，因为祂早在我之前。’时，我谈及的那一位”）
+
+[^40]: [约15:26](https://biblehub.com/john/15-26.htm) “我会从圣父将辩护者差派给你们---从圣父出去的真理的圣灵---当祂来的时候，祂会作关于我的见证。 [加4:6](https://biblehub.com/galatians/4-6.htm) 因为你们是祂的儿子，上帝差遣了祂的圣子的圣灵进入我们内心，那高呼“阿爸，父”的圣灵。
