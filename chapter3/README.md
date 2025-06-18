@@ -18,3 +18,16 @@ Of God's Eternal Decree
 [^3-2]: [雅1:13](https://biblehub.com/james/1-13.htm) 当被诱惑时，没有人该说：“上帝在诱惑我。”因为上帝既不可能被邪恶诱惑，祂也不诱惑任何人； [17](https://biblehub.com/james/1-17.htm) 每一份善而完美的恩赐都源自上天，从天国众光之父降临，而祂不会像飘移的阴影一样改变。 [约壹1:5](https://biblehub.com/1_john/1-5.htm) 这是我们已从祂听到的消息，并向你们宣告：上帝是光；在祂里面根本没有黑暗。
 
 [^3-3]: [徒2:23](https://biblehub.com/acts/2-23.htm) 这人由上帝审慎的计划和预知被交送给了你们；而你们，在邪恶人们的帮助下，将祂钉在十字架上，处死了祂。 [太17:12](https://biblehub.com/matthew/17-12.htm) 但我告诉你们，以利亚已经来到，而他们没有认出他，而是对他已完成他们希冀的一切。以同样的方法，人子将要在他们手中受难。 [徒4:27](https://biblehub.com/acts/4-27.htm) 果真，希律和本丢.彼拉多在这座城市同外邦人和以色列族民一起会见，密谋对抗祢膏抹的祢的圣仆耶稣。 [28](https://biblehub.com/acts/4-28.htm) 他们做了祢的大能和意志事先已决定的而应该发生的事情。 [约19:11](https://biblehub.com/john/19-11.htm) 耶稣回答：“假使这不是从上天被赐给你的，你对我就会没有权柄。因此，把我交送给你的那一个，犯有一种更大罪恶的罪行。 [箴16:33](https://biblehub.com/proverbs/16-33.htm) 签被掷入膝内，但它的每个决定都源自耶和华。
+
+## 3.2
+
+> Although God knows whatsoever may or can come to pass upon all supposed conditions; yet has He not decreed anything because He foresaw it as future, or as that which would come to pass upon such conditions.
+
+虽然上帝知道在所有假设条件下无论任何或许或可能来临的[^3-4]；但祂并未已降旨任何事情，因为祂预见了它作为未来，或作为那是在这种条件下会来临的[^3-5]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>上帝在祂立定预旨之时就已预定了一切。旨意和结果在上帝那里是同时发出的，并没有先后顺序或互为因果。我们不能将上帝的预定论降格为预知论，仿佛祂仅仅是一位高级的“占卜师”，而要将祂作为高于一切的绝对存在。</font>
+
+[^3-4]: [徒15:18](https://biblehub.com/acts/15-18.htm) 从很久以前已知道的事情。 [撒上23:11](https://biblehub.com/1_samuel/23-11.htm) 基伊拉的公民会把我遣送给他吗？扫罗会像祢的仆人已听见的那样败落吗？耶和华啊，以色列的上帝，请告诉祢的仆人。”而耶和华说：“他会。” [12](https://biblehub.com/1_samuel/23-12.htm) 大卫再次问：“基拉的公民会把我和我的人遣送给扫罗吗？”而耶和华说：“他们会。” [太11:21](https://biblehub.com/matthew/11-21.htm) “哥拉汛，你有祸了！伯赛大，你有祸了！因为在你们之中被实行的奇迹假使被实行在推罗和西顿中，他们很久以前就会披麻蒙灰悔改。 [23](https://biblehub.com/matthew/11-23.htm) 迦百农，你会被举向诸天吗？不，你会走下地狱。因为在你之中行过的奇迹假使被实行在所多玛，它就会留存到今日。
+
+[^3-5]: [罗9:11](https://biblehub.com/romans/9-11.htm) 然而，在双胞胎出生或已做任何好事或坏事之前---为使上帝在遴选中的旨意能贯彻： [13](https://biblehub.com/romans/9-13.htm) 正如经上所记：“我爱雅各，但我厌恶以扫。” [16](https://biblehub.com/romans/9-16.htm) 因此，这不依赖于人类的欲望或努力，而在于上帝的宽恕。 [18](https://biblehub.com/romans/9-18.htm) 因此，上帝在祂想施宽恕的人上施宽恕，而祂使祂想刚硬的人刚硬。
