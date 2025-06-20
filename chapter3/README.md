@@ -44,3 +44,9 @@ Of God's Eternal Decree
 [^3-6]: [提前5:21](https://biblehub.com/1_timothy/5-21.htm) 我托付你们，在上帝和基督耶稣以及被遴选的众天使的视域中，要无偏私地保持这些指令，且不要出于徇私做任何事。 [太25:41](https://biblehub.com/matthew/25-41.htm) “然后祂会对那些在祂左边的人说：‘你们被咒诅的人，从我离去，到为魔鬼和它的使者们预备的永火中去。
 
 [^3-7]: [罗9:22](https://biblehub.com/romans/9-22.htm) 虽然上帝选择表明祂的忿怒并揭晓祂的大能，但倘若祂以极大的耐心承受祂忿怒的对象---为毁灭预备的呢？ [23](https://biblehub.com/romans/9-23.htm) 倘若祂做这以向祂宽恕的对象揭晓祂荣耀的丰富，而祂提前为荣耀预备了他们--- [弗1:5](https://biblehub.com/ephesians/1-5.htm) 祂藉着耶稣基督为收养为儿子名分而预定了我们，依照祂的意愿和意志--- [6](https://biblehub.com/ephesians/1-6.htm) 为赞美祂荣耀的恩典，这是祂在祂所爱的独子中已白白赐给我们的。 [箴16:4](https://biblehub.com/proverbs/16-4.htm) 耶和华使一切都运行出它恰当的目的---甚至有恶人为灾难的一天。
+
+> These angels and men, thus predestinated, and foreordained, are particularly and unchangeably designed, and their number so certain and definite, that it cannot be either increased or diminished.
+
+因此被预定和注定的这些天使和人，是被特别地、不变地设计的，而他们的数量是如此确定和确切的，以致它既不能被增加也不能被减少[^3-8]。
+
+[^3-8]: [提后2:19](https://biblehub.com/2_timothy/2-19.htm) 尽管如此，上帝坚实的根基屹立坚固，被封印以这铭文：“耶和华认识那些是祂的人”，和，“每一个坦承耶和华名的，都必须从邪恶转离”。 [约13:18](https://biblehub.com/john/13-18.htm) “我不是在指你们所有人；我认识那些我已拣选的人。而这是要成全经书的这段话：‘他分享我的饼，却已背叛我。’
