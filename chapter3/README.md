@@ -32,6 +32,8 @@ Of God's Eternal Decree
 
 [^3-5]: [罗9:11](https://biblehub.com/romans/9-11.htm) 然而，在双胞胎出生或已做任何好事或坏事之前---为使上帝在遴选中的旨意能贯彻： [13](https://biblehub.com/romans/9-13.htm) 正如经上所记：“我爱雅各，但我厌恶以扫。” [16](https://biblehub.com/romans/9-16.htm) 因此，这不依赖于人类的欲望或努力，而在于上帝的宽恕。 [18](https://biblehub.com/romans/9-18.htm) 因此，上帝在祂想施宽恕的人上施宽恕，而祂使祂想刚硬的人刚硬。
 
+## 3.3
+
 > By the decree of God, for the manifestation of His glory, some men and angels are predestinated unto everlasting life; and others foreordained to everlasting death.
 
 由上帝的预旨，为祂的荣耀的彰显，有些人和天使[^3-6]被预定至永生；而其他的则被注定至永死[^3-7]。
@@ -44,6 +46,8 @@ Of God's Eternal Decree
 [^3-6]: [提前5:21](https://biblehub.com/1_timothy/5-21.htm) 我托付你们，在上帝和基督耶稣以及被遴选的众天使的视域中，要无偏私地保持这些指令，且不要出于徇私做任何事。 [太25:41](https://biblehub.com/matthew/25-41.htm) “然后祂会对那些在祂左边的人说：‘你们被咒诅的人，从我离去，到为魔鬼和它的使者们预备的永火中去。
 
 [^3-7]: [罗9:22](https://biblehub.com/romans/9-22.htm) 虽然上帝选择表明祂的忿怒并揭晓祂的大能，但倘若祂以极大的耐心承受祂忿怒的对象---为毁灭预备的呢？ [23](https://biblehub.com/romans/9-23.htm) 倘若祂做这以向祂宽恕的对象揭晓祂荣耀的丰富，而祂提前为荣耀预备了他们--- [弗1:5](https://biblehub.com/ephesians/1-5.htm) 祂藉着耶稣基督为收养为儿子名分而预定了我们，依照祂的意愿和意志--- [6](https://biblehub.com/ephesians/1-6.htm) 为赞美祂荣耀的恩典，这是祂在祂所爱的独子中已白白赐给我们的。 [箴16:4](https://biblehub.com/proverbs/16-4.htm) 耶和华使一切都运行出它恰当的目的---甚至有恶人为灾难的一天。
+
+## 3.4
 
 > These angels and men, thus predestinated, and foreordained, are particularly and unchangeably designed, and their number so certain and definite, that it cannot be either increased or diminished.
 
