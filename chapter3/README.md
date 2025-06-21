@@ -54,3 +54,15 @@ Of God's Eternal Decree
 因此被预定和注定的这些天使和人，是被特别地、不变地设计的，而他们的数量是如此确定和确切的，以致它既不能被增加也不能被减少[^3-8]。
 
 [^3-8]: [提后2:19](https://biblehub.com/2_timothy/2-19.htm) 尽管如此，上帝坚实的根基屹立坚固，被封印以这铭文：“耶和华认识那些是祂的人”，和，“每一个坦承耶和华名的，都必须从邪恶转离”。 [约13:18](https://biblehub.com/john/13-18.htm) “我不是在指你们所有人；我认识那些我已拣选的人。而这是要成全经书的这段话：‘他分享我的饼，却已背叛我。’
+
+## 3.5
+
+> Those of mankind that are predestinated unto life, God, before the foundation of the world was laid, according to His eternal and immutable purpose, and the secret counsel and good pleasure of His will, has chosen, in Christ, unto everlasting glory, out of His mere free grace and love, without any foresight of faith, or good works, or perseverance in either of them, or any other thing in the creature, as conditions, or causes moving Him thereunto; and all to the praise of His glorious grace.
+
+那些被预定至生命的人类，上帝，在奠定世界的根基之前，按照祂永恒不变的旨意，以及祂意志的隐秘密旨和美意，在基督里，已拣选他们至永久的荣耀[^3-9]，出自祂纯粹白白的恩典和爱，不用信心，或善功，或在它们两者之一中的持守，或受造物中任何其他事物的任何预见，作为感动祂达此目的的条件或原因[^3-10]；而所有都为祂荣耀恩典的赞美[^3-11]。
+
+[^3-9]: [弗1:4](https://biblehub.com/ephesians/1-4.htm) 因为在世界创造之前，祂在祂里面拣选了我们以在祂的视域中成为神圣和无可指摘的。在爱中 [9](https://biblehub.com/ephesians/1-9.htm) 祂按照祂在基督里立定了的祂的美意，向我们揭晓了祂意志的奥秘， [11](https://biblehub.com/ephesians/1-11.htm) 我们也在祂里面被拣选了，是按照祂的计划已被预定的，而祂遵照祂意志的旨意运行出一切， [罗8:30](https://biblehub.com/romans/8-30.htm) 而那些祂预定了的，祂也召唤了他们；那些祂召唤了的，祂也称了他们为义；那些祂称了为义的，祂也使他们荣耀。 [提后1:9](https://biblehub.com/2_timothy/1-9.htm) 祂已拯救我们，并召唤了我们向神圣的生命---不是因为任何我们已完成的，而是因为祂自身的旨意和恩典。这恩典在时间起初之前在基督耶稣里被赐给了我们， [帖前5:9](https://biblehub.com/1_thessalonians/5-9.htm) 因为上帝没有指定我们遭受忿怒，而是藉着我们主耶稣基督领受拯救。
+
+[^3-10]: [罗9:11](https://biblehub.com/romans/9-11.htm) 然而，在双胞胎出生或已做任何好事或坏事之前---为使上帝在遴选中的旨意能贯彻： [13](https://biblehub.com/romans/9-13.htm) 正如经上所记：“我爱雅各，但我厌恶以扫。” [16](https://biblehub.com/romans/9-16.htm) 因此，这不依赖于人类的欲望或努力，而在于上帝的宽恕。 [弗1:4](https://biblehub.com/ephesians/1-4.htm) 因为在世界创造之前，祂在祂里面拣选了我们以在祂的视域中成为神圣和无可指摘的。在爱中 [9](https://biblehub.com/ephesians/1-9.htm) 祂按照祂在基督里立定了的祂的美意，向我们揭晓了祂意志的奥秘，
+
+[^3-11]: [弗1:6](https://biblehub.com/ephesians/1-6.htm) 为赞美祂荣耀的恩典，这是祂在祂所爱的独子中已白白赐给我们的。 [弗1:12](https://biblehub.com/ephesians/1-12.htm) 为使我们，这些首先把希望放在基督里的，能为祂荣耀的赞美。
