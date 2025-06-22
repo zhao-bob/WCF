@@ -66,3 +66,19 @@ Of God's Eternal Decree
 [^3-10]: [罗9:11](https://biblehub.com/romans/9-11.htm) 然而，在双胞胎出生或已做任何好事或坏事之前---为使上帝在遴选中的旨意能贯彻： [13](https://biblehub.com/romans/9-13.htm) 正如经上所记：“我爱雅各，但我厌恶以扫。” [16](https://biblehub.com/romans/9-16.htm) 因此，这不依赖于人类的欲望或努力，而在于上帝的宽恕。 [弗1:4](https://biblehub.com/ephesians/1-4.htm) 因为在世界创造之前，祂在祂里面拣选了我们以在祂的视域中成为神圣和无可指摘的。在爱中 [9](https://biblehub.com/ephesians/1-9.htm) 祂按照祂在基督里立定了的祂的美意，向我们揭晓了祂意志的奥秘，
 
 [^3-11]: [弗1:6](https://biblehub.com/ephesians/1-6.htm) 为赞美祂荣耀的恩典，这是祂在祂所爱的独子中已白白赐给我们的。 [弗1:12](https://biblehub.com/ephesians/1-12.htm) 为使我们，这些首先把希望放在基督里的，能为祂荣耀的赞美。
+
+## 3.6
+
+> As God has appointed the elect unto glory, so has He, by the eternal and most free purpose of His will, foreordained all the means thereunto. Wherefore, they who are elected, being fallen in Adam, are redeemed by Christ, are effectually called unto faith in Christ by His Spirit working in due season, are justified, adopted, sanctified, and kept by His power, through faith, unto salvation. Neither are any other redeemed by Christ, effectually called, justified, adopted, sanctified, and saved, but the elect only.
+
+既然上帝已指定选民至荣耀，所以祂已，由祂意志的永恒且至自由的旨意，注定达此目的的所有手段[^3-12]。因此，他们这些被拣选的，在亚当里堕落，被基督救赎[^3-13]，并由祂的圣灵适时地运行，有效地被召唤至对基督的信心，被称义，被领养，被圣洁[^3-14]，并被祂的大能保持，藉着信心，至于拯救[^3-15]。任何其他人既不会被基督救赎，也不会被有效召唤、被称义、被收养、被圣洁及被拯救，惟有选民除外[^3-16]。
+
+[^3-12]: [彼前1:2](https://biblehub.com/1_peter/1-2.htm) 那些按照上帝圣父的预知，藉着圣灵的圣洁之工，已被拣选来顺服于耶稣基督而以祂的血所洒的：愿恩典与和平丰盛地属于你们。 [弗1:4](https://biblehub.com/ephesians/1-4.htm) 因为在世界创造之前，祂在祂里面拣选了我们以在祂的视域中成为神圣和无可指摘的。在爱中 [5](https://biblehub.com/ephesians/1-5.htm) 祂藉着耶稣基督为收养为儿子名分而预定了我们，依照祂的意愿和意志--- [2:10](https://biblehub.com/ephesians/2-10.htm) 因为我们是上帝的手工，在基督耶稣里被创造，以做上帝提前为我们准备了的善功。 [帖后2:13](https://biblehub.com/2_thessalonians/2-13.htm) 但是，被主所爱的弟兄姊妹，我们应该总是为你们感谢上帝，因为上帝拣选了你们作为初熟果实，以藉着圣灵的圣洁之工并藉着在真理中的相信被拯救。
+
+[^3-13]: [帖前5:9](https://biblehub.com/1_thessalonians/5-9.htm) 因为上帝没有指定我们遭受忿怒，而是藉着我们主耶稣基督领受拯救。 [10](https://biblehub.com/1_thessalonians/5-10.htm) 祂为我们而死，以使我们无论是醒着还是睡着，我们能与祂同住在一起。 [多2:14](https://biblehub.com/titus/2-14.htm) 祂为我们献出了祂自己，以从所有邪恶中救赎我们，并为祂自己净化一个只属祂自己，殷切行那些善事的民族。
+
+[^3-14]: [罗8:30](https://biblehub.com/romans/8-30.htm) 而那些祂预定了的，祂也召唤了他们；那些祂召唤了的，祂也称了他们为义；那些祂称了为义的，祂也使他们荣耀。 [弗1:5](https://biblehub.com/ephesians/1-5.htm) 祂藉着耶稣基督为收养为儿子名分而预定了我们，依照祂的意愿和意志--- [帖后2:13](https://biblehub.com/2_thessalonians/2-13.htm) 但是，被主所爱的弟兄姊妹，我们应该总是为你们感谢上帝，因为上帝拣选了你们作为初熟果实，以藉着圣灵的圣洁之工并藉着在真理中的相信被拯救。
+
+[^3-15]: [彼前1:5](https://biblehub.com/1_peter/1-5.htm) 你们藉着信心被上帝的大能护卫，直到准备好在末世被启示的拯救的来到。
+
+[^3-16]: [约17:9](https://biblehub.com/john/17-9.htm) 我为他们祷告。我不是在为世界祷告，而是为那些祢已赐给我的人，因为他们是祢的。 [罗8:28](https://biblehub.com/romans/8-28.htm) 而我们知道，上帝使万物都为那些爱祂的人的善运行，而他们已按照祂的旨意被召唤。 [约6:64](https://biblehub.com/john/6-64.htm) 但你们有些人不相信。”因为耶稣从起初已知道他们有那些不相信，并且谁会出卖祂。 [65](https://biblehub.com/john/6-65.htm) 祂继续说：“这是为什么我告诉过你们，除非圣父已赋能他们，无人能到我这里来。 [10:26](https://biblehub.com/john/10-26.htm) 但你们不相信，因为你们不是我的羊。 [8:47](https://biblehub.com/john/8-47.htm) 无论谁属于上帝，就听见上帝说什么。你们听不见的原因是你们不属于上帝。” [约壹2:19](https://biblehub.com/1_john/2-19.htm) 他们从我们走出，但他们并不真实属于我们。因为假使他们属于我们，他们就会依旧与我们一同；但他们的出走表明他们没有一个属于我们。
