@@ -82,3 +82,11 @@ Of God's Eternal Decree
 [^3-15]: [彼前1:5](https://biblehub.com/1_peter/1-5.htm) 你们藉着信心被上帝的大能护卫，直到准备好在末世被启示的拯救的来到。
 
 [^3-16]: [约17:9](https://biblehub.com/john/17-9.htm) 我为他们祷告。我不是在为世界祷告，而是为那些祢已赐给我的人，因为他们是祢的。 [罗8:28](https://biblehub.com/romans/8-28.htm) 而我们知道，上帝使万物都为那些爱祂的人的善运行，而他们已按照祂的旨意被召唤。 [约6:64](https://biblehub.com/john/6-64.htm) 但你们有些人不相信。”因为耶稣从起初已知道他们有那些不相信，并且谁会出卖祂。 [65](https://biblehub.com/john/6-65.htm) 祂继续说：“这是为什么我告诉过你们，除非圣父已赋能他们，无人能到我这里来。 [10:26](https://biblehub.com/john/10-26.htm) 但你们不相信，因为你们不是我的羊。 [8:47](https://biblehub.com/john/8-47.htm) 无论谁属于上帝，就听见上帝说什么。你们听不见的原因是你们不属于上帝。” [约壹2:19](https://biblehub.com/1_john/2-19.htm) 他们从我们走出，但他们并不真实属于我们。因为假使他们属于我们，他们就会依旧与我们一同；但他们的出走表明他们没有一个属于我们。
+
+## 3.7
+
+> The rest of mankind God was pleased, according to the unsearchable counsel of His own will, whereby He extends or withholds mercy, as He pleases, for the glory of His sovereign power over His creatures, to pass by; and to ordain them to dishonor and wrath for their sin, to the praise of His glorious justice.
+
+其余的人类，上帝愿意，按照祂自身意志不可测的密旨，以此祂随祂意愿扩展或扣留宽恕，为祂对祂的受造物的全权大能的荣耀，将他们略过；并为祂荣耀的公义的赞美，按立他们为他们的罪恶至羞辱和忿怒[^3-17]。
+
+[^3-17]: [太11:25](https://biblehub.com/matthew/11-25.htm) 在那时耶稣说：“圣父啊，天与地的主，我赞美祢，因为祢已向智慧和博学的人隐藏这些事，而将它们启示给小孩子。 [26](https://biblehub.com/matthew/11-26.htm) 是的，圣父，因为这是祢愿意做的事。 [罗9:17](https://biblehub.com/romans/9-17.htm) 因为经书对法老说：“我唤起你，正是为这个旨意，使我能在你里面显示我的大能，并使我的名能在全地被宣布。” [18](https://biblehub.com/romans/9-18.htm) 因此，上帝在祂想施宽恕的人上施宽恕，而祂使祂想刚硬的人刚硬。 [21](https://biblehub.com/romans/9-21.htm) 陶工难道没有权用相同的陶土团块制作一些陶器作特殊用途，而一些为通常使用吗？ [22](https://biblehub.com/romans/9-22.htm) 虽然上帝选择表明祂的忿怒并揭晓祂的大能，但倘若祂以极大的耐心承受祂忿怒的对象---为毁灭预备的呢？ [提后2:19](https://biblehub.com/2_timothy/2-19.htm) 尽管如此，上帝坚实的根基屹立坚固，被封印以这铭文：“耶和华认识那些是祂的人”，和，“每一个坦承耶和华名的，都必须从邪恶转离”。 [20](https://biblehub.com/2_timothy/2-20.htm) 在一栋大房子里，不仅有金银制品，还有木头和陶土制品；有些是为特殊用途，有些是为通常使用的。 [犹1:4](https://biblehub.com/jude/1-4.htm) 因为某些定罪先前就被写下的个人，已暗中溜进你们中间。他们是悖逆神的人，他们将我们上帝的恩典曲解为淫邪的许可证，并否认耶稣基督我们惟一的主宰和君主。 [彼前2:8](https://biblehub.com/1_peter/2-8.htm) 并且，“一块导致族民跌倒的石头和一块使他们坠落的岩石。”他们跌倒因为他们忤逆这消息---这也是他们被命定了的。
