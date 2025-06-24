@@ -90,3 +90,17 @@ Of God's Eternal Decree
 其余的人类，上帝愿意，按照祂自身意志不可测的密旨，以此祂随祂意愿扩展或扣留宽恕，为祂对祂的受造物的全权大能的荣耀，将他们略过；并为祂荣耀的公义的赞美，按立他们为他们的罪恶至羞辱和忿怒[^3-17]。
 
 [^3-17]: [太11:25](https://biblehub.com/matthew/11-25.htm) 在那时耶稣说：“圣父啊，天与地的主，我赞美祢，因为祢已向智慧和博学的人隐藏这些事，而将它们启示给小孩子。 [26](https://biblehub.com/matthew/11-26.htm) 是的，圣父，因为这是祢愿意做的事。 [罗9:17](https://biblehub.com/romans/9-17.htm) 因为经书对法老说：“我唤起你，正是为这个旨意，使我能在你里面显示我的大能，并使我的名能在全地被宣布。” [18](https://biblehub.com/romans/9-18.htm) 因此，上帝在祂想施宽恕的人上施宽恕，而祂使祂想刚硬的人刚硬。 [21](https://biblehub.com/romans/9-21.htm) 陶工难道没有权用相同的陶土团块制作一些陶器作特殊用途，而一些为通常使用吗？ [22](https://biblehub.com/romans/9-22.htm) 虽然上帝选择表明祂的忿怒并揭晓祂的大能，但倘若祂以极大的耐心承受祂忿怒的对象---为毁灭预备的呢？ [提后2:19](https://biblehub.com/2_timothy/2-19.htm) 尽管如此，上帝坚实的根基屹立坚固，被封印以这铭文：“耶和华认识那些是祂的人”，和，“每一个坦承耶和华名的，都必须从邪恶转离”。 [20](https://biblehub.com/2_timothy/2-20.htm) 在一栋大房子里，不仅有金银制品，还有木头和陶土制品；有些是为特殊用途，有些是为通常使用的。 [犹1:4](https://biblehub.com/jude/1-4.htm) 因为某些定罪先前就被写下的个人，已暗中溜进你们中间。他们是悖逆神的人，他们将我们上帝的恩典曲解为淫邪的许可证，并否认耶稣基督我们惟一的主宰和君主。 [彼前2:8](https://biblehub.com/1_peter/2-8.htm) 并且，“一块导致族民跌倒的石头和一块使他们坠落的岩石。”他们跌倒因为他们忤逆这消息---这也是他们被命定了的。
+
+## 3.8
+
+> The doctrine of this high mystery of predestination is to be handled with special prudence and care, that men, attending the will of God revealed in His Word, and yielding obedience thereunto, may, from the certainty of their effectual vocation, be assured of their eternal election. So shall this doctrine afford matter of praise, reverence, and admiration of God; and of humility, diligence, and abundant consolation to all that sincerely obey the Gospel.
+
+预定论的这崇高奥秘的教义，要以特殊的审慎并仔细来被处理[^3-18]，以使投入上帝在祂的圣言中所启示的意志，并为此屈从于顺服的人们，能从他们有效神召的确定性中，被确信他们永恒的遴选[^3-19]。所以此教义也会将赞美、崇敬和仰慕上帝相关的事要[^3-20]；以及谦卑、勤勉和丰盛慰藉相关的事要给予所有真诚顺服福音的人[^3-21]。
+
+[^3-18]: [罗9:20](https://biblehub.com/romans/9-20.htm) 但你是谁，一个人类，来与上帝顶嘴？“被塑形之物该对塑形它的人说：‘祢为什么把我制造成这样？’” [11:33](https://biblehub.com/romans/11-33.htm) 深哉，上帝智慧和知识的丰富！祂的判断何其难测，而祂的路径超出追踪！ [申29:29](https://biblehub.com/deuteronomy/29-29.htm) 隐秘的事情属于耶和华我们的上帝，但被启示的事情永远属于我们和我们的子女，使我们能遵循这律法所有的言词。
+
+[^3-19]: [彼后1:10](https://biblehub.com/2_peter/1-10.htm) 因此，我的弟兄姊妹，要尽一切努力确认你们的召唤和遴选。因为如果你们做这些事，你们就绝不会跌倒，
+
+[^3-20]: [弗1:6](https://biblehub.com/ephesians/1-6.htm) 为赞美祂荣耀的恩典，这是祂在祂所爱的独子中已白白赐给我们的。 [罗11:33](https://biblehub.com/romans/11-33.htm) 深哉，上帝智慧和知识的丰富！祂的判断何其难测，而祂的路径超出追踪！
+
+[^3-21]: [罗11:5](https://biblehub.com/romans/11-5.htm) 所以，在现今时间也有被恩典拣选的余民。 [6](https://biblehub.com/romans/11-6.htm) 如果由恩典，那么它就不能基于功劳；假使它是，恩典就不再会是恩典。 [6:20](https://biblehub.com/romans/6-20.htm) 当你们是罪恶的奴隶时，你们免于正义的控制了。 [彼后1:10](https://biblehub.com/2_peter/1-10.htm) 因此，我的弟兄姊妹，要尽一切努力确认你们的召唤和遴选。因为如果你们做这些事，你们就绝不会跌倒， [罗8:3](https://biblehub.com/romans/8-33.htm) 谁会对上帝已拣选的人带来任何指控呢？称义的是上帝。 [路10:20](https://biblehub.com/luke/10-20.htm) 然而，不要欣喜众灵服从你们，而要欣喜你们的名字被记在天国中。”
