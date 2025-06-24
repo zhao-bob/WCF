@@ -11,5 +11,7 @@
 
 ## [第三章 论上帝的永恒预旨](https://zhao-bob.github.io/WCF/chapter3)
 
+## [第四章 论创世](https://zhao-bob.github.io/WCF/chapter4)
+
 
 
