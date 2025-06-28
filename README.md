@@ -13,5 +13,7 @@
 
 ## [第四章 论创世](https://zhao-bob.github.io/WCF/chapter4)
 
+## [第五章 论神意](https://zhao-bob.github.io/WCF/chapter5)
+
 
 
