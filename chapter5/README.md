@@ -2,7 +2,7 @@
 
 Of Providence
 
-## 4.1
+## 5.1
 
 > God the great Creator of all things does uphold, direct, dispose, and govern all creatures, actions, and things, from the greatest even to the least, by His most wise and holy providence, according to His infallible foreknowledge, and the free and immutable counsel of His own will, to the praise of the glory of His wisdom, power, justice, goodness, and mercy.
 
@@ -21,3 +21,13 @@ Of Providence
 [^5-6]: [弗1:11](https://biblehub.com/ephesians/1-11.htm) 我们也在祂里面被拣选了，是按照祂的计划已被预定的，而祂遵照祂意志的旨意运行出一切， [诗33:10](https://biblehub.com/psalms/33-10.htm) 耶和华挫败列邦的计划；祂阻挠列族的用意。 [诗33:11](https://biblehub.com/psalms/33-11.htm) 但耶和华的计划永远坚立，祂内心的旨意历经万代。
 
 [^5-7]: [赛63:14](https://biblehub.com/isaiah/63-14.htm) 像下到平原的家畜，它们被耶和华的圣灵赐予安息。这就是你该如何引领你的子民为你自己得到光荣的名声。 [弗3:10](https://biblehub.com/ephesians/3-10.htm) 祂的意图是，现在藉着教会，上帝的百般智慧应向在天界的统治者和权威揭晓， [罗9:17](https://biblehub.com/romans/9-17.htm) 因为经书对法老说：“我唤起你，正是为这个旨意，使我能在你里面显示我的大能，并使我的名能在全地被宣布。” [创45:7](https://biblehub.com/genesis/45-7.htm) 但上帝先于你们差派了我，来为你们保守地上的余民，并由一次大解救来拯救你们的生命。 [诗145:7](https://biblehub.com/psalms/145-7.htm) 他们颂扬祢丰盛的善良，欢喜地歌颂祢的正义。
+
+## 5.2
+
+> Although, in relation to the foreknowledge and decree of God, the first Cause, all things come to pass immutably, and infallibly; yet, by the same providence, He orders them to fall out, according to the nature of second causes, either necessarily, freely, or contingently.
+
+虽然，万物与上帝的预知和预旨，第一因关联，都不变地，且无谬地来临[^5-8]；然而，由相同的神意，祂排定它们按照第二因的本性或必要地、自由地或偶然地脱离[^5-9]。
+
+[^5-8]: [徒2:23](https://biblehub.com/acts/2-23.htm) 这人由上帝审慎的计划和预知被交送给了你们；而你们，在邪恶人们的帮助下，将祂钉在十字架上，处死了祂。
+
+[^5-9]: [创8:22](https://biblehub.com/genesis/8-22.htm) “只要大地存续，种时与收获、寒与热、夏与冬、昼与夜就会永不停息。” [耶31:35](https://biblehub.com/jeremiah/31-35.htm) 这是耶和华说的：祂指定太阳在白昼照耀，祂降旨月亮和星辰在夜间发光，祂搅动大海以致其波浪咆哮---万军之耶和华是祂的名： [出21:13](https://biblehub.com/exodus/21-13.htm) 然而，如果它不是蓄意被做的，而是上帝让它发生，他们要逃到一个我将指示的地方。 [申19:5](https://biblehub.com/deuteronomy/19-5.htm) 例如，一个人可能与他的邻居一同走进森林砍柴，而当他挥动他的斧子砍伐一棵树时，斧头可能飞出而击中他的邻居并杀死他。那个人能逃到这些城中一座而拯救他的生命。 [王上22:28](https://biblehub.com/1_kings/22-28.htm) 米该雅宣告：“如果你们果真平安返回，耶和华就未曾借着我讲话。然后他添加道，“谨记我的言词，你们所有人！” [34](https://biblehub.com/1_kings/22-34.htm) 但有人随便拉他的弓，就击中了以色列国王盔甲断面之间。国王告诉他的车夫，“调转并将我带离战斗。我已负伤。” [赛10:6](https://biblehub.com/isaiah/10-6.htm) 我差派他对抗一个无神的国族，我派遣他对抗一个激怒我的民族，去夺取战利品并抢走财物，并将他们像街上的泥巴一样蹂躏。 [7](https://biblehub.com/isaiah/10-7.htm) 但这不是他打算的，这不是他在心灵中有的；他的用意是要摧毁，终结许多国族。
