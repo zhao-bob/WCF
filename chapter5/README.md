@@ -45,3 +45,19 @@ Of Providence
 [^5-12]: [罗4:19](https://biblehub.com/romans/4-19.htm) 他在他的信心上没有削弱，而是面对了这事实：他的身体与死无几---因为他大约一百岁了---并且撒拉的子宫也死了。 [20](https://biblehub.com/romans/4-20.htm) 但关于上帝的应许他没有借着不信摇摆，而是在他的信心上被坚固并将荣耀献给上帝， [21](https://biblehub.com/romans/4-21.htm) 而完全被信服上帝有大能去做祂已应许的。
 
 [^5-13]: [王下6:6](https://biblehub.com/2_kings/6-6.htm) 上帝的那人问：“它落在了哪里？”当他向他展示那地方时，以利沙砍了一根枝条并将它扔到那里，就使铁漂浮。 [但3:27](https://biblehub.com/daniel/3-27.htm) 省长、高官、总督和皇家顾问都挤在他们周边。他们看到火既未伤害到他们的身体，他们头上的一根头发也未被烧焦；他们的长袍没有被灼烧，而他们身上没有火的气味。
+
+## 5.4
+
+> The almighty power, unsearchable wisdom, and infinite goodness of God so far manifest themselves in His providence, that it extends itself even to the first fall, and all other sins of angels and men; and that not by a bare permission, but such as has joined with it a most wise and powerful bounding, and otherwise ordering, and governing of them, in a manifold dispensation, to His own holy ends; yet so, as the sinfulness thereof proceeds only from the creature, and not from God, who, being most holy and righteous, neither is nor can be the author or approver of sin.
+
+迄今上帝万军之大能、不可测的智慧和无限的善良在祂的神意中彰显它们自身，使它将它自己扩展至第一次堕落，以及众天使和人的所有其他罪恶[^5-14]；而那不是由一种赤裸的准许[^5-15]，而是这已将一个至智和至能的界限同它结合[^5-16]，并另外在一种百般的实施中排定，并治理它们，为祂自身的神圣目的[^5-17]；尽管如此，由于其中的罪性仅从受造物发出，而不是源自上帝，而祂是至圣和至义的，既不是也不可能是罪恶的著者或赞成者[^5-18]。
+
+[^5-14]: [罗11:32](https://biblehub.com/romans/11-32.htm) 因为上帝已经为忤逆具保每个人，以致他能在他们所有人上施宽恕。 [33](https://biblehub.com/romans/11-33.htm) 深哉，上帝智慧和知识的丰富！祂的判断何其难测，而祂的路径超出追踪！ [34](https://biblehub.com/romans/11-34.htm) “谁已知道主的心意？或者谁曾是祂的参事？” [撒下24:1](https://biblehub.com/2_samuel/24-1.htm) 再次耶和华的愤怒对以色列人燃烧，祂主使大卫对抗他们，说：“去清查以色列和犹大。” [代上21:1](https://biblehub.com/1_chronicles/21-1.htm) 撒旦起兵对抗以色列，并煽动大卫清查以色列。 [王上22:22](https://biblehub.com/1_kings/22-22.htm) “‘靠什么手段？’耶和华问。“‘我会出去并成为他所有先知口中一个欺骗的灵，’他说。“‘你将成功引诱他。’耶和华说：‘去做这吧。’ [23](https://biblehub.com/1_kings/22-23.htm) “所以现在耶和华把一个欺骗的灵放在你们的所有这些先知的口中。耶和华已经为你们降旨灾难。” [代上10:4](https://biblehub.com/1_chronicles/10-4.htm) 扫罗对他的扈从说：“拔出你的剑并将我刺透，否则这些未受割礼的家伙会来凌辱我。但他的扈从惊恐而不愿做这；于是扫罗拿起他自身的剑并倒在剑上。 [撒下16:10](https://biblehub.com/2_samuel/16-10.htm) 但国王说：“你们这些洗鲁雅的儿子们，这与你们有什么干系呢？如果他在咒诅因为耶和华对他说：‘咒诅大卫’，谁能问：‘你为什么做这？’” [徒2:23](https://biblehub.com/acts/2-23.htm) 这人由上帝审慎的计划和预知被交送给了你们；而你们，在邪恶人们的帮助下，将祂钉在十字架上，处死了祂。 [4:27](https://biblehub.com/acts/4-27.htm) 果真，希律和本丢.彼拉多在这座城市同外邦人和以色列族民一起会见，密谋对抗祢膏抹的祢的圣仆耶稣。 [28](https://biblehub.com/acts/4-28.htm) 他们做了祢的大能和意志事先已决定的而应该发生的事情。
+
+[^5-15]: [徒14:16](https://biblehub.com/acts/14-16.htm) 在过去的世代，祂任凭万邦行他们自身的道。
+
+[^5-16]: [诗76:10](https://biblehub.com/psalms/76-10.htm) 无疑祢针对人类的忿怒带给祢赞美，而祢忿怒的幸存者被约束。 [王下19:28](https://biblehub.com/2_kings/19-28.htm) 因为你对我狂暴，且因为你的傲慢已达到我的耳朵，我会把我的钩子放在你的鼻子里，并把我的嚼环放在你的嘴里，我还会使你由你来时的路返回。’
+
+[^5-17]: [创50:20](https://biblehub.com/genesis/50-20.htm) 你们打算伤害我，但上帝却打算以其为善来成就现在正在做的，拯救许多生命的事情。 [赛10:6](https://biblehub.com/isaiah/10-6.htm) 我差派他对抗一个无神的国族，我派遣他对抗一个激怒我的民族，去夺取战利品并抢走财物，并将他们像街上的泥巴一样蹂躏。 [7](https://biblehub.com/isaiah/10-7.htm) 但这不是他打算的，这不是他在心灵中有的；他的用意是要摧毁，终结许多国族。 [12](https://biblehub.com/isaiah/10-12.htm) 当主已结束祂所有对抗锡安山和耶路撒冷的工作时，祂会说：“我会惩罚亚述国王，为他内心故意的骄傲和他眼中高傲的神情。
+
+[^5-18]: [雅1:13](https://biblehub.com/james/1-13.htm) 当被诱惑时，没有人该说：“上帝在诱惑我。”因为上帝既不可能被邪恶诱惑，祂也不诱惑任何人； [17](https://biblehub.com/james/1-17.htm) 每一份善而完美的恩赐都源自上天，从天国众光之父降临，而祂不会像飘移的阴影一样改变。 [约壹2:16](https://biblehub.com/1_john/2-16.htm) 因为世上的一切---肉体的情欲、眼睛的情欲和生命的骄傲---不是从圣父而来，而是源自世界。 [诗50:21](https://biblehub.com/psalms/50-21.htm) 当你做了这些事而我保持静默时，你以为我尽然像你一样。但我现在提审你并把我的控告摆在你面前。
