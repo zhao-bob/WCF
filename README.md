@@ -15,5 +15,7 @@
 
 ## [第五章 论神意](https://zhao-bob.github.io/WCF/chapter5)
 
+## [第六章 论人的堕落，罪恶及其中的惩罚](https://zhao-bob.github.io/WCF/chapter6)
+
 
 
