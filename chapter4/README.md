@@ -14,6 +14,8 @@ Of Creation
 
 [^4-3]: [创世纪1全部](https://biblehub.com/niv/genesis/1.htm) 。 [来11:3](https://biblehub.com/hebrews/11-3.htm) 由信心，我们理解宇宙是在上帝的命令下被塑形的，以致被看见的不是用可见的制作的。 [西1:16](https://biblehub.com/colossians/1-16.htm) 因为在祂里面万物被创造：天国中的地上的，可见的和不可见的东西，无论是上坐天使、能天使、统治者还是权威；万物都已藉着祂并为祂被创造。 [徒17:24](https://biblehub.com/acts/17-24.htm) “制造了世界和其中一切的上帝是天与地的主，而不住在人手所建造的神殿里。
 
+## 4.2
+
 > After God had made all other creatures, He created man, male and female, with reasonable and immortal souls, endued with knowledge, righteousness, and true holiness, after His own image; having the law of God written in their hearts, and power to fulfil it; and yet under a possibility of transgressing, being left to the liberty of their own will, which was subject unto change. Beside this law written in their hearts, they received a command, not to eat of the tree of the knowledge of good and evil; which while they kept, they were happy in their communion with God, and had dominion over the creatures.
 
 在上帝已制造所有其他的受造物之后，他创造了人，男性和女性[^4-4]：带着理性和不朽的灵魂[^4-5]，被授予知识、正义和真正的神圣，效法祂自身的形象[^4-6]；拥有上帝的律法刻在他们内心[^4-7]，以及成全它的权柄[^4-8]；也还在一种违犯的可能性下，被留有他们自身易受改变的意志的自在[^4-9]。除这刻在他们内心的律法之外，他们还领受了一条命令：不要以分辨善恶树为食[^4-10]；在他们保持此时，他们在他们同上帝的交契中是幸福的，并对受造物拥有管辖权[^4-11]。
