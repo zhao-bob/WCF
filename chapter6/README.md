@@ -55,3 +55,23 @@ Of the Fall of Man, of Sin, and the Punishment thereof
 [^6-10]: [约壹1:8](https://biblehub.com/1_john/1-8.htm) 如果我们宣称没有罪恶，我们就欺骗我们自己，而真理就不在我们里面。 [10](https://biblehub.com/1_john/1-10.htm) 如果我们宣称我们未曾犯罪，我们就显出祂是一个骗子，而祂的圣言就不在我们里面。 [罗7:14](https://biblehub.com/romans/7-14.htm) 我们知道律法是属灵的；但我是不属灵的，被卖给罪恶为奴。 [17](https://biblehub.com/romans/7-17.htm) 如此，不再是我自己做这，而是住在我里面的罪恶。 [18](https://biblehub.com/romans/7-18.htm) 因为我知道，善本身并不栖居在我里面，也就是，在我罪恶的本性里。因为我有做那善事的渴望，但我不能将其实行。 [23](https://biblehub.com/romans/7-23.htm) 但我晓得另一条律法在我里面做工，向我心灵的律法开战，并使我成为在我里面做工的罪恶律法的囚徒。 [雅3:2](https://biblehub.com/james/3-2.htm) 我们所有人都在许多道路上跌倒。任何绝不在他们所说的中出错的人是完美的，有能力制约他们的全身。 [箴20:9](https://biblehub.com/proverbs/20-9.htm) 谁能说：“我已保持我的心灵纯洁；我洁净且无罪恶”？ [传7:20](https://biblehub.com/ecclesiastes/7-20.htm) 的确，地上无人是正义的，无人做义事而从未犯罪。
 
 [^6-11]: [罗7:5](https://biblehub.com/romans/7-5.htm) 因为当我们在肉体的辖域中时，被律法唤醒的罪恶情感运行在我们里面，以致我们为死亡结出果实。 [7](https://biblehub.com/romans/7-7.htm) 那么我们该说什么呢？律法是罪恶的？肯定不是！然而，假使不是为律法，我就不会知道罪恶是什么。因为假使律法未曾说“你们不可贪婪”，我就不会知道贪婪真实是什么。 [8](https://biblehub.com/romans/7-8.htm) 但罪恶通过夺取诫命给予的机会，在我里面产出了贪婪的每种类型。因为除去律法，罪恶是死的。 [25](https://biblehub.com/romans/7-25.htm) 感谢归于上帝，祂藉着耶稣基督我们的主解救我！所以那么，我本身在我的心灵中是一个上帝律法的奴仆，但在我罪恶的本性中是一个罪恶律法的奴隶。 [加5:17](https://biblehub.com/galatians/5-17.htm) 因为肉体渴望与圣灵相悖的，而圣灵渴望与肉体相悖的。它们相互冲突，以致你们不会做无论任何你们想要的。
+
+> Every sin, both original and actual, being a transgression of the righteous law of God, and contrary thereunto, does in its own nature, bring guilt upon the sinner, whereby he is bound over to the wrath of God, and curse of the law, and so made subject to death, with all miseries spiritual, temporal, and eternal.
+
+每个罪恶，原初的和现行的，兼是上帝正义律法的一种违犯，并且与之相悖[^6-12]，在它自身本性中，确实给罪人带来罪行[^6-13]，由此他被具保于上帝的忿怒[^6-14]，和律法的咒诅[^6-15]，并因此受制于死亡[^6-16]，受所有属灵的[^6-17]，属世的[^6-18]，和永恒的痛苦[^6-19]。
+
+[^6-12]: [约壹3:4](https://biblehub.com/1_john/3-4.htm) 每一个犯罪的，都破坏律法；事实上，罪恶是不守律法。
+
+[^6-13]: [罗2:15](https://biblehub.com/romans/2-15.htm) 他们表明律法的要求被刻在他们心上，他们的良心也在担任证人，而且他们的思想有时控告它们，而其它时候甚至捍卫它们。） [3:9](https://biblehub.com/romans/3-9.htm) 那么我们应推断出什么呢？我们有任何优势？一点也不！因为我们已经宣判犹太人和外邦人一样所有都在罪恶的权柄之下。 [19](https://biblehub.com/romans/3-19.htm) 现在我们知道无论律法说什么，它都是对那些在律法之下的人说的，以致每张嘴都能被静默，而整个世界对上帝有交代。
+
+[^6-14]: [弗2:3](https://biblehub.com/ephesians/2-3.htm) 我们所有人也都一度生活在它们中间，纵容我们肉体的渴求，并跟随它的欲望和思想。像其余人一样，我们天生就应得忿怒。
+
+[^6-15]: [加3:10](https://biblehub.com/galatians/3-10.htm) 因为所有依靠律法的功劳的人都在咒诅之下，如经上所记：“任何不持续做律法书中所记的一切的，都被咒诅。”
+
+[^6-16]: [罗6:23](https://biblehub.com/romans/6-23.htm) 因为罪恶的工价是死，但上帝的恩赐是在我们主基督耶稣里的永恒生命。
+
+[^6-17]: [弗4:18](https://biblehub.com/ephesians/4-18.htm) 他们在领悟上变暗，而因为在他们里面由他们内心刚硬而引起的无知，与上帝的生命分离。
+
+[^6-18]: [罗8:20](https://biblehub.com/romans/8-20.htm) 因为此造物易受挫败，不是由它自身的抉择，而是由使它顺从的那一位的意志，在希望中 [哀3:39](https://biblehub.com/lamentations/3-39.htm) 生者为何该在为他们的罪被惩罚时抱怨呢？
+
+[^6-19]: [太25:41](https://biblehub.com/matthew/25-41.htm) “然后祂会对那些在祂左边的人说：‘你们被咒诅的人，从我离去，到为魔鬼和它的使者们预备的永火中去。 [帖后1:9](https://biblehub.com/2_thessalonians/1-9.htm) 他们将被以永远毁灭惩罚，而被排斥在主的临在和祂权能荣耀之外
