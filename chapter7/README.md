@@ -33,3 +33,11 @@ Of God's Covenant with Man
 [^7-6]: [可16:15](https://biblehub.com/mark/16-15.htm) 祂对他们说：“走进全世界，并把福音传讲给所有造物。 [16](https://biblehub.com/mark/16-16.htm) 无论谁相信并受洗会被拯救，但无论谁不相信会被定罪。 [约3:16](https://biblehub.com/john/3-16.htm) 因为上帝如此爱这世界，以致祂将祂的独生子献出，以致无论谁信仰祂非但不会灭亡，而且拥有永生。 [约3:16](https://biblehub.com/john/3-16.htm) 因为上帝如此爱这世界，以致祂将祂的独生子献出，以致无论谁信仰祂非但不会灭亡，而且拥有永生。 [罗10:6](https://biblehub.com/romans/10-6.htm) 但靠着信心的正义说：“不要在你内心说：‘谁要升高入天国？’”（即，将基督带下来） [9](https://biblehub.com/romans/10-9.htm) 如果你用你的口宣告“耶稣是主”，并在你的内心相信上帝从死人将祂苏醒了，你就会被拯救。 [加3:11](https://biblehub.com/galatians/3-11.htm) 清楚地，无人依靠律法在上帝面前被称义，因为“义人将以信心为生”。
 
 [^7-7]: [结36:26](https://biblehub.com/ezekiel/36-26.htm) 我会赐给你们一颗新心，并放置一个新的灵在你们里面；我会从你们中移除你们的石心，并赐给你们一颗肉心。 [27](https://biblehub.com/ezekiel/36-27.htm) 而我会把我的圣灵放置在你们里面，并感动你们以遵循我的预旨，而谨慎保持我的律法。 [约6:44](https://biblehub.com/john/6-44.htm) “没有人能到我这里来，除非差派我的圣父牵引他们，而我会在末日将他们唤起。 [45](https://biblehub.com/john/6-45.htm) 先知书上记着：‘他们所有人都会被上帝教导’。每一个已听见圣父并从祂学习的人，都到我这里来。
+
+## 7.4
+
+> This covenant of grace is frequently set forth in scripture by the name of a testament, in reference to the death of Jesus Christ the Testator, and to the everlasting inheritance, with all things belonging to it, therein bequeathed.
+
+此恩典之约在经书中频繁以遗嘱之名被阐述，指代立遗嘱人耶稣基督的死，以及永久的遗产，与其中被遗赠的、属于它的所有事情一同[^7-8]。
+
+[^7-8]: [来9:15](https://biblehub.com/hebrews/9-15.htm) 为此原因，基督是新圣约的中保，以使那些被召唤的人能领受那应许的永恒遗产---现在祂已作为赎金而死，为将他们从在第一个圣约下所犯的罪恶解放。 [16](https://biblehub.com/hebrews/9-16.htm) 就遗愿而言，证明立祂的那位的死亡是必要的， [17](https://biblehub.com/hebrews/9-17.htm) 因为遗愿仅当某人已去世时才见效；在立它的那位活着时，它绝不起效。 [7:22](https://biblehub.com/hebrews/7-22.htm) 因为这个誓言，耶稣已成为更好圣约的保证人。 [路22:20](https://biblehub.com/luke/22-20.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是我血中的新约，为你们被倾倒出来。” [林前11:25](https://biblehub.com/1_corinthians/11-25.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是在我血中新的圣约；每当你们喝它时，都要这样做，以记念我。”
