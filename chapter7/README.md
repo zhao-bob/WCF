@@ -41,3 +41,17 @@ Of God's Covenant with Man
 此恩典之约在经书中频繁以遗嘱之名被阐述，指代立遗嘱人耶稣基督的死，以及永久的遗产，与其中被遗赠的、属于它的所有事情一同[^7-8]。
 
 [^7-8]: [来9:15](https://biblehub.com/hebrews/9-15.htm) 为此原因，基督是新圣约的中保，以使那些被召唤的人能领受那应许的永恒遗产---现在祂已作为赎金而死，为将他们从在第一个圣约下所犯的罪恶解放。 [16](https://biblehub.com/hebrews/9-16.htm) 就遗愿而言，证明立祂的那位的死亡是必要的， [17](https://biblehub.com/hebrews/9-17.htm) 因为遗愿仅当某人已去世时才见效；在立它的那位活着时，它绝不起效。 [7:22](https://biblehub.com/hebrews/7-22.htm) 因为这个誓言，耶稣已成为更好圣约的保证人。 [路22:20](https://biblehub.com/luke/22-20.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是我血中的新约，为你们被倾倒出来。” [林前11:25](https://biblehub.com/1_corinthians/11-25.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是在我血中新的圣约；每当你们喝它时，都要这样做，以记念我。”
+
+## 7.5
+
+> This covenant was differently administered in the time of the law, and in the time of the Gospel: under the law it was administered by promises, prophecies, sacrifices, circumcision, the paschal lamb, and other types and ordinances delivered to the people of the Jews, all foresignifying Christ to come; which were, for that time, sufficient and efficacious, through the operation of the Spirit, to instruct and build up the elect in faith in the promised Messiah, by whom they had full remission of sins, and eternal salvation; and is called the Old Testament.
+
+此圣约在律法时期和在福音时期被不同地施行[^7-9]：律法之下，它由应许、预言、献祭、割礼、逾越节的羔羊以及交付给犹太子民的其他预表和教仪被施行，所有都前示着基督要来[^7-10]；这些对那个时期，藉着圣灵的运作，以指导和造就在对被应许的弥赛亚的信心中的选民，是充分和起效的[^7-11]，而由弥赛亚，他们拥有罪恶的完全减免，和永恒的拯救；并被称为旧约[^7-12]。
+
+[^7-9]: [林后3:6](https://biblehub.com/2_corinthians/3-6.htm) 祂已使我们胜任为新的圣约的牧师---不是文字的，而是圣灵的；因为文字杀人，但圣灵赐予生命。 [7](https://biblehub.com/2_corinthians/3-7.htm) 现在，如果用文字雕刻在石头上，带来死亡的事工，伴着荣耀来到，以致因为它的荣耀，以色列人不能坚定地看摩西的脸，尽管它是转瞬的， [8](https://biblehub.com/2_corinthians/3-8.htm) 难道圣灵的事工不会更加荣耀吗？ [9](https://biblehub.com/2_corinthians/3-9.htm) 如果带来定罪的事工是荣耀的，那带来正义的事工就更加荣耀！
+
+[^7-10]: 见[来8](https://biblehub.com/niv/hebrews/8.htm) ， [9](https://biblehub.com/niv/hebrews/9.htm) ， [10](https://biblehub.com/niv/hebrews/10.htm) ， [罗4:11](https://biblehub.com/romans/4-11.htm) 而他领受了割礼作为一个记号，是一个他在仍未受割礼时由信心拥有正义的封印。所以那么，他是所有相信但未受割礼的人的父亲，以使正义能被归功给他们。 [西2:11](https://biblehub.com/colossians/2-11.htm) 在祂里面，你们也受了不是由人手行的割礼。当你们受基督的割礼时，你们被肉体统治的整个自我被脱去了， [12](https://biblehub.com/colossians/2-12.htm) 并在洗礼中已与祂一同被埋葬，其中你们也藉着你们的信心在上帝的工作中与祂一同被苏醒，而上帝已将祂从死人苏醒。 [林前5:7](https://biblehub.com/1_corinthians/5-7.htm) 去除旧酵，以使你们能成为一个新的无酵批次---与你们真实的一样。因为基督，我们的逾越节羔羊，已被献祭。
+
+[^7-11]: [林前10:1](https://biblehub.com/1_corinthians/10-1.htm) 弟兄姊妹，因为我不想你们对这事实无知：我们的祖先所有都在那云下，而他们所有人都穿越了那海。 [2](https://biblehub.com/1_corinthians/10-2.htm) 他们所有人都在那云中和那海中受洗归入摩西。 [3](https://biblehub.com/1_corinthians/10-3.htm) 他们所有人都吃了相同的灵粮 [4](https://biblehub.com/1_corinthians/10-4.htm) 并喝相同的灵饮；因为他们以源自相伴他们的灵岩为饮，而那岩石是基督。 [来11:13](https://biblehub.com/hebrews/11-13.htm) 所有这些子民在他们死时仍然由信心活着。他们没有领受应许的事情；他们仅看到它们，并从远处欢迎它们，坦承他们是地上的异邦人和寄居者。 [约8:56](https://biblehub.com/john/8-56.htm) 你们的父亲亚伯拉罕一想到看见我的日子就欣喜；他看见了它就高兴。”
+
+[^7-12]: [加3:7](https://biblehub.com/galatians/3-7.htm) 于是，要懂得，那些有信心的人是亚伯拉罕的子女。 [8](https://biblehub.com/galatians/3-8.htm) 经书预见了上帝会使外邦人由信心称义，并提前向亚伯拉罕宣传了福音：“万邦都会藉着你有福。” [9](https://biblehub.com/galatians/3-9.htm) 所以那些依靠信心的人与亚伯拉罕---信心之人一道有福。 [14](https://biblehub.com/galatians/3-14.htm) 祂救赎了我们，为使赐给亚伯拉罕的福分能藉着基督耶稣来到外邦人，以致由信心我们能领受圣灵的应许。
