@@ -19,5 +19,7 @@
 
 ## [第七章 论上帝与人的圣约](https://zhao-bob.github.io/WCF/chapter7)
 
+## [第八章 论中保基督](https://zhao-bob.github.io/WCF/chapter8)
+
 
 
