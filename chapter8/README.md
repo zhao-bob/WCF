@@ -41,3 +41,23 @@ Of Christ the Mediator
 [^8-13]: [路1:35](https://biblehub.com/luke/1-35.htm) 天使回答：“圣灵会临在你身上，而至高者的大能会遮蔽你。所以那要出生的圣者将被称为上帝的圣子。 [西2:9](https://biblehub.com/colossians/2-9.htm) 因为在基督里，神的所有圆满都活在身体的形式中， [罗9:5](https://biblehub.com/romans/9-5.htm) 列祖是他们的，从他们被追溯到弥赛亚的人类祖先，而他是所有之上的上帝，永远被赞美！阿门。 [罗9:5](https://biblehub.com/romans/9-5.htm) 列祖是他们的，从他们被追溯到弥赛亚的人类祖先，而祂是所有之上的上帝，永远被赞美！阿门。 [彼前3:18](https://biblehub.com/1_peter/3-18.htm) 因为基督也为罪恶受过一次难，义人为不义人，以将你们带向上帝。祂在身体里被处死，但在圣灵里被变活。 [提前3:16](https://biblehub.com/1_timothy/3-16.htm) 毋庸置疑，从真正的敬神萌发的奥秘是伟大的：祂在肉体中显现，被圣灵证实，被众天使看见，在列邦中间被传讲，在世上被信靠，在荣耀中被抬起。
 
 [^8-14]: [罗1:3](https://biblehub.com/romans/1-3.htm) 关于祂的圣子，就祂的地上的生命，祂是大卫的后代， [4](https://biblehub.com/romans/1-4.htm) 而祂藉着神圣的圣灵，由祂从死人复活，被指定为掌权的上帝的圣子：我们的主耶稣基督。 [提前2:5](https://biblehub.com/1_timothy/2-5.htm) 因为上帝和人类之间有独一的上帝和独一的中保---基督耶稣那人，
+
+## 8.3
+
+> The Lord Jesus, in His human nature thus united to the divine, was sanctified, and anointed with the Holy Spirit, above measure, having in Him all the treasures of wisdom and knowledge; in whom it pleased the Father that all fullness should dwell; to the end that, being holy, harmless, undefiled, and full of grace and truth, He might be thoroughly furnished to execute the office of a Mediator and Surety. Which office He took not unto Himself, but was thereunto called by His Father, who put all power and judgment into His hand, and gave Him commandment to execute the same.
+
+主耶稣，在祂与神性联合的人性中，无可限量地用圣灵被圣洁，并被膏抹[^8-15]，在祂里面有着智慧和知识的所有宝藏[^8-16]；这使圣父愿意所有圆满要住在祂里面[^8-17]；为那成为神圣、无害、未玷污的、并充满恩典和真理的目的[^8-18]，祂能彻底地被配备以执行中保和担保人的职务[^8-19]。此职务不是祂自行担当的，而是被祂的圣父召唤至此[^8-20]，而圣父把所有的大能和审判都放在祂手中，并赐给祂诫命以同样执行[^8-21]。
+
+[^8-15]: [诗45:7](https://biblehub.com/psalms/45-7.htm) 祢爱正义而憎恨邪恶；因此上帝，祢的上帝，通过用喜乐的油膏抹祢，已将祢安置在祢的同伴们之上。 [约3:34](https://biblehub.com/john/3-34.htm) 因为上帝已差派的那位讲上帝的言词，因为上帝无限制地将圣灵赐给祂。
+
+[^8-16]: [西2:3](https://biblehub.com/colossians/2-3.htm) 在祂里面隐藏智慧和知识的所有宝藏。
+
+[^8-17]: [西1:19](https://biblehub.com/colossians/1-19.htm) 因为上帝愿意使祂所有的圆满都栖居在祂里面，
+
+[^8-18]: [来7:26](https://biblehub.com/hebrews/7-26.htm) 这样一位大祭司真正契合我们的需要---一位神圣、无可指摘、纯洁的、从罪人分别、被提拔在诸天之上。 [约1:14](https://biblehub.com/john/1-14.htm) 圣言成了肉体并在我们中间造了祂的居所。我们已见过祂的荣耀，那独生子的荣耀，祂从圣父而来，充满恩典和真理。
+
+[^8-19]: [徒10:38](https://biblehub.com/acts/10-38.htm) 上帝如何用圣灵和大能膏抹拿撒勒的耶稣，以及祂如何四处走动行善并治愈所有在魔鬼权柄下的人，因为上帝与祂同在。 [来12:24](https://biblehub.com/hebrews/12-24.htm) 来到耶稣新的圣约的中保，并来到那所洒之血面前，而它比亚伯的血讲更善的言。 [7:22](https://biblehub.com/hebrews/7-22.htm) 因为这个誓言，耶稣已成为更好圣约的保证人。
+
+[^8-20]: [来5:4](https://biblehub.com/hebrews/5-4.htm) 而无人自行担当这荣誉，但当被上帝召唤时，祂领受了它，正如亚伦一样。 [5](https://biblehub.com/hebrews/5-5.htm) 以同样的方法，基督没有将成为大祭司的荣耀自行担当。而是上帝对祂说：“祢是我的儿子；今天我已成祢的父亲。”
+
+[^8-21]: [约5:22](https://biblehub.com/john/5-22.htm) 况且，圣父不审判一个人，而是已将所有审判授信给圣子， [太28:18](https://biblehub.com/matthew/28-18.htm) 于是耶稣来到他们面前并说：“天国中和地上的所有的权威都已被赐给我。 [徒2:36](https://biblehub.com/acts/2-36.htm) “因此，让所有以色列人都对此确信：上帝已使这位你们钉了十字架的耶稣，既是主又是弥赛亚。”
