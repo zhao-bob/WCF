@@ -61,3 +61,33 @@ Of Christ the Mediator
 [^8-20]: [来5:4](https://biblehub.com/hebrews/5-4.htm) 而无人自行担当这荣誉，但当被上帝召唤时，祂领受了它，正如亚伦一样。 [5](https://biblehub.com/hebrews/5-5.htm) 以同样的方法，基督没有将成为大祭司的荣耀自行担当。而是上帝对祂说：“祢是我的儿子；今天我已成祢的父亲。”
 
 [^8-21]: [约5:22](https://biblehub.com/john/5-22.htm) 况且，圣父不审判一个人，而是已将所有审判授信给圣子， [太28:18](https://biblehub.com/matthew/28-18.htm) 于是耶稣来到他们面前并说：“天国中和地上的所有的权威都已被赐给我。 [徒2:36](https://biblehub.com/acts/2-36.htm) “因此，让所有以色列人都对此确信：上帝已使这位你们钉了十字架的耶稣，既是主又是弥赛亚。”
+
+## 8.4
+
+> This office the Lord Jesus did most willingly undertake; which that He might discharge, He was made under the law, and did perfectly fulfil it; endured most grievous torments immediately in His soul, and most painful sufferings in His body; was crucified, and died, was buried, and remained under the power of death, yet saw no corruption. On the third day He arose from the dead, with the same body in which He suffered, with which also he ascended into heaven, and there sits at the right hand of His Father, making intercession, and shall return, to judge men and angels, at the end of the world.
+
+此职务主耶稣确实至甘愿承担[^8-22]；为使祂能履行此，祂被造在律法之下[^8-23]，并确实完美地成全了它[^8-24]；忍受了直接在祂的灵魂中至悲惨的折磨[^8-25]，以及在祂的身体中至痛苦的苦难[^8-26]；被钉十字架而死[^8-27]，被埋葬，而停留在死亡的权柄下，却未见腐败[^8-28]。在第三天，祂从死人起身[^8-29]，与祂在其中受难时相同的身体一同[^8-30]，也同它升高到天国中，并在那坐在祂圣父的右手边[^8-31]，做调解[^8-32]，并要在世界末了返回，以审判人们和众天使[^8-33]。
+
+[^8-22]: [诗40:7](https://biblehub.com/psalms/40-7.htm) 然后我说：“我在这里，我已来---经卷上所记是关于我的。 [8](https://biblehub.com/psalms/40-8.htm) 我的上帝，我渴望完成祢的意志；祢的律法在我内心。 [来10:5](https://biblehub.com/hebrews/10-5.htm) 因此，当基督进入到这世界时，祂说：“祢渴望的不是献祭和供品，而是祢为我预备了的身体； [6](https://biblehub.com/hebrews/10-6.htm) 燔祭和赎罪祭，祢不满意。 [7](https://biblehub.com/hebrews/10-7.htm) 然后我说，‘我在这里---经卷上所记是关于我的---我已来以完成祢的意志，我的上帝。’” [8](https://biblehub.com/hebrews/10-8.htm) 祂首先说，“献祭、供品、燔祭和赎罪祭，祢对它们既不渴望，也不满意”---尽管它们依照律法被奉上。 [9](https://biblehub.com/hebrews/10-9.htm) 然后祂说：“我在这里，我已来以完成祢的意志。”祂把第一个搁置以确立第二个。 [10](https://biblehub.com/hebrews/10-10.htm) 而由那意志，我们已藉着耶稣基督的身体的献祭，一次为所有，被变成神圣。 [约10:18](https://biblehub.com/john/10-18.htm) 无人从我取走它，而是我自愿放下它。我有权威放下它，也有权威再次将它拿起。这命令是我从我圣父领受的。” [腓2:8](https://biblehub.com/philippians/2-8.htm) 而被发现外表上为一个人，祂谦卑祂自己以至顺服于死亡---甚至死在十字架上！
+
+[^8-23]: [加4:4](https://biblehub.com/galatians/4-4.htm) 但当设定的时间已完全来到，上帝差派了祂的圣子，由一个女人所生，生在律法之下，
+
+[^8-24]: [太3:15](https://biblehub.com/matthew/3-15.htm) 耶稣回复：“现在让它这样；我们做这以成全所有正义是恰当的。”于是约翰赞同了。 [5:17](https://biblehub.com/matthew/5-17.htm) “不要以为我已来要废除律法或众先知；我未曾为废除它们而来，而是为成全它们。
+
+[^8-25]: [太26:37](https://biblehub.com/matthew/26-37.htm) 祂带了彼得和西庇太的两个儿子与祂一道，而祂开始忧愁与烦恼起来。 [38](https://biblehub.com/matthew/26-38.htm) 于是祂对他们说：“我的灵魂被忧愁淹没至濒临死亡。呆在这里，并与我一同保持警醒。” [路22:44](https://biblehub.com/luke/22-44.htm) 而在沉痛中，祂更加诚挚地祷告，而祂的汗水像血滴落到地面。 [太27:46](https://biblehub.com/matthew/27-46.htm) 大约下午三点，耶稣以大的嗓音呼喊：“以利，以利，拉马撒巴各大尼？”（意思是“我的上帝，我的上帝，祢为什么舍弃我？”）
+
+[^8-26]: 见[太26](https://biblehub.com/niv/matthew/26.htm) 、[27](https://biblehub.com/niv/matthew/27.htm) 。
+
+[^8-27]: [腓2:8](https://biblehub.com/philippians/2-8.htm) 而被发现外表上为一个人，祂谦卑祂自己以至顺服于死亡---甚至死在十字架上！
+
+[^8-28]: [徒2:23](https://biblehub.com/acts/2-23.htm) 这人由上帝审慎的计划和预知被交送给了你们；而你们，在邪恶人们的帮助下，将祂钉在十字架上，处死了祂。 [24](https://biblehub.com/acts/2-24.htm) 但上帝将祂从死人苏醒，从死亡的剧痛中释放祂，因为死亡无法握住祂。 [27](https://biblehub.com/acts/2-27.htm) 因为祢不会将我抛弃到死人的辖域，祢不会让祢的圣者见到朽坏。 [13:37](https://biblehub.com/acts/13-37.htm) 但上帝从死人苏醒的那一位未见到朽坏。 [罗6:9](https://biblehub.com/romans/6-9.htm) 因为我们知道，基督既然从死人被苏醒，祂就不可能再死；死亡不再对祂做主。
+
+[^8-29]: [林前15:3](https://biblehub.com/1_corinthians/15-3.htm) 对于我所领受的，我传给你们自今最重要的是：按照经书基督为我们的罪恶而死， [4](https://biblehub.com/1_corinthians/15-4.htm) 祂被埋葬，而按照经书祂在第三天被苏醒， [5](https://biblehub.com/1_corinthians/15-5.htm) 并且祂向矶法显现，而后向十二门徒显现。
+
+[^8-30]: [约20:25](https://biblehub.com/john/20-25.htm) 所以其他门徒告诉他：“我们已看见主！”但他对他们说：“除非我看到祂手上的钉痕，并把我的手指放在那钉子的地方，而且把我的手放进他的肋旁，否则我不会相信。” [27](https://biblehub.com/john/20-27.htm) 然后祂对多马说：“把你的手指放在这；看看我的手。伸出你的手并把它放进我的肋旁。停止怀疑，而要相信。”
+
+[^8-31]: [可16:19](https://biblehub.com/mark/16-19.htm) 主耶稣已对他们讲完后，祂被升到天国中，并且祂坐在上帝的右手边。
+
+[^8-32]: [罗8:34](https://biblehub.com/romans/8-34.htm) 于是谁是定罪的那位？没有人。死了的基督耶稣---不仅如此，祂向生命被苏醒了---在上帝的右手边，并也在为我们做调解。 [来9:24](https://biblehub.com/hebrews/9-24.htm) 因为基督没有进入一个用人手造的，仅是真正的那个复制的圣殿；祂进入了天国本身，现在在上帝的临在中为我们显现。 [7:25](https://biblehub.com/hebrews/7-25.htm) 因此，祂有能力完备拯救那些藉着祂达到上帝的人，因为祂总是活着为他们调解。
+
+[^8-33]: [罗14:9](https://biblehub.com/romans/14-9.htm) 正是为这个原因，基督死了并回归至生命，以致祂能既是死人也是活人的主。 [10](https://biblehub.com/romans/14-10.htm) 那么你，为什么你评判你的弟兄或姊妹呢？或者为什么你以轻蔑对待他们？而我们所有人都会站在上帝的审判席前。 [徒1:11](https://biblehub.com/acts/1-11.htm) “加利利的人们，”他们说，“你们为什么站在这里看寻天空呢？这同一位耶稣，已从你们那被升进天国，会以你们看到祂进入天国同样的方法回来。” [10:42](https://biblehub.com/acts/10-42.htm) 祂命令我们传讲给子民，并作祂是上帝指定作活人和死人的审判者的那一位的见证。 [太13:40](https://biblehub.com/matthew/13-40.htm) “如杂草被拔起并在火中燃烧，在时代的末了也会是如此。 [41](https://biblehub.com/matthew/13-41.htm) 人子会派出祂的众天使，而他们会将导致罪恶的一切和作恶的所有人从祂的国度中铲除。 [42](https://biblehub.com/matthew/13-42.htm) 他们会把他们扔进炽烧的熔炉里，在那里会有哭泣和咬牙切齿。 [犹1:6](https://biblehub.com/jude/1-6.htm) 而那些没有保持他们权威地位，而是抛弃了他们恰当居所的天使---祂已将这些人拘留在黑暗中，用永久的锁链束缚，为在伟大日子的审判。 [彼后2:4](https://biblehub.com/2_peter/2-4.htm) 因为如果上帝在天使们犯罪时不轻饶他们，而是将他们送到地狱，为审判将他们置于黑暗的锁链中拘禁；

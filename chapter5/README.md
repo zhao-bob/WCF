@@ -26,7 +26,7 @@ Of Providence
 
 > Although, in relation to the foreknowledge and decree of God, the first Cause, all things come to pass immutably, and infallibly; yet, by the same providence, He orders them to fall out, according to the nature of second causes, either necessarily, freely, or contingently.
 
-虽然，万物与上帝的预知和预旨，第一因关联，都不变地，且无谬地来临[^5-8]；然而，由相同的神意，祂排定它们按照第二因的本性或必要地、自由地或偶然地脱离[^5-9]。
+虽然，万物与上帝的预知和预旨，与第一因关联，都不变地，且无谬地来临[^5-8]；然而，由相同的神意，祂排定它们按照第二因的本性或必要地、自由地或偶然地脱离[^5-9]。
 
 [^5-8]: [徒2:23](https://biblehub.com/acts/2-23.htm) 这人由上帝审慎的计划和预知被交送给了你们；而你们，在邪恶人们的帮助下，将祂钉在十字架上，处死了祂。
 
