@@ -109,3 +109,13 @@ Of Christ the Mediator
 虽然救赎工作没有实际上被基督运行直到祂言成肉身之后，但其中德性、效力和益处，从世界的起初在所有时代中相继地被交通给了选民，祂在那些应许、预表和献祭中，并被它们启示，并被表示为要击伤大蛇的头的女人的苗裔；和从世界的起初被残杀的羔羊；昨天和今天且永远是一样的[^8-36]。
 
 [^8-36]: [加4:4](https://biblehub.com/galatians/4-4.htm) 但当设定的时间已完全来到，上帝差派了祂的圣子，由一个女人所生，生在律法之下， [5](https://biblehub.com/galatians/4-5.htm) 为救赎那些在律法之下的人，以使我们能为儿子名分领受收养。 [创3:15](https://biblehub.com/genesis/3-15.htm) 而我会在你和那女人之间，并在你的孩子和她的孩子之间结仇。他会击碎你的头，而你会打伤他的脚跟。 [启13:8](https://biblehub.com/revelation/13-8.htm) 地上所有的居民都会敬拜这猛兽---所有那些名字未曾被写在羔羊的生命书上的，而这羔羊是从世界创造就被残杀的。 [来13:8](https://biblehub.com/hebrews/13-8.htm) 耶稣基督昨天和今天且永远是一样的。
+
+## 8.7
+
+> Christ, in the work of mediation, acts according to both natures, by each nature doing that which is proper to itself; yet, by reason of the unity of the person, that which is proper to one nature is sometimes in Scripture attributed to the person denominated by the other nature.
+
+基督，在中保的工作中，按照两种本性行事，由各个本性做它自己恰当的事[^8-37]；然而，由其位格合一的原因，一种本性在经书中有时被归属为被另一种本性命名的位格是恰当的[^8-38]。
+
+[^8-37]: [来9:14](https://biblehub.com/hebrews/9-14.htm) 祂藉着永恒的圣灵，将祂自己无瑕地对上帝奉上，那么基督的血就将更多地从通往死亡的作为中洗净我们的良心，以致我们能侍奉永活的上帝！ [彼前3:18](https://biblehub.com/1_peter/3-18.htm) 因为基督也为罪恶受过一次难，义人为不义人，以将你们带向上帝。祂在身体里被处死，但在圣灵里被变活。
+
+[^8-38]: [徒20:28](https://biblehub.com/acts/20-28.htm) 要监察你们自己和所有羊群，而圣灵已使你们成为他们的督察。要成为上帝教会的牧羊人，这是祂用祂自身的血买的。 [约3:13](https://biblehub.com/john/3-13.htm) 过往没有人走进天国，除了从天国来的那一位---人子。 [约壹3:16](https://biblehub.com/1_john/3-16.htm) 这是我们如何知道爱是什么的：耶稣基督为我们放下祂的生命。而我们应该为我们的弟兄姊妹放下我们的生命。
