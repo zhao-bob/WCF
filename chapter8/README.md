@@ -119,3 +119,19 @@ Of Christ the Mediator
 [^8-37]: [来9:14](https://biblehub.com/hebrews/9-14.htm) 祂藉着永恒的圣灵，将祂自己无瑕地对上帝奉上，那么基督的血就将更多地从通往死亡的作为中洗净我们的良心，以致我们能侍奉永活的上帝！ [彼前3:18](https://biblehub.com/1_peter/3-18.htm) 因为基督也为罪恶受过一次难，义人为不义人，以将你们带向上帝。祂在身体里被处死，但在圣灵里被变活。
 
 [^8-38]: [徒20:28](https://biblehub.com/acts/20-28.htm) 要监察你们自己和所有羊群，而圣灵已使你们成为他们的督察。要成为上帝教会的牧羊人，这是祂用祂自身的血买的。 [约3:13](https://biblehub.com/john/3-13.htm) 过往没有人走进天国，除了从天国来的那一位---人子。 [约壹3:16](https://biblehub.com/1_john/3-16.htm) 这是我们如何知道爱是什么的：耶稣基督为我们放下祂的生命。而我们应该为我们的弟兄姊妹放下我们的生命。
+
+## 8.8
+
+> To all those for whom Christ has purchased redemption, He does certainly and effectually apply and communicate the same; making intercession for them, and revealing unto them, in and by the word, the mysteries of salvation; effectually persuading them by His Spirit to believe and obey, and governing their hearts by His word and Spirit; overcoming all their enemies by His almighty power and wisdom, in such manner, and ways, as are most consonant to His wonderful and unsearchable dispensation.
+
+对所有那些基督已为之赎取救赎的人，祂确实肯定并有效地施用和交通相同的事情[^8-39]；为他们做调解[^8-40]，并在圣言中并由圣言，向他们启示拯救的奥秘[^8-41]；由祂的圣灵有效地说服他们相信和顺服，并由祂的圣言和圣灵治理他们的内心[^8-42]；由祂万军之大能与智慧，胜过他们所有的敌人，以这样的方式，和方法，以致与祂奇妙且不可测的实施至谐[^8-43]。
+
+[^8-39]: [约6:37](https://biblehub.com/john/6-37.htm) 所有那些圣父赐给我的人，会到我这里来，而无论谁到我这里来，我绝不会赶走。 [39](https://biblehub.com/john/6-39.htm) 而这是差派我的祂的意志，以使所有那些祂已所赐给我的人我不会遗失一个，而是在末日将他们苏醒。 [10:15](https://biblehub.com/john/10-15.htm) 正如圣父知道我而我知道圣父---而我为羊放下我的生命。 [16](https://biblehub.com/john/10-16.htm) 我还有其他不属于这个羊圈的羊。我也必须带上他们。他们也会听我的话音，且必只有一个羊群和一个牧羊人。
+
+[^8-40]: [约壹2:1](https://biblehub.com/1_john/2-1.htm) 我亲爱的孩子们，我将这写给你们，为使你们不会犯罪。但如果任何人确实犯罪，我们有一位的辩护者与圣父同在---义者耶稣基督。 [2](https://biblehub.com/1_john/2-2.htm) 祂是为我们罪恶的赎罪的献祭，而且不仅为我们的罪恶，也为整个世界的罪恶。 [罗8:34](https://biblehub.com/romans/8-34.htm) 于是谁是定罪的那位？没有人。死了的基督耶稣---不仅如此，祂向生命被苏醒了---在上帝的右手边，并也在为我们做调解。
+
+[^8-41]: [约15:13](https://biblehub.com/john/15-13.htm) 无人有比这更伟大的爱：为一个人的朋友们放下一个人的生命。 [15](https://biblehub.com/john/15-15.htm) 我不再称你们为仆人，因为一个仆人不知道他的主人的业务。取而代之，我已称你们为朋友，因为我从我圣父那学会的一切，我已向你们揭晓。 [弗1:7](https://biblehub.com/ephesians/1-7.htm) 在祂里面，我们藉着祂的血得到救赎，罪恶的饶恕，依照上帝恩典的丰富 [8](https://biblehub.com/ephesians/1-8.htm) 充沛赐予我们。以所有的智慧和理解， [9](https://biblehub.com/ephesians/1-9.htm) 祂按照祂在基督里立定了的祂的美意，向我们揭晓了祂意志的奥秘， [约17:6](https://biblehub.com/john/17-6.htm) “我已将祢启示给那些祢出自世界赐给我的人。他们是祢的；祢将他们赐给了我，而他们已遵守祢的圣言。
+
+[^8-42]: [约14:16](https://biblehub.com/john/14-16.htm) 我会企求圣父，而祂会赐给你们另一位辩护者来帮助你们，并永远与你们同在--- [来12:2](https://biblehub.com/hebrews/12-2.htm) 让我们定睛在耶稣上，祂是信心的先驱者和完美者。为了摆在祂面前的喜乐，祂忍受了十字架，蔑视它的耻辱，并定坐在上帝宝座的右手边。 [林后4:13](https://biblehub.com/2_corinthians/4-13.htm) 经上记着：“我相信了；因此我已讲话。”既然我们有那信心相同的灵，我们也相信而因此讲话， [罗8:9](https://biblehub.com/romans/8-9.htm) 然而，如果上帝的圣灵的确住在你们里面，你们就不是在肉体的辖域中，而是在圣灵的辖域中。如果任何人没有基督的圣灵，他们就不属于基督。 [14](https://biblehub.com/romans/8-14.htm) 因为那些被上帝的圣灵引导的人是上帝的子女。 [15:18](https://biblehub.com/romans/15-18.htm) 除了基督借着我已成就的事，我不会冒昧谈到在由我已说和已完成的带领外邦人顺服上帝上的任何事情--- [19](https://biblehub.com/romans/15-19.htm) 而是由神迹奇事的大能，藉着上帝圣灵的大能。因此，从耶路撒冷一路转到以利哩古，我已充分宣布了基督的福音。 [约17:17](https://biblehub.com/john/17-17.htm) 由真理圣洁他们；祢的圣言是真理。
+
+[^8-43]: [诗110:1](https://biblehub.com/psalms/110-1.htm) 大卫的诗篇。耶和华对我主说：“坐在我的右手边，直到我为祢的脚将祢的敌人们做成脚凳。” [林前15:25](https://biblehub.com/1_corinthians/15-25.htm) 因为祂必须作王，直到祂已将祂所有的敌人踩在祂的脚下。 [26](https://biblehub.com/1_corinthians/15-26.htm) 被摧毁的最后的敌人是死亡。 [玛4:2](https://biblehub.com/malachi/4-2.htm) 但对崇敬我的名的你们，正义的太阳会升起，在它的光线中伴着治愈。而你们会像饱足的牛犊出去嬉戏。 [3](https://biblehub.com/malachi/4-3.htm) 然后你们会践踏恶人；在我行动的那天，他们将成为你们脚鞋底的灰烬，”万军之耶和华说。 [西2:15](https://biblehub.com/colossians/2-15.htm) 而已卸除能天使和权威的武装，祂用十字架战胜他们，使他们公开示丑。

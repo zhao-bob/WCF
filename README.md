@@ -21,5 +21,8 @@
 
 ## [第八章 论中保基督](https://zhao-bob.github.io/WCF/chapter8)
 
+## [第九章 论自由意志](https://zhao-bob.github.io/WCF/chapter8)
+
+
 
 
