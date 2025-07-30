@@ -45,3 +45,11 @@ Of Free Will
 [^9-9]: [腓2:13](https://biblehub.com/philippians/2-13.htm) 因为是在你们里面运行的上帝在愿想和行动，为了成全祂善的旨意。 [罗6:18](https://biblehub.com/romans/6-18.htm) 你们已经从罪恶中被解放，并已成为正义的奴仆。 [22](https://biblehub.com/romans/6-22.htm) 但现在你们已经从罪恶中被解放，并已成为上帝的奴仆，你们收割的益处通往神圣，且结果是永生。
 
 [^9-10]: [加5:17](https://biblehub.com/galatians/5-17.htm) 因为肉体渴望与圣灵相悖的，而圣灵渴望与肉体相悖的。它们相互冲突，以致你们不会做无论任何你们想要的。 [罗7:15](https://biblehub.com/romans/7-15.htm) 我不理解我所做的。因为我想去做的我不做，但我做我所厌恶的。 [18](https://biblehub.com/romans/7-18.htm) 因为我知道，善本身并不栖居在我里面，也就是，在我罪恶的本性里。因为我有做那善事的渴望，但我不能将其实行。 [19](https://biblehub.com/romans/7-19.htm) 因为我不做那我想去做的善，而做我不想做的恶---我保持不断在做这。 [21](https://biblehub.com/romans/7-21.htm) 所以我发现这条律法在做工：虽然我想去行善，但邪恶正在那里与我一同。 [23](https://biblehub.com/romans/7-23.htm) 但我晓得另一条律法在我里面做工，向我心灵的律法开战，并使我成为在我里面做工的罪恶律法的囚徒。
+
+## 9.5
+
+> The will of man is made perfectly and immutably free to do good alone in the state of glory only.
+
+惟有在荣耀的状态中，人的意志才被变成完美且不变地自由以独自行善[^9-11]。
+
+[^9-11]: [弗4:13](https://biblehub.com/ephesians/4-13.htm) 直到我们所有人在信心中并在上帝圣子的知识上到达合一，而变得成熟，达成基督圆满的整个度量。 [来12:23](https://biblehub.com/hebrews/12-23.htm) 来到长子的教会，他们的名字被记在天国中。你们已经来到上帝，万物的审判者面前，来到被臻善的义人的灵面前， [约壹3:2](https://biblehub.com/1_john/3-2.htm) 亲爱的朋友们，现在我们是上帝的子女，而我们会是什么还未被揭晓。但我们知道当基督显现时，我们应像祂一样，因为我们会看见祂如祂所是。 [犹1:24](https://biblehub.com/jude/1-24.htm) 归向祂，祂有能力使你们避开跌倒，并无过错而以极大的喜乐将你们在祂荣耀的临在前呈现---
