@@ -23,3 +23,15 @@ Of Effectual Calling
 [^10-7]: [弗1:19](https://biblehub.com/ephesians/1-19.htm) 和祂对我们这些相信的人的无比伟大的大能。那大能与强大的力量是相同的 [约6:44](https://biblehub.com/john/6-44.htm) “没有人能到我这里来，除非差派我的圣父牵引他们，而我会在末日将他们唤起。 [45](https://biblehub.com/john/6-45.htm) 先知书上记着：‘他们所有人都会被上帝教导’。每一个已听见圣父并向祂学习的人，都到我这里来。
 
 [^10-8]: [歌1:4](https://biblehub.com/songs/1-4.htm) 将我与你一同带走---让我们赶快！让国王将我带入他的内室。我们在你里面欢欣和喜悦；我们将赞美你的爱比酒更多。他们惟有爱慕你才是正确的！ [诗110:3](https://biblehub.com/psalms/110-3.htm) 祢的部队在祢作战的那天将心甘情愿。身着神圣的光辉，祢的年轻人将像来自清晨子宫的露水一样到祢这里来。 [约6:37](https://biblehub.com/john/6-37.htm) 所有那些圣父赐给我的人，会到我这里来，而无论谁到我这里来，我绝不会赶走。 [罗6:16](https://biblehub.com/romans/6-16.htm) 难道你们不知道，当你们向某位奉上你们自己作顺服的奴仆时，你们就是你们顺服的那位的奴隶---不管你们是通往死亡的罪恶的奴隶，还是通往正义的顺服的奴仆？ [17](https://biblehub.com/romans/6-17.htm) 但感谢归于上帝，尽管你们惯常是罪恶的奴隶，但你们已达到从你们的内心顺服现在已宣称你们忠心的教导模式。 [18](https://biblehub.com/romans/6-18.htm) 你们已经从罪恶中被解放，并已成为正义的奴仆。
+
+## 10.2
+
+> This effectual call is of God's free and special grace alone, not from anything at all foreseen in man, who is altogether passive therein, until, being quickened and renewed by the Holy Spirit, he is thereby enabled to answer this call, and to embrace the grace offered and conveyed in it.
+
+此有效召唤是惟独属于上帝自由和特殊的恩典，根本不源自对人预见的任何东西[^10-9]，人在其中是完完全全被动的，直到，被圣灵复苏并更新[^10-10]，他从而被赋能以响应此召唤，并拥抱在其中供应和传达的恩典[^10-11]。
+
+[^10-9]: [提后1:9](https://biblehub.com/2_timothy/1-9.htm) 祂已拯救我们，并召唤了我们向神圣的生命---不是因为任何我们已完成的，而是因为祂自身的旨意和恩典。这恩典在时间起初之前在基督耶稣里被赐给了我们， [多3:4](https://biblehub.com/titus/3-4.htm) 但当我们的救主上帝的温良和爱显现了时， [5](https://biblehub.com/titus/3-5.htm) 祂拯救了我们，不是因为我们已完成的正义的事情，而是因为祂的宽恕。祂藉着再生的洗涤和由圣灵的更新拯救了我们， [弗2:4](https://biblehub.com/ephesians/2-4.htm) 但因为祂为我们的大爱，富于宽恕的上帝， [5](https://biblehub.com/ephesians/2-5.htm) 即使当我们在违犯中死了时，祂使我们与基督一同变活---你们已被拯救是由恩典。 [8](https://biblehub.com/ephesians/2-8.htm) 因为你们已被拯救是由恩典，藉着信心---而这不源自你们自己，它是上帝的恩赐--- [9](https://biblehub.com/ephesians/2-9.htm) 不是由功劳，所以无人能夸耀。 [罗9:11](https://biblehub.com/romans/9-11.htm) 然而，在双胞胎出生或已做任何好事或坏事之前---为使上帝在遴选中的旨意能贯彻：
+
+[^10-10]: [林前2:14](https://biblehub.com/1_corinthians/2-14.htm) 没有圣灵同在的个体不接受从上帝的圣灵而来的东西，而认为它们愚蠢，且不能理解它们，因为它们惟有藉着圣灵辨别。 [罗8:7](https://biblehub.com/romans/8-7.htm) 被肉体支配的心灵与上帝为敌；它即不服从上帝的律法，也不能如此做。 [弗2:5](https://biblehub.com/romans/8-7.htm) 即使当我们在违犯中死了时，祂使我们与基督一同变活---你们已被拯救是由恩典。
+
+[^10-11]: [约6:37](https://biblehub.com/john/6-37.htm) 所有那些圣父赐给我的人，会到我这里来，而无论谁到我这里来，我绝不会赶走。 [结36:37](https://biblehub.com/ezekiel/36-37.htm) “这是主宰耶和华说的：我会再一次屈从以色列的恳请，并为他们做这：我会使他们的子民像羊一样众多， [约5:25](https://biblehub.com/john/5-25.htm) 我实实在在告诉你们，一个时期正在到来，而现在当死人将听到上帝圣子的话音，而那些听到的人将存活时，就已到来。
