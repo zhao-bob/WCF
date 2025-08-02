@@ -35,3 +35,15 @@ Of Effectual Calling
 [^10-10]: [林前2:14](https://biblehub.com/1_corinthians/2-14.htm) 没有圣灵同在的个体不接受从上帝的圣灵而来的东西，而认为它们愚蠢，且不能理解它们，因为它们惟有藉着圣灵辨别。 [罗8:7](https://biblehub.com/romans/8-7.htm) 被肉体支配的心灵与上帝为敌；它即不服从上帝的律法，也不能如此做。 [弗2:5](https://biblehub.com/romans/8-7.htm) 即使当我们在违犯中死了时，祂使我们与基督一同变活---你们已被拯救是由恩典。
 
 [^10-11]: [约6:37](https://biblehub.com/john/6-37.htm) 所有那些圣父赐给我的人，会到我这里来，而无论谁到我这里来，我绝不会赶走。 [结36:37](https://biblehub.com/ezekiel/36-37.htm) “这是主宰耶和华说的：我会再一次屈从以色列的恳请，并为他们做这：我会使他们的子民像羊一样众多， [约5:25](https://biblehub.com/john/5-25.htm) 我实实在在告诉你们，一个时期正在到来，而现在当死人将听到上帝圣子的话音，而那些听到的人将存活时，就已到来。
+
+## 10.3
+
+> Elect infants, dying in infancy, are regenerated, and saved by Christ, through the Spirit, who works when, and where, and how He pleases: so also are all other elect persons who are incapable of being outwardly called by the ministry of the Word.
+
+死在幼年的选民婴儿，藉着圣灵，被基督重生并拯救[^10-12]，圣灵以祂愿意的时间，地点和方式运行[^10-13]：所有其他选民个体也是如此，他们无能外在地被圣言的事工召唤[^10-14]。
+
+[^10-12]: [路18:15](https://biblehub.com/luke/18-15.htm) 民众还带着婴孩给耶稣，为祂把祂的双手放在他们上。门徒们看见这，就训斥他们。 [16](https://biblehub.com/luke/18-16.htm) 而耶稣召唤这些孩子到祂面前并说：“让这些小孩子到我这里来，而不要阻碍他们，因为上帝的国度属于这些像这样的人。 [徒2:38](https://biblehub.com/acts/2-38.htm) 彼得回复：“你们每一个都要奉耶稣基督的名，为你们的罪恶的饶恕，悔改并受洗。你们就会领受圣灵的恩赐。 [39](https://biblehub.com/acts/2-39.htm) 这应许是为你们和你们的子女的，并为所有远方的人的---为主我们的上帝将召唤的所有人。 [约3:3](https://biblehub.com/john/3-3.htm) 耶稣回复：“我实实在在告诉你们，除非他们再次出生，无人能看见上帝的国度。 [5](https://biblehub.com/john/3-5.htm) 耶稣回答：“我实实在在告诉你们，除非他们从水和圣灵而生，无人能进入上帝的国度。 [约壹5:12](https://biblehub.com/1_john/5-12.htm) 无论谁有圣子，谁就有生命；无论谁没有上帝的圣子，谁就没有生命。 [罗8:9](https://biblehub.com/romans/8-9.htm) 然而，如果上帝的圣灵的确住在你们里面，你们就不是在肉体的辖域中，而是在圣灵的辖域中。如果任何人没有基督的圣灵，他们就不属于基督。
+
+[^10-13]: [约3:8](https://biblehub.com/john/3-8.htm) 风吹向无论任何它愿意的地方。你听见它的声音，但你不能辨出它从哪里来，或它正往哪里去。对每个从圣灵生的，都是如此。
+
+[^10-14]: [约壹5:12](https://biblehub.com/1_john/5-12.htm) 无论谁有圣子，谁就有生命；无论谁没有上帝的圣子，谁就没有生命。 [徒4:12](https://biblehub.com/acts/4-12.htm) 在其他任何人中找不到拯救，因为天国之下没有别的名被赐给人类，而我们必须被它拯救。
