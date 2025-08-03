@@ -47,3 +47,19 @@ Of Effectual Calling
 [^10-13]: [约3:8](https://biblehub.com/john/3-8.htm) 风吹向无论任何它愿意的地方。你听见它的声音，但你不能辨出它从哪里来，或它正往哪里去。对每个从圣灵生的，都是如此。
 
 [^10-14]: [约壹5:12](https://biblehub.com/1_john/5-12.htm) 无论谁有圣子，谁就有生命；无论谁没有上帝的圣子，谁就没有生命。 [徒4:12](https://biblehub.com/acts/4-12.htm) 在其他任何人中找不到拯救，因为天国之下没有别的名被赐给人类，而我们必须被它拯救。
+
+## 10.4
+
+> Others, not elected, although they may be called by the ministry of the Word, and may have some common operations of the Spirit, yet they never truly come unto Christ, and therefore cannot be saved: much less can men, not professing the Christian religion, be saved in any other way whatsoever, be they never so diligent to frame their lives according to the light of nature, and the laws of that religion they do profess. And to assert and maintain that they may, is very pernicious, and to be detested.
+
+没被拣选的其他人，尽管他们也许会被圣言的事工召唤[^10-15]，并也许有一些圣灵的通常运作[^10-16]，但他们从未真正达到基督，而因此不能被拯救[^10-17]：更不用说不宣信基督教的人们，能以无论任何其他方法被拯救，他们也从未能那么勤勉地按照本性之光和那他们确实宣信的宗教的律法来构架他们的生活[^10-18]。而断言并维护他们可能，是非常有危害的，并且要被憎厌[^10-19]。
+
+[^10-15]: [太22:14](https://biblehub.com/matthew/22-14.htm) “因为许多人被邀请，但很少的人被拣选。”
+
+[^10-16]: [太7:22](https://biblehub.com/matthew/7-22.htm) 许多人会在那天对我说：‘主，主，我们难道不是奉祢的名说神启、奉祢的名驱除邪灵，并奉祢的名行许多奇迹吗？’ [13:20](https://biblehub.com/matthew/13-20.htm) 落在岩石地面上的种子是指某人听到这言并立即欢喜地领受它。 [21](https://biblehub.com/matthew/13-21.htm) 但因为他们没有根，他们仅延续短的时间。当烦恼或迫害因这言而来时，他们就快速落散。 [来6:4](https://biblehub.com/hebrews/6-4.htm) 这对那些人是不可能的，他们已被一次启迪，已尝天国的恩赐，已有份于圣灵， [5](https://biblehub.com/hebrews/6-5.htm) 并已尝上帝圣言的善和将到来时代的异能
+
+[^10-17]: [约6:64](https://biblehub.com/john/6-64.htm) 但你们有些人不相信。”因为耶稣从起初已知道他们有哪些不相信，并且谁会出卖祂。 [65](https://biblehub.com/john/6-65.htm) 祂继续说：“这是为什么我告诉过你们，除非圣父已赋能他们，无人能到我这里来。 [66](https://biblehub.com/john/6-66.htm) 从这时起，祂许多的门徒折回，而不再跟随祂。 [8:24](https://biblehub.com/john/8-24.htm) 我告诉了你们，你们会死在你们的罪恶中；如果你们不相信我是祂，你们就将真确地死在你们的罪恶中。”
+
+[^10-18]: [徒5:12](https://biblehub.com/acts/4-12.htm) 在其他任何人中找不到拯救，因为天国之下没有别的名被赐给人类，而我们必须被它拯救。 [约14:6](https://biblehub.com/john/14-6.htm) 耶稣回答：“我是道路、真理和生命。除非藉着我，就无人到圣父这里来。 [弗2:12](https://biblehub.com/ephesians/2-12.htm) 请记住，在那时你们从基督分离，被排除在以色列中的公民身份，而是对应许之约的异邦人，在这世界没有希望也不与上帝同在。 [约4:22](https://biblehub.com/john/4-22.htm) 你们撒马利亚人敬拜你们不知道的；我们敬拜我们确实知道的，因为拯救源自犹太人。 [17:3](https://biblehub.com/john/17-3.htm) 现在这是永生：他们认识祢，惟一永真的上帝，和祢已差派的耶稣基督。
+
+[^10-19]: [约贰1:9](https://biblehub.com/2_john/1-9.htm) 任何跑过头，而不持续在基督教导中的人，就没有上帝；无论谁持续在这教导中，谁就既有圣父又有圣子。 [10](https://biblehub.com/2_john/1-10.htm) 如果任何人到你们这里来，却不带这教导，就不要把他们接进你们家室，或欢迎他们。 [11](https://biblehub.com/2_john/1-11.htm) 任何欢迎他们的人都有份于他们邪恶的功劳。 [林前16:22](https://biblehub.com/1_corinthians/16-22.htm) 如果任何人不爱主，就让那个体受咒诅！主，来吧！ [加1:6](https://biblehub.com/galatians/1-6.htm) 令我震惊的是，你们竟如此快速地离弃召唤了你们活在基督恩典里的那位，而正转向一个不同的福音--- [7](https://biblehub.com/galatians/1-7.htm) 而这的确根本不是福音。证据确凿地，有些人将你们扔入混乱，并在试图曲解基督的福音。 [8](https://biblehub.com/galatians/1-8.htm) 但即使我们或一个从天国来的天使要传一种福音，却不是我们传给了你们的那个，要让他们在上帝的咒诅之下！
