@@ -6,7 +6,7 @@ Of Christ the Mediator
 
 > It pleased God, in His eternal purpose, to choose and ordain the Lord Jesus, His only begotten Son, to be the Mediator between God and man, the Prophet, Priest, and King, the Head and Savior of His Church, the Heir of all things, and Judge of the world: unto whom He did from all eternity give a people, to be His seed, and to be by Him in time redeemed, called, justified, sanctified, and glorified.
 
-这使上帝愿意，在祂的永恒旨意中，拣选并按立主耶稣，祂的惟一受生子，作为上帝与人之间的中保[^8-1]，先知[^8-2]，祭司[^8-3]，和国王[^8-4]，祂的教会的元首和救主[^8-5]，万物的继承者[^8-6]，和世界的审判者[^8-7]：祂确实从所有永恒赐给了祂一个族民，为祂的苗裔[^8-8]，并要及时被祂救赎、召唤、称义、圣洁和荣耀[^8-9]。
+这使上帝愿意，在祂的永恒旨意中，拣选并按立主耶稣，祂的惟一受生子，作为上帝与人之间的中保[^8-1]，先知[^8-2]，祭司[^8-3]，和国王[^8-4]，祂的教会的元首和救主[^8-5]，万物的继承者[^8-6]，和世界的审判者[^8-7]：祂确实从所有永恒赐给了祂一个民族，为祂的苗裔[^8-8]，并要及时被祂救赎、召唤、称义、圣洁和荣耀[^8-9]。
 
 [^8-1]: [赛42:1](https://biblehub.com/isaiah/42-1.htm) “我的仆人在这，是我高举的，我拣选的，我所喜悦的那位；我会把我的圣灵放置在祂上，而祂要为列邦带来公义。 [彼前1:19](https://biblehub.com/1_peter/1-19.htm) 但以基督，一只无瑕疵或缺陷的羔羊的宝血。 [20](https://biblehub.com/1_peter/1-20.htm) 祂在世界创造之前就被拣选了，但为你们的缘故，祂在这些末后的时期被启示了。 [约3:16](https://biblehub.com/john/3-16.htm) 因为上帝如此爱这世界，以致祂将祂的独生子献出，以致无论谁信仰祂非但不会灭亡，而且拥有永生。 [提前2:5](https://biblehub.com/1_timothy/2-5.htm) 因为上帝和人类之间有独一的上帝和独一的中保---基督耶稣那人，
 
