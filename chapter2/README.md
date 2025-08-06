@@ -97,7 +97,7 @@ Of God, and of the Holy Trinity
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>“Holy Ghost”在本文被翻译为“圣魂”，“Holy Spirit”或“Spirit”则翻译为“圣灵”。“Holy Ghost”指的是三位一体中第三位位格的本体，而“Holy Spirit”则是指该位格作用在外物上的上帝之灵（The Spirit of God）。而现在的翻译一般不对这两个词进行区分，而均翻译为“圣灵”。</font>
 
-[^2-38]: [约壹5:7](https://biblehub.com/1_john/5-7.htm) 因为有三位作证： [太3:16](https://biblehub.com/matthew/3-16.htm) 耶稣一受洗，祂就从水里上来。就在那一瞬间，天国被打开，而祂看见上帝的灵像一只鸽子降落，并飞落在祂身上。 [17](https://biblehub.com/matthew/3-17.htm) 而一个话音源自天国说：“这是我的儿子，我所爱的；我对祂十分满意。” [28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗， [林后13:14](https://biblehub.com/2_corinthians/13-14.htm) 愿主耶稣基督的恩典、上帝的爱和圣灵的团契与你们所有人同在。
+[^2-38]: [约壹5:7](https://biblehub.com/1_john/5-7.htm) 因为有三位作证： [太3:16](https://biblehub.com/matthew/3-16.htm) 耶稣一受洗，祂就从水里上来。就在那一瞬间，天国被打开，而祂看见上帝的灵像一只鸽子降落，并飞落在祂身上。 [17](https://biblehub.com/matthew/3-17.htm) 而一个话音源自天国说：“这是我的圣子，我所爱的；我对祂十分满意。” [28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗， [林后13:14](https://biblehub.com/2_corinthians/13-14.htm) 愿主耶稣基督的恩典、上帝的爱和圣灵的团契与你们所有人同在。
 
 [^2-39]: [约1:14](https://biblehub.com/john/1-14.htm) 圣言成了肉体并在我们中间造了祂的居所。我们已见过祂的荣耀，那独生子的荣耀，祂从父而来，充满恩典和真理。 [15](https://biblehub.com/john/1-15.htm) 约翰作涉及祂的见证。他疾呼，说：“这是在我说‘祂在我之后来，却已超越我，因为祂早在我之前。’时，我谈及的那一位”）
 

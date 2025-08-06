@@ -23,3 +23,19 @@ Of Justification
 [^11-4]: [约1:12](https://biblehub.com/john/1-12.htm) 然而，对所有确实领受了祂的人，对那些信仰祂名的人，祂赐了权利以成为上帝子女--- [罗3:28](https://biblehub.com/romans/3-28.htm) 因为我们维护个体是除去律法的功劳由信心被称义的。 [5:1](https://biblehub.com/romans/5-1.htm) 因此，既然我们已藉着信心被称义，我们就藉着我们的主耶稣基督同上帝有和平，
 
 [^11-5]: [雅2:17](https://biblehub.com/james/2-17.htm) 以相同的方法，信心独自，如果它不被行为相伴，就是死的。 [22](https://biblehub.com/james/2-22.htm) 你们看到祂的信心和祂的行为在一起工作，且祂的信心由祂做的而变得完备。 [26](https://biblehub.com/james/2-26.htm) 如同没有灵的身体是死的，没有事迹的信心也是死的。 [加5:6](https://biblehub.com/galatians/5-6.htm) 因为在基督耶稣里，割礼与无割礼均无任何价值。惟一算数的事情是信心，它藉着爱表达它自己。
+
+## 11.3
+
+> Christ, by His obedience and death, did fully discharge the debt of all those that are thus justified, and did make a proper, real and full satisfaction to His Father's justice in their behalf. Yet, in as much as He was given by the Father for them; and His obedience and satisfaction accepted in their stead; and both, freely, not for any thing in them; their justification is only of free grace; that both the exact justice, and rich grace of God might be glorified in the justification of sinners.
+
+基督，由祂的顺服和死亡，确实完全清偿了所有那些因此被称义的人的债，并确实为他们的利益向祂的圣父的公义做了一次恰当、真实和完全的偿赎[^11-6]。然而，正因为祂是被圣父为他们赐予的[^11-7]；且祂的顺服和偿赎作他们的替代被接受[^11-8]；而两者均是白白地，不为他们之中的任何东西；他们的称义惟属白白的恩典[^11-9]；以使上帝精确的公义和丰富的恩典两者都能在罪人的称义中被荣耀[^11-10]。
+
+[^11-6]: [罗5:8](https://biblehub.com/romans/5-8.htm) 但上帝以此显明祂自身对我们的爱：在我们依然是罪人时，基督就为我们死了。 [9](https://biblehub.com/romans/5-9.htm) 既然我们现在已由祂的血被称义了，我们就会更加藉着祂从上帝的忿怒中被拯救！ [10](https://biblehub.com/romans/5-10.htm) 因为如果，在我们是上帝的敌人时，我们藉着祂圣子的死与祂和解了，既已被和解了，我们就会更加藉着祂的生命被拯救！ [19](https://biblehub.com/romans/5-19.htm) 因为正如借着那一人的忤逆，众人被定成罪人，同样也藉着这一人的顺服，众人将被定成义人。 [提前2:5](https://biblehub.com/1_timothy/2-5.htm) 因为上帝和人类之间有独一的上帝和独一的中保---基督耶稣那人， [6](https://biblehub.com/1_timothy/2-6.htm) 祂将祂自己作为赎金为所有族民献出。现在这已在适当的时间被目睹。 [来10:10](https://biblehub.com/hebrews/10-10.htm) 而由那意志，我们已藉着耶稣基督的身体的献祭，一次为所有，被变成神圣。 [14](https://biblehub.com/hebrews/10-14.htm) 因为由独一的献祭，祂已永远臻备那些正变得神圣的人。 [但9:24](https://biblehub.com/daniel/9-24.htm) “七十个‘七’为祢的子民和祢的圣城被降旨以结束违犯，终结罪恶，为邪恶赎罪，引进永久正义，封印异象和预言并膏抹至圣所。 [26](https://biblehub.com/daniel/9-26.htm) 在六十二个“七”之后，受膏者将被处死且会一无所有。会到来的统治者的族民将摧毁这城市和这圣殿。末了将如洪水般来到：战争将持续到末了，而荒凉已经被降旨。 [赛53:4](https://biblehub.com/isaiah/53-4.htm) 祂无疑担起了我们的痛苦，并承受了我们的苦难，但我们却认为祂被上帝惩罚，被祂击打，并受磨难。 [5](https://biblehub.com/isaiah/53-5.htm) 但祂为我们的违犯被刺穿，为我们的罪邪被击碎；带给我们和平的惩罚在祂身上，而由祂的负伤我们被治愈。 [6](https://biblehub.com/isaiah/53-6.htm) 我们所有人都像羊一样已走偏，我们各人都已转向我们自身的道路；而耶和华将我们所有人的罪邪安放在祂身上。 [10](https://biblehub.com/isaiah/53-10.htm) 然而是耶和华的意志要击碎祂，导致祂受难，而尽管耶和华使祂的生命成为罪恶的一个供品，祂会看到祂的孩子并延长祂的日子，并且耶和华的意志要在祂手中兴旺。 [11](https://biblehub.com/isaiah/53-11.htm) 在祂已受难后，祂会看到生命之光并被满足；由祂的知识，我正义的仆人会称许多人为义，而且祂会承受他们的罪邪。 [12](https://biblehub.com/isaiah/53-12.htm) 因此，我会在伟大者中间赐给祂一份，而祂会与强者分割战利品，因为祂向死倾倒了自己的生命，而与违犯者同列。因为祂承受了许多人的罪恶，并为那些违犯者做了调解。
+
+[^11-7]: [罗8:32](https://biblehub.com/romans/8-32.htm) 祂不轻饶祂自身的圣子，却为我们所有人献上了祂，祂怎么不是也会仁慈地把万物与祂一道赐给我们？
+
+[^11-8]: [林后5:21](https://biblehub.com/2_corinthians/5-21.htm) 上帝使没有罪恶的祂为我们成为罪恶，以致在祂里面我们能成为上帝的义。 [太3:17](https://biblehub.com/matthew/3-17.htm) 而一个话音源自天国说：“这是我的圣子，我所爱的；我对祂十分满意。” [弗5:2](https://biblehub.com/ephesians/5-2.htm) 而行走在爱的道路中，正如基督爱了我们，并作为一个为上帝的香甜供品和献祭，为我们献上了祂自己。
+
+[^11-9]: [罗3:24](https://biblehub.com/romans/3-24.htm) 且所有人藉着由基督耶稣而来的救赎，由祂的恩典被白白地称义。 [弗1:7](https://biblehub.com/ephesians/1-7.htm) 在祂里面，我们藉着祂的血得到救赎，罪恶的饶恕，依照上帝恩典的丰富
+
+[^11-10]: [罗3:26](https://biblehub.com/romans/3-26.htm) 祂做这以在现时显明祂的正义，以至于成为公义，并成为使那些在耶稣中有信心的人称义的那位。 [弗2:7](https://biblehub.com/ephesians/2-7.htm) 为使在要来的时代中，祂能展示祂恩典的无比丰富，就在基督耶稣中以祂的温良被表达给我们。
