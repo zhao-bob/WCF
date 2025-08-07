@@ -39,3 +39,15 @@ Of Justification
 [^11-9]: [罗3:24](https://biblehub.com/romans/3-24.htm) 且所有人藉着由基督耶稣而来的救赎，由祂的恩典被白白地称义。 [弗1:7](https://biblehub.com/ephesians/1-7.htm) 在祂里面，我们藉着祂的血得到救赎，罪恶的饶恕，依照上帝恩典的丰富
 
 [^11-10]: [罗3:26](https://biblehub.com/romans/3-26.htm) 祂做这以在现时显明祂的正义，以至于成为公义，并成为使那些在耶稣中有信心的人称义的那位。 [弗2:7](https://biblehub.com/ephesians/2-7.htm) 为使在要来的时代中，祂能展示祂恩典的无比丰富，就在基督耶稣中以祂的温良被表达给我们。
+
+## 11.4
+
+> God did, from all eternity, decree to justify all the elect, and Christ did, in the fullness of time, die for their sins, and rise again for their justification: nevertheless, they are not justified, until the Holy Spirit does, in due time, actually apply Christ unto them.
+
+上帝确实从所有永恒中，降旨了称所有选民为义[^11-11]，而基督确实在时间的圆满中，为他们的罪恶死了，并为他们的称义而再次醒来[^11-12]：尽管如此，他们并没有被称义，直到圣灵确实在适当的时间实际地将基督施用在他们上[^11-13]。
+
+[^11-11]: [加3:8](https://biblehub.com/galatians/3-8.htm) 经书预见了上帝会使外邦人由信心称义，并提前向亚伯拉罕宣传了福音：“万邦都会藉着你有福。” [彼前1:2](https://biblehub.com/1_peter/1-2.htm) 那些按照上帝圣父的预知，藉着圣灵的圣洁之工，已被拣选来顺服于耶稣基督而以祂的血所洒的：愿恩典与和平丰盛地属于你们。 [19](https://biblehub.com/1_peter/1-19.htm) 但以基督，一只无瑕疵或缺陷的羔羊的宝血。 [20](https://biblehub.com/1_peter/1-20.htm) 祂在世界创造之前就被拣选了，但为你们的缘故，祂在这些末后的时期被启示了。 [罗8:30](https://biblehub.com/romans/8-30.htm) 而那些祂预定了的，祂也召唤了他们；那些祂召唤了的，祂也称了他们为义；那些祂称了为义的，祂也使他们荣耀。
+
+[^11-12]: [加4:4](https://biblehub.com/galatians/4-4.htm) 但当设定的时间已完全来到，上帝差派了祂的圣子，由一个女人所生，生在律法之下， [提前2:6](https://biblehub.com/1_timothy/2-6.htm) 祂将祂自己作为赎金为所有族民献出。现在这已在适当的时间被目睹。 [罗4:25](https://biblehub.com/romans/4-25.htm) 祂为我们的罪恶被移交至死，而为我们的称义向生命被苏醒了。
+
+[^11-13]: [西1:21](https://biblehub.com/colossians/1-21.htm) 曾经因为你们的邪恶习性，你们与上帝疏离，而在你们心灵中敌对。 [22](https://biblehub.com/colossians/1-22.htm) 但现在，祂已由基督的物理身体藉着死亡与你们和解以将你们在祂眼中以神圣呈现，没有瑕疵并免于控告--- [加2:16](https://biblehub.com/galatians/2-16.htm) 知道，一个个体不由律法的功劳被称义，而由在耶稣基督中的信心。所以我们也已将我们的信心放置在基督耶稣中，以使我们能由在基督中的信心而不是律法的功劳被称义，因为由律法的功劳无人会被称义。 [多3:4](https://biblehub.com/titus/3-4.htm) 但当我们的救主上帝的温良和爱显现了时， [5](https://biblehub.com/titus/3-5.htm) 祂拯救了我们，不是因为我们已完成的正义的事情，而是因为祂的宽恕。祂藉着再生的洗涤和由圣灵的更新拯救了我们， [6](https://biblehub.com/titus/3-6.htm) 祂藉着我们的救主耶稣基督慷慨地将祂倾倒在我们身上， [7](https://biblehub.com/titus/3-7.htm) 以致，已由祂的恩典被称义，我们就能成为有永生希望的继承人。
