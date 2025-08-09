@@ -63,3 +63,11 @@ Of Justification
 [^11-15]: [路22:32](https://biblehub.com/luke/22-32.htm) 但我已为你祷告，西门，愿你的信心不会落空。当你已回转时，请坚固你的弟兄。” [约10:28](https://biblehub.com/john/10-28.htm) 我赐给他们永生，而他们绝不会灭亡；无人会把他们从我手中抢走。 [来10:14](https://biblehub.com/hebrews/10-14.htm) 因为由独一的献祭，祂已永远臻备那些正变得神圣的人。
 
 [^11-16]: [诗89:31](https://biblehub.com/psalms/89-31.htm) 如果他们违背我的预旨而未能保持我的命令， [32](https://biblehub.com/psalms/89-32.htm) 我会用杖惩罚他们的罪恶，用鞭笞惩罚他们的罪邪； [33](https://biblehub.com/psalms/89-33.htm) 但我既不会从他拿走我的爱，我也永不会出卖我的信实。 [诗51:7](https://biblehub.com/psalms/51-7.htm) 用牛膝草洗净我，我就会洁净；洗涤我，我就会比雪更白。 [8](https://biblehub.com/psalms/51-8.htm) 让我听见欢喜与高兴；让祢已击碎的骨头欢欣。 [9](https://biblehub.com/psalms/51-9.htm) 隐藏祢的脸避开我的罪恶，而抹去我所有的罪邪。 [10](https://biblehub.com/psalms/51-10.htm) 上帝啊，在我里面创造一颗纯洁的心，并在我里面更新一个稳固的灵。 [11](https://biblehub.com/psalms/51-11.htm) 不要将我从祢的临在中抛出，或从我取走祢的圣灵。 [12](https://biblehub.com/psalms/51-12.htm) 对我恢复祢拯救的喜乐，并准予我一个甘愿的灵，以维持我。 [32:5](https://biblehub.com/psalms/32-5.htm) 于是我向祢承认了我的罪恶，而没有掩盖我的罪邪。我说：“我将向耶和华坦承我的违犯。”祢就饶恕了我罪恶的罪行。 [太26:75](https://biblehub.com/matthew/26-75.htm) 然后，彼得记起耶稣已讲的言：“公鸡打鸣之前，你会三次不认我。”他就走到外面并恸哭。 [林前11:30](https://biblehub.com/1_corinthians/11-30.htm) 这是为什么你们中间许多人软弱患病，并且你们大量的人都已入睡。 [32](https://biblehub.com/1_corinthians/11-32.htm) 尽管如此，当我们被主以这种方法审判时，我们是在被规训以致我们不会最终与世界一同被定罪。 [路1:20](https://biblehub.com/luke/1-20.htm) 而现在你将静默且不能够讲话，直到这发生的那日，因为你不相信我的言词，而它们会在它们被指定的时间成真。”
+
+## 11.6
+
+> The justification of believers under the Old Testament was, in all these respects, one and the same with the justification of believers under the New Testament.
+
+在旧约下信徒的称义，在所有这些特点上，与新约下信徒的称义是一个且同一个[^11-17]。
+
+[^11-17]: [加3:9](https://biblehub.com/galatians/3-9.htm) 所以那些依靠信心的人与亚伯拉罕---信心之人一道有福。 [13](https://biblehub.com/galatians/3-13.htm) 基督通过为我们成为一个咒诅而把我们从律法的咒诅救赎，因为经上记着：“每个被悬挂在柱子上的，都被咒诅。” [14](https://biblehub.com/galatians/3-14.htm) 祂救赎了我们，为使赐给亚伯拉罕的福分能藉着基督耶稣来到外邦人，以致由信心我们能领受圣灵的应许。 [罗4:22](https://biblehub.com/romans/4-22.htm) 这就是为什么“这作为义被归功于他”。 [23](https://biblehub.com/romans/4-23.htm) “这被归功于他”这言词不是惟独为他记的， [24](https://biblehub.com/romans/4-24.htm) 而且也是为我们，上帝会将正义归功给我们---为我们这些信仰祂将耶稣我们的主从死人苏醒的人。 [来13:8](https://biblehub.com/hebrews/13-8.htm) 耶稣基督昨天和今天且永远是一样的。
