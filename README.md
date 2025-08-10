@@ -25,6 +25,10 @@
 
 ## [第十章 论有效召唤](https://zhao-bob.github.io/WCF/chapter10)
 
+## [第十一章 论称义](https://zhao-bob.github.io/WCF/chapter11)
+
+## [第十二章 论收养](https://zhao-bob.github.io/WCF/chapter12)
+
 
 
 
