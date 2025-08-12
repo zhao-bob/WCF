@@ -30,4 +30,18 @@ Of Sanctification
 
 [^13-8]: [约壹1:10](https://biblehub.com/1_john/1-10.htm) 如果我们宣称我们未曾犯罪，我们就显出祂是一个骗子，而祂的言就不在我们里面。 [罗7:18](https://biblehub.com/romans/7-18.htm) 因为我知道，善本身并不栖居在我里面，也就是，在我罪恶的本性里。因为我有做那善事的渴望，但我不能将其实行。 [23](https://biblehub.com/romans/7-23.htm) 但我晓得另一条律法在我里面做工，向我心灵的律法开战，并使我成为在我里面做工的罪恶律法的囚徒。 [腓3:12](https://biblehub.com/philippians/3-12.htm) 并不是我已经取得这所有，或已经抵达我的目标，而是我加紧抓住那基督耶稣为之抓住了我的东西。
 
-[^13-9]: [加5:17](https://biblehub.com/galatians/5-17.htm) 因为肉体渴望与圣灵相悖的，而圣灵渴望与肉体相悖的。它们相互冲突，以致你们不会做无论任何你们想要的。 [彼前2:11](https://biblehub.com/1_peter/2-11.htm) 亲爱的朋友们，我敦促你们，作为异邦人和流亡者，要戒绝对你们的灵魂开战的罪恶欲望。
+[^13-9]: [加5:17](https://biblehub.com/galatians/5-17.htm) 因为肉体渴望与圣灵相悖的，而圣灵渴望与肉体相悖的。它们相互冲突，以致你们不会做无论任何你们想要的。 [彼前2:11](https://biblehub.com/1_peter/2-11.htm) 亲爱的朋友们，我敦促你们，作为异邦人和流亡者，要戒绝向你们灵魂开战的罪恶欲望。
+
+## 13.3
+
+> In which war, although the remaining corruption, for a time, may much prevail; yet, through the continual supply of strength from the sanctifying Spirit of Christ, the regenerate part does overcome; and so, the saints grow in grace, perfecting holiness in the fear of God.
+
+在此战争中，尽管那留存的败坏，一时可能非常占优[^13-10]；然而，藉着源自基督的圣洁圣灵的力量的持续补给，重生的一方确实制胜[^13-11]；而所以，众圣徒在恩典中成长[^13-12]，在上帝的敬畏中使神圣臻备[^13-13]。
+
+[^13-10]: [罗7:23](https://biblehub.com/romans/7-23.htm) 但我晓得另一条律法在我里面做工，向我心灵的律法开战，并使我成为在我里面做工的罪恶律法的囚徒。
+
+[^13-11]: [罗6:14](https://biblehub.com/romans/6-14.htm) 因为罪恶将不再是你们的主人，因为你们不在律法之下，而在恩典之下。 [约壹5:4](https://biblehub.com/1_john/5-4.htm) 因为每个出生于上帝的人，都胜过世界。这是已胜过世界，甚至我们信心的胜利。 [弗4:15](https://biblehub.com/ephesians/4-15.htm) 取而代之，在爱中讲真理，我们将成长而在每个特点上都变为那位元首的，即基督祂的成熟身体。 [16](https://biblehub.com/ephesians/4-16.htm) 源自祂，被每条支承韧带结合并支撑在一起的整个身体，在各个部分都做它的工作时，就在爱中成长并造就它自己，
+
+[^13-12]: [彼后3:18](https://biblehub.com/2_peter/3-18.htm) 但要在我们的主和救主耶稣基督的恩典和知识中成长。愿荣耀归于祂，既在现在也在永远！阿门。 [林后3:18](https://biblehub.com/2_corinthians/3-18.htm) 而我们所有人，以被揭开面纱的脸，沉思主的荣耀，正以不断增长的荣耀被变换成祂的形象，而这荣耀来自主，祂是圣灵。
+
+[^13-13]: [林后7:1](https://biblehub.com/2_corinthians/7-1.htm) 因此，亲爱的朋友们，既然我们有这些应许，让我们从沾污身体和灵的一切中净化我们自己，出自对上帝的崇敬使神圣臻备。
