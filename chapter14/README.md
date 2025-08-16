@@ -31,3 +31,17 @@ Of Saving Faith
 [^14-8]: [来11:13](https://biblehub.com/hebrews/11-13.htm) 所有这些子民在他们死时仍然由信心活着。他们没有领受应许的事情；他们仅看到它们，并从远处欢迎它们，坦承他们是地上的异邦人和寄居者。 [提前4:8](https://biblehub.com/1_timothy/4-8.htm) 因为身体锻炼有一些价值，但敬神，握有既对今生又对来生的应许，对万物都有价值。
 
 [^14-9]: [约10:14](https://biblehub.com/john/1-12.htm) 然而，对所有确实领受了祂的人，对那些信仰祂名的人，祂赐了权利以成为上帝子女--- [徒16:31](https://biblehub.com/acts/16-31.htm) 他们回复：“信仰主耶稣，而你就会被拯救---你与你的家室。” [加2:20](https://biblehub.com/galatians/2-20.htm) 我已同基督被钉十字架，而我不再活着，而是基督活在我里面。我现在活在身体里的生命，我由对上帝圣子的信心而活，祂爱我并为我献出了祂自己。 [徒15:11](https://biblehub.com/acts/15-11.htm) 不！我们相信是藉着我们主耶稣的恩典使我们被拯救，正如他们一样。”
+
+## 14.3
+
+> This faith is different in degrees, weak or strong; may be often and many ways assailed, and weakened, but gets the victory: growing up in many to the attainment of a full assurance, through Christ, who is both the author and finisher of our faith.
+
+此信心在程度上是不同的，或弱或强[^14-10]；可能经常且被许多方法猛攻，并被削弱，但得到胜利[^14-11]：藉着基督，在许多人中长大至一种完全确信的达成[^14-12]，而祂既是我们信心的著者也是终者[^14-13]。
+
+[^14-10]: [来5:13](https://biblehub.com/hebrews/5-13.htm) 任何以牛奶为生的人，仍然是个婴儿，不熟悉关于正义的教导。 [14](https://biblehub.com/hebrews/5-14.htm) 但固体食物是为成熟人的，他们由恒常的使用已训练他们自己区别善恶。 [罗4:19](https://biblehub.com/romans/4-19.htm) 他在他的信心上没有削弱，而是面对了这事实：他的身体与死无几---因为他大约一百岁了---并且撒拉的子宫也死了。 [20](https://biblehub.com/romans/4-20.htm) 但关于上帝的应许他没有借着不信摇摆，而是在他的信心上被坚固并将荣耀献给上帝， [太6:30](https://biblehub.com/matthew/6-30.htm) 但关于上帝的应许他没有借着不信摇摆，而是在他的信心上被坚固并将荣耀献给上帝， [8:10](https://biblehub.com/matthew/8-10.htm) 当耶稣听到这，祂很惊奇并对跟随他的那些人说：“我实在告诉你们，我在以色列未曾发现任何人有这么大的信心。”
+
+[^14-11]: [路22:31](https://biblehub.com/luke/22-31.htm) “西门，西门，撒旦已企求像麦子一样筛你们所有人。 [32](https://biblehub.com/luke/22-32.htm) 但我已为你祷告，西门，愿你的信心不会落空。当你已回转时，请坚固你的弟兄。” [弗6:16](https://biblehub.com/ephesians/6-16.htm) 在这所有额外，拿起信心的盾牌，用它你们能熄灭恶魔的所有火焰之箭。 [约壹5:4](https://biblehub.com/1_john/5-4.htm) 因为每个出生于上帝的人，都胜过世界。这是已胜过世界，甚至我们信心的胜利。 [5](https://biblehub.com/1_john/5-5.htm) 是谁胜过世界？惟有那相信耶稣是上帝的儿子的人。
+
+[^14-12]: [来6:11](https://biblehub.com/hebrews/6-11.htm) 我们想你们各人都展示这相同的勤勉到那最末了，以致你们所盼望的能被完全实现。 [12](https://biblehub.com/hebrews/6-12.htm) 我们不想你们变得懒惰，而是要仿效那些藉着信心和耐心继承那被应许的人。 [10:22](https://biblehub.com/hebrews/10-22.htm) 让我们以一颗真诚的心并以信心带来的完全确信，靠近上帝，使我们的心挥洒以将我们从一种有罪的良心中洗净，并用纯洁的水使我们的身体洗涤。 [西2:2](https://biblehub.com/colossians/2-2.htm) 我的目标是他们能在内心被鼓励并在爱中被联合，以致他们能拥有完备理解的完全丰富，使得他们能知道上帝的奥秘，也就是，基督，
+
+[^14-13]: [来12:2](https://biblehub.com/hebrews/12-2.htm) 让我们定睛在耶稣上，祂是信心的先驱者和完美者。为了摆在祂面前的喜乐，祂忍受了十字架，蔑视它的耻辱，并定坐在上帝宝座的右手边。

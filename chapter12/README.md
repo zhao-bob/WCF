@@ -24,7 +24,7 @@ Of Adoption
 
 [^12-8]: [箴14:26](https://biblehub.com/proverbs/14-26.htm) 无论谁敬畏耶和华，就有一座安稳的城堡，而对他们的子女，它将是一个避难所。
 
-[^12-9]: [太6:30](https://biblehub.com/matthew/6-30.htm) 如果那就是上帝如何为那今天在这里而明天就被扔进火里的田间小草穿戴的，祂难道不会更加给你们穿戴---你们这小信的人？ [32](https://biblehub.com/matthew/6-32.htm) 因为异教徒追逐所有这些东西，而你们天国的圣父知道你们需要它们。 [彼前5:7](https://biblehub.com/1_peter/5-7.htm) 将你们所有的焦虑都抛给祂，因为祂护理你们。
+[^12-9]: [太6:30](https://biblehub.com/matthew/6-30.htm) 如果那就是上帝如何为那今天在这里而明天就被扔进火里的田间小草穿戴的，祂难道不会更加给你们穿戴---你们这些小信的人？ [32](https://biblehub.com/matthew/6-32.htm) 因为异教徒追逐所有这些东西，而你们天国的圣父知道你们需要它们。 [彼前5:7](https://biblehub.com/1_peter/5-7.htm) 将你们所有的焦虑都抛给祂，因为祂护理你们。
 
 [^12-10]: [来12:6](https://biblehub.com/hebrews/12-6.htm) 因为主规训祂爱的人，而且祂惩戒每一个祂接受作祂儿子的人。
 
