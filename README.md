@@ -31,6 +31,8 @@
 
 ## [第十三章 论圣洁](https://zhao-bob.github.io/WCF/chapter13)
 
+## [第十四章 论拯救性信心](https://zhao-bob.github.io/WCF/chapter14)
+
 
 
 
