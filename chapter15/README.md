@@ -33,3 +33,13 @@ Of Repentance unto Life
 [^15-6]: [何14:2](https://biblehub.com/hosea/14-2.htm) 带上你们的忏悔并回归耶和华。要对祂说：“饶恕我们所有的罪恶，并仁慈地接收我们，以使我们能奉上我们嘴唇的果实。 [4](https://biblehub.com/hosea/14-4.htm) “我会治愈他们的任性，并白白地爱他们，因为我的愤怒已从他们转身离开。 [罗3:24](https://biblehub.com/romans/3-24.htm) 且所有人藉着由基督耶稣而来的救赎，由祂的恩典被白白地称义。 [弗1:7](https://biblehub.com/ephesians/1-7.htm) 在祂里面，我们藉着祂的血得到救赎，罪恶的饶恕，依照上帝恩典的丰富
 
 [^15-7]: [路13:3](https://biblehub.com/luke/13-3.htm) 我告诉你们，不！但除非你们悔改，你们所有人也会灭亡。 [徒17:30](https://biblehub.com/acts/17-30.htm) 在过去，上帝忽视了这种无知，但现在祂命令每个地方的所有族民悔改。 [31](https://biblehub.com/acts/17-31.htm) 因为祂已设定一天，那时祂将由祂已指定的那人以公义审判世界。祂对此已通过将祂从死人苏醒向每个人给出证明。
+
+## 15.4
+
+> As there is no sin so small, but it deserves damnation; so there is no sin so great, that it can bring damnation upon those who truly repent.
+
+因为没有如此小的罪恶，而它应得天谴[^15-8]；所以没有罪恶如此大，以致它能在那些真正悔改的人上带来天谴。
+
+[^15-8]: [罗6:23](https://biblehub.com/romans/6-23.htm) 因为罪恶的工价是死，但上帝的恩赐是在我们主基督耶稣里的永恒生命。 [5:12](https://biblehub.com/romans/5-12.htm) 因此，正如罪恶借着一人进入世界，而死亡借着罪恶，死亡就以这种方法来到所有族民，因为所有人都犯了罪--- [太12:36](https://biblehub.com/matthew/12-36.htm) 但我告诉你们，在审判之日，每个人将不得不为他们说过的每一个空言交账。
+
+[^15-9]: [赛55:7](https://biblehub.com/isaiah/55-7.htm) 让恶人舍弃他们的道路并让不义的人舍弃他们的思想。让他们转向耶和华，而祂将对他们施宽恕，并归向我们的上帝，因为祂将白白赦免。 [罗8:1](https://biblehub.com/romans/8-1.htm) 因此，现在对那些在基督耶稣里的人没有定罪， [赛1:16](https://biblehub.com/isaiah/1-16.htm) 洗涤并使你们自己洁净。将你们的恶迹从我的视域取出；停止行恶。 [18](https://biblehub.com/isaiah/1-18.htm) “来吧，让我们解决这问题，”耶和华说。“虽然你们的罪恶像鲜红一样，它们却要像雪一样洁白；虽然它们如猩红一样红，它们却要像羊毛一样。
