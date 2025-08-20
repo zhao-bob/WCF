@@ -38,7 +38,7 @@ Of Repentance unto Life
 
 > As there is no sin so small, but it deserves damnation; so there is no sin so great, that it can bring damnation upon those who truly repent.
 
-因为没有如此小的罪恶，而它应得天谴[^15-8]；所以没有罪恶如此大，以致它能在那些真正悔改的人上带来天谴。
+因为没有如此小的罪恶，但它应得天谴[^15-8]；所以没有罪恶如此大，以致它能在那些真正悔改的人上带来天谴。
 
 [^15-8]: [罗6:23](https://biblehub.com/romans/6-23.htm) 因为罪恶的工价是死，但上帝的恩赐是在我们主基督耶稣里的永恒生命。 [5:12](https://biblehub.com/romans/5-12.htm) 因此，正如罪恶借着一人进入世界，而死亡借着罪恶，死亡就以这种方法来到所有族民，因为所有人都犯了罪--- [太12:36](https://biblehub.com/matthew/12-36.htm) 但我告诉你们，在审判之日，每个人将不得不为他们说过的每一个空言交账。
 
