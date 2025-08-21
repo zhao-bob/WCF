@@ -43,3 +43,11 @@ Of Repentance unto Life
 [^15-8]: [罗6:23](https://biblehub.com/romans/6-23.htm) 因为罪恶的工价是死，但上帝的恩赐是在我们主基督耶稣里的永恒生命。 [5:12](https://biblehub.com/romans/5-12.htm) 因此，正如罪恶借着一人进入世界，而死亡借着罪恶，死亡就以这种方法来到所有族民，因为所有人都犯了罪--- [太12:36](https://biblehub.com/matthew/12-36.htm) 但我告诉你们，在审判之日，每个人将不得不为他们说过的每一个空言交账。
 
 [^15-9]: [赛55:7](https://biblehub.com/isaiah/55-7.htm) 让恶人舍弃他们的道路并让不义的人舍弃他们的思想。让他们转向耶和华，而祂将对他们施宽恕，并归向我们的上帝，因为祂将白白赦免。 [罗8:1](https://biblehub.com/romans/8-1.htm) 因此，现在对那些在基督耶稣里的人没有定罪， [赛1:16](https://biblehub.com/isaiah/1-16.htm) 洗涤并使你们自己洁净。将你们的恶迹从我的视域取出；停止行恶。 [18](https://biblehub.com/isaiah/1-18.htm) “来吧，让我们解决这问题，”耶和华说。“虽然你们的罪恶像鲜红一样，它们却要像雪一样洁白；虽然它们如猩红一样红，它们却要像羊毛一样。
+
+## 15.5
+
+> Man ought not to content themselves with a general repentance, but it is every man's duty to endeavour to repent of his particular sins, particularly.
+
+人不应该使他们自己止足于一种通用的悔改，而竭力对他特定的罪恶特定地悔改，是每个人的职责[^15-10]。
+
+[^15-10]: [诗19:13](https://biblehub.com/psalms/19-13.htm) 也要使祢的仆人避开故意的罪恶；愿它们不要统治我。于是我就会无可指摘，对巨大的违犯无罪。 [路19:8](https://biblehub.com/luke/19-8.htm) 撒该站起来对主说：“主，看哪！此时此地，我把我个人财产的一半给穷人，而假使我骗取任何人任何东西，我会偿还这数量的四倍。” [提前1:13](https://biblehub.com/1_timothy/1-13.htm) 尽管我曾经是一个渎神者、迫害者和一个暴力的人，但我被展示了宽恕，因为我在无知和不信中行事。 [15](https://biblehub.com/1_timothy/1-15.htm) 这里有一句应得完全悦纳而值得信赖的话：基督耶稣到世界里面来拯救罪人---我是其中最坏的。
