@@ -51,3 +51,17 @@ Of Repentance unto Life
 人不应该使他们自己止足于一种通用的悔改，而竭力对他特定的罪恶特定地悔改，是每个人的职责[^15-10]。
 
 [^15-10]: [诗19:13](https://biblehub.com/psalms/19-13.htm) 也要使祢的仆人避开故意的罪恶；愿它们不要统治我。于是我就会无可指摘，对巨大的违犯无罪。 [路19:8](https://biblehub.com/luke/19-8.htm) 撒该站起来对主说：“主，看哪！此时此地，我把我个人财产的一半给穷人，而假使我骗取任何人任何东西，我会偿还这数量的四倍。” [提前1:13](https://biblehub.com/1_timothy/1-13.htm) 尽管我曾经是一个渎神者、迫害者和一个暴力的人，但我被展示了宽恕，因为我在无知和不信中行事。 [15](https://biblehub.com/1_timothy/1-15.htm) 这里有一句应得完全悦纳而值得信赖的话：基督耶稣到世界里面来拯救罪人---我是其中最坏的。
+
+## 15.6
+
+> As every man is bound to make private confession of his sins to God, praying for the pardon thereof; upon which, and the forsaking of them, he shall find mercy; so, he that scandalizes his brother, or the Church of Christ, ought to be willing, by a private or public confession, and sorrow for his sin, to declare his repentance to those that are offended, who are thereupon to be reconciled to him, and in love to receive him.
+
+因为每个人都具责向上帝为他的罪恶做私人的忏悔，为其中的赦免祷告[^15-11]；在此之上，并舍弃它们，他将找到宽恕[^15-12]；因此，使他的兄弟或基督教会愤慨的人，应该甘愿由一次私人或公开的忏悔，并为他的罪恶的忧伤，向那些被冒犯的人宣告他的悔改[^15-13]，而这些人因此将与他被和解，并在爱中接收他[^15-14]。
+
+[^15-11]: [诗51:4](https://biblehub.com/psalms/51-4.htm) 针对祢，惟独祢，我已犯罪并做了在祢视域中的恶事；所以祢在裁定中是正确的，并且祢在审判时是公义的。 [5](https://biblehub.com/psalms/51-5.htm) 无疑，我诞生时就是罪恶的，从我母亲孕育我的时间起就是罪恶的。 [7](https://biblehub.com/psalms/51-7.htm) 用牛膝草洗净我，我就会洁净；洗涤我，我就会比雪更白。 [9](https://biblehub.com/psalms/51-9.htm) 隐藏祢的脸避开我的罪恶，而抹去我所有的罪邪。 [14](https://biblehub.com/psalms/51-14.htm) 上帝啊，将我从杀戮的罪行中解救，祢是上帝我的救主，而我的舌头将歌颂祢的正义。 [32:5](https://biblehub.com/psalms/32-5.htm) 于是我向祢承认了我的罪恶，而没有掩盖我的罪邪。我说：“我将向耶和华忏悔我的违犯。”祢就饶恕了我罪恶的罪行。 [6](https://biblehub.com/psalms/32-6.htm) 因此，当祢还能被找到时，让所有信实的人向祢祷告；无疑，大水的上升不会到达他们。
+
+[^15-12]: [路13:3](https://biblehub.com/proverbs/28-13.htm) 无论谁隐瞒他们的罪恶，就不会兴旺，而忏悔并断绝它们的人会找到宽恕。 [约壹13:3](https://biblehub.com/1_john/1-9.htm) 如果我们忏悔我们的罪恶，祂是信实和公正的并会对我们饶恕我们的罪恶，而且将我们从所有的不义中净化。
+
+[^15-13]: [雅5:16](https://biblehub.com/james/5-16.htm) 因此，相互忏悔你们的罪恶，并相互祷告，以致你们能被治愈。一个正义个体的祷告是有权柄而有效力的。 [路17:3](https://biblehub.com/luke/17-3.htm) 所以警醒你们自己。“如果你的弟兄姊妹对你犯罪，训斥他们；而如果他们悔改，饶恕他们。 [4](https://biblehub.com/luke/17-4.htm) 即使他们一天中七次对你犯罪，而七次回到你身边说‘我悔改’，你必须饶恕他们。” [书7:19](https://biblehub.com/joshua/7-19.htm) 于是约书亚对亚干说：“我儿，将荣耀献给耶和华，以色列的上帝，并尊敬他。告诉我你已做的；不要将它向我隐藏。” （[诗51](https://biblehub.com/niv/psalms/51.htm) 全篇。）
+
+[^15-14]: [林后2:8](https://biblehub.com/2_corinthians/2-8.htm) 因此，我敦促你们，以重申你们对他的爱。

@@ -65,7 +65,7 @@ Of the Holy Scripture
         <td><a href="https://biblehub.com/bibles/acts">使徒行传（Acts徒）</a></td>
     </tr>
     <tr>
-        <td><a href="https://biblehub.com/bibles/joshua">约书亚记（Joshua约）</a></td>
+        <td><a href="https://biblehub.com/bibles/joshua">约书亚记（Joshua书）</a></td>
         <td><a href="https://biblehub.com/bibles/micah">弥迦书（Micah弥）</a></td>
         <td rowspan="13">保罗书信</td>
         <td><a href="https://biblehub.com/bibles/romans">罗马书（Romans罗）</a></td>
