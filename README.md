@@ -33,6 +33,9 @@
 
 ## [第十四章 论拯救性信心](https://zhao-bob.github.io/WCF/chapter14)
 
+## [第十五章 论向生的悔改](https://zhao-bob.github.io/WCF/chapter15)
+
+
 
 
 
