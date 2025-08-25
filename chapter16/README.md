@@ -35,3 +35,15 @@ Of Good Works
 [^16-10]: [弗2:10](https://biblehub.com/ephesians/2-10.htm) 因为我们是上帝的手工，在基督耶稣里被创造，以做上帝提前为我们准备了的善功。
 
 [^16-11]: [罗6:22](https://biblehub.com/romans/6-22.htm) 但现在你们已经从罪恶中被解放，并已成为上帝的奴仆，你们收割的益处通往神圣，且结果是永生。
+
+## 16.3
+
+> Their ability to do good works is not at all of themselves, but wholly from the Spirit of Christ. And that they may be enabled thereunto, beside the graces they have already received, there is required an actual influence of the same Holy Spirit, to work in them to will, and to do, of His good pleasure: yet are they not hereupon to grow negligent, as if they were not bound to perform any duty unless upon a special motion of the Spirit; but they ought to be diligent in stirring up the grace of God that is in them. 
+
+他们做善功的能力根本不属于他们自己，而是全然源自基督的圣灵[^16-12]。而为使他们能为此被赋能，除他们早已领受的恩典之外，还需要相同圣灵的实际影响，在他们里面运行，以愿想并去做属于祂的美意[^16-13]：但他们不会随后逐渐变得疏忽，仿佛除非圣灵特殊动念，他们就不具责实行任何职责；而是他们应该勤勉地激发起在他们里面的上帝的恩典[^16-14]。
+
+[^16-12]: [约15:4](https://biblehub.com/john/15-4.htm) 留存在我里面，如同我也留存在你们里面。没有树枝能由它自己结果实；它必须留存在葡萄树上。除非你们留存在我里面，否则你们也不能结果实。 [5](https://biblehub.com/john/15-5.htm) “我是葡萄树；你们是树枝。如果你们留存在我里面，而我在你们里面，你们就会结许多果实；除去我，你们什么都不能做。 [6](https://biblehub.com/john/15-6.htm) 如果你们不留存在我里面，你们就像一根被扔掉而枯萎的树枝；这些树枝被捡起来，被扔进火里并被烧掉。 [结36:26](https://biblehub.com/ezekiel/36-26.htm) 我会赐给你们一颗新心，并放置一个新的灵在你们里面；我会从你们中移除你们的石心，并赐给你们一颗肉心。 [27](https://biblehub.com/ezekiel/36-27.htm) 而我会把我的圣灵放置在你们里面，并感动你们以遵循我的预旨，而谨慎保持我的律法。
+
+[^16-13]: [腓2:13](https://biblehub.com/philippians/2-13.htm) 因为是在你们里面运行的上帝在愿想和行动，为了成全祂善的旨意。 [4:13](https://biblehub.com/philippians/4-13.htm) 我能藉着祂做这所有，而祂赐给我力量。 [林后3:5](https://biblehub.com/2_corinthians/3-5.htm) 不是我们在我们自己里面有胜任力为我们自己宣称任何东西，而是我们的胜任力来自上帝。
+
+[^16-14]: [腓2:12](https://biblehub.com/philippians/2-12.htm) 因此，我亲爱的朋友们，如你们已总是顺服---不仅在我在场时，而且现在更多在我缺席时---持续以敬畏和战兢运行出你们的拯救， [来6:11](https://biblehub.com/hebrews/6-11.htm) 我们想你们各人都展示这相同的勤勉到那最末了，以致你们所盼望的能被完全实现。 [12](https://biblehub.com/hebrews/6-12.htm) 我们不想你们变得懒惰，而是要仿效那些藉着信心和耐心继承那被应许的人。 [彼后1:3](https://biblehub.com/2_peter/1-3.htm) 祂的神性大能藉着我们对祂的知识，已将一切我们为敬神生活需要的赐给我们，而祂通过祂自身的荣耀和善良召唤了我们。 [5](https://biblehub.com/2_peter/1-5.htm) 正为此原因，尽一切努力向你们的信心添加善良；而向善良添加知识； [10](https://biblehub.com/2_peter/1-10.htm) 因此，我的弟兄姊妹，要尽一切努力确认你们的召唤和遴选。因为如果你们做这些事，你们就绝不会跌倒， [11](https://biblehub.com/2_peter/1-11.htm) 而且你们将领受丰富的欢迎，到我们主和救主耶稣基督的永恒国度中。 [赛64:7](https://biblehub.com/isaiah/64-7.htm) 无人求靠祢的名字，或力争持定祢；因为祢已向我们隐藏祢的面，并已将我们弃给我们的罪恶。 [提后1:6](https://biblehub.com/2_timothy/1-6.htm) 为此原因，我提醒你要将上帝的恩赐挑旺成火，这是藉着按我的手在你里面的。 [徒26:6](https://biblehub.com/acts/26-6.htm) 而现在，是因为我们在上帝对我们祖先已应许的事上的希望，以致我今天受审。 [7](https://biblehub.com/acts/26-7.htm) 这是我们十二个支派在他们日夜诚挚侍奉上帝时希望看到被成全的应许。亚基帕国王，是因为这个希望，以致这些犹太人控告我。 [犹1:20](https://biblehub.com/jude/1-20.htm) 但是你们，亲爱的朋友们，由在你们至圣的信心中造就你们自己，并在圣灵中祷告， [21](https://biblehub.com/jude/1-21.htm) 在你们为我们主耶稣基督的宽恕等候以带你们进入永生的同时，在上帝的爱中保持你们自己。
