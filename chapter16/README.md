@@ -69,3 +69,15 @@ Of Good Works
 [^16-18]: [加5:22](https://biblehub.com/galatians/5-22.htm) 但圣灵的果实是爱、喜乐、和平、克制、温良、善良、信实， [23](https://biblehub.com/galatians/5-23.htm) 温柔和自制。没有律法针对这些事情。
 
 [^16-19]: [赛64:6](https://biblehub.com/isaiah/64-6.htm) 我们所有人都已变得像那不洁净的人，而我们所有的正义行动都像污秽的破布；我们都皱缩得像一片叶子，而我们的罪恶像风一样将我们清扫。 [加5:17](https://biblehub.com/galatians/5-17.htm) 因为肉体渴望与圣灵相悖的，而圣灵渴望与肉体相悖的。它们相互冲突，以致你们不会做无论任何你们想要的。 [罗7:15](https://biblehub.com/romans/7-15.htm) 我不理解我所做的。因为我想去做的我不做，但我做我所厌恶的。 [18](https://biblehub.com/romans/7-18.htm) 因为我知道，善本身并不栖居在我里面，也就是，在我罪恶的本性里。因为我有做那善事的渴望，但我不能将其实行。 [诗143:2](https://biblehub.com/psalms/143-2.htm) 不要将祢的仆人带入审判，因为活着的无人在祢面前是义的。 [130:3](https://biblehub.com/psalms/130-3.htm) 耶和华啊，如果祢对罪恶做记录，主啊，谁能站立呢？
+
+## 16.6
+
+> Notwithstanding, the persons of believers being accepted through Christ, their good works also are accepted in Him; not as though they were in this life wholly unblamable and unreproveable in God's sight; but that He, looking upon them in His Son, is pleased to accept and reward that which is sincere, although accompanied with many weaknesses and imperfections.
+
+尽管，众信徒个体藉着基督被接受，他们的善行也在祂里面被接受[^16-20]；但不是在上帝视域中他们在此生仿佛是全然无可厚非的且不受指摘的[^16-21]；而是祂在祂儿子里看待他们，愿意接受并赏赐那真诚的，尽管伴随着许多软弱和不完美[^16-22]。
+
+[^16-20]: [弗1:6](https://biblehub.com/ephesians/1-6.htm) 为赞美祂荣耀的恩典，这是祂在祂所爱的独子中已白白赐给我们的。 [彼前2:5](https://biblehub.com/1_peter/2-5.htm) 你们也像活石一样，正被建到一座属灵的住所中，以成为一个神圣的司祭职，藉着耶稣基督为上帝悦纳的属灵献祭。 [出28:38](https://biblehub.com/exodus/28-38.htm) 它将在亚伦的额头上，而祂将承受以色列人尊崇的奉神的礼物所牵涉的罪行，无论他们的礼物能是什么。它将持续地在亚伦的额头上，以致他们将为耶和华悦纳。 [创4:4](https://biblehub.com/genesis/4-4.htm) 而亚伯也带了一份供品---源自他的羊群的头胎的脂肪部分。耶和华看中了亚伯和他的供品， [来11:4](https://biblehub.com/hebrews/11-4.htm) 由信心，亚伯给上帝带了比该隐更好的供品。由信心，当上帝说他的供品好时，他被举荐为义人。而由信心，亚伯依然说话，即使他死了。
+
+[^16-21]: [伯9:20](https://biblehub.com/job/9-20.htm) 即使我是无罪的，我的嘴会定我的罪；假使我是无可指摘的，它会宣扬我的罪行。 [诗143:2](https://biblehub.com/psalms/143-2.htm) 不要将祢的仆人带入审判，因为活着的无人在祢面前是义的。
+
+[^16-22]: [来13:20](https://biblehub.com/hebrews/13-20.htm) 现在愿和平的上帝，祂借着永恒圣约的血，将我们的主耶稣，那羊的大牧者，从死人带回， [21](https://biblehub.com/hebrews/13-21.htm) 为完成祂的意志以一切善装备你们，并愿祂在我们里面运行令祂满意的事，藉着耶稣基督，将荣耀归于祂，直到永永远远。阿门。 [林前8:12](https://biblehub.com/2_corinthians/8-12.htm) 因为如果心甘情愿，礼物是按照一个人有的悦纳，而不是按照一个人没有的。 [来6:10](https://biblehub.com/hebrews/6-10.htm) 上帝不是不公正的；祂不会忘记你们的功劳和你们在你们已帮助祂的子民并持续帮助他们时，已向祂展示的爱。 [太25:21](https://biblehub.com/matthew/25-21.htm) “他的主人回复：‘干得好，善良而信实的仆人！你已在少许事上信实；我会让你负责许多事情。过来并分享你主人的幸福！’ [23](https://biblehub.com/matthew/25-23.htm) “他的主人回复：‘干得好，善良而信实的仆人！你已在少许事上信实；我会让你负责许多事情。过来并分享你主人的幸福！’
