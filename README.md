@@ -35,6 +35,8 @@
 
 ## [第十五章 论向生的悔改](https://zhao-bob.github.io/WCF/chapter15)
 
+## [第十六章 论善功](https://zhao-bob.github.io/WCF/chapter16)
+
 
 
 
