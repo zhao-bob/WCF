@@ -25,3 +25,27 @@ Of the Perseverance of the Saints
 [^17-5]: [耶32:40](https://biblehub.com/jeremiah/32-40.htm) 我会与他们立一个永久的圣约：我永不会停止对他们行善，而且我会启发他们敬畏我，以致他们永不会转身离开我。
 
 [^17-6]: [约10:28](https://biblehub.com/john/10-28.htm) 我赐给他们永生，而他们绝不会灭亡；无人会把他们从我手中抢走。 [帖后3:3](https://biblehub.com/2_thessalonians/3-3.htm) 但主是信实的，而且祂会坚固你们，并保护你们避开恶魔。 [约壹2:19](https://biblehub.com/1_john/2-19.htm) 他们离开了我们，但他们并不真实属于我们。因为假如他们属于我们，他们就会留在我们身边；但他们的离去表明了他们没有一个属于我们。
+
+## 17.3
+
+> Nevertheless, they may, through the temptations of Satan and of the world, the prevalency of corruption remaining in them, and the neglect of the means of their preservation, fall into grievous sins; and, for a time, continue therein: whereby they incur God's displeasure, and grieve His Holy Spirit, come to be deprived of some measure of their graces and comforts, have their hearts hardened, their consciences wounded; hurt and scandalize others, and bring temporal judgments upon themselves.
+
+尽管如此，他们可能，借着撒旦和世界的诱惑，留存在他们里面的败坏的占优，和他们保守手段的忽略，而堕进悲惨的罪恶中[^17-7]；且一时在其中持续[^17-8]：由此他们招致上帝的不悦[^17-9]，并使祂的圣灵忧伤[^17-10]，达到使他们恩典和安慰的有些度量被剥夺[^17-11]，使他们的心刚硬[^17-12]，他们的良心负伤[^17-13]；使其他人受伤并愤慨[^17-14]，并带给他们自己属世的审判[^17-15]。
+
+[^17-7]: [太26:70](https://biblehub.com/matthew/26-70.htm) 但他在他们所有人面前否认了它。“我不知道你在谈论什么，”他说。 [72](https://biblehub.com/matthew/26-72.htm) 他再次以一个誓言否认它：“我不认识那人！” [74](https://biblehub.com/matthew/26-74.htm) 然后他开始咒骂，而且他向他们发誓：“我不认识那人！”立刻一只公鸡打鸣了。
+
+[^17-8]: [诗51:1](https://biblehub.com/psalms/51-1.htm) （标题）为音乐指挥。大卫的诗篇。当先知拿单在大卫犯下与拔示巴通奸后面见他时。 [14](https://biblehub.com/psalms/51-14.htm) 上帝啊，将我从杀戮的罪行中解救，祢是上帝我的救主，而我的舌头将歌颂祢的正义。
+
+[^17-9]: [赛64:5](https://biblehub.com/isaiah/64-5.htm) 祢来帮助那些乐于行义的人，他们记得你的道路。但当我们持续对他们犯罪时，祢愤怒了。那我们如何能被拯救呢？ [7](https://biblehub.com/isaiah/64-7.htm) 无人求靠祢的名字，或力争持定祢；因为祢已向我们隐藏祢的面，并已将我们弃给我们的罪恶。 [9](https://biblehub.com/isaiah/64-9.htm) 耶和华啊，不要超出度量地愤怒；不要永远记住我们的罪恶。噢，看向我们，我们祷告，因为我们所有都是祢的子民。 [撒下11:27](https://biblehub.com/2_samuel/11-27.htm) 哀悼期完结之后，大卫把她带到他的家，而她成为他的妻子，并为他生了一个儿子。但大卫已做的这事使耶和华不悦。
+
+[^17-10]: [约10:28](https://biblehub.com/ephesians/4-30.htm) 不要使上帝的圣灵忧伤，而你们与祂一同为救赎之日被封印了。
+
+[^17-11]: [诗51:8](https://biblehub.com/psalms/51-8.htm) 让我听见欢喜与高兴；让祢已击碎的骨头欢欣。 [10](https://biblehub.com/psalms/51-10.htm) 上帝啊，在我里面创造一颗纯洁的心，并在我里面更新一个稳固的灵。 [12](https://biblehub.com/psalms/51-12.htm) 对我恢复祢拯救的喜乐，并准予我一个甘愿的灵，以维持我。 [启2:4](https://biblehub.com/revelation/2-4.htm) 然而，我对此指责你：你已舍弃你起先有的爱。 [歌5:2](https://biblehub.com/songs/5-2.htm) 我睡着了，但我的心是醒的。听！我的爱人在敲门：“向我开门，我的姊妹，我的达令，我的情鸽，我完美无缺的那位。我的头以露水被浸透，我的头发以夜晚的潮气被滴湿。” [3](https://biblehub.com/songs/5-3.htm) 我已脱下我的长袍---我必须再次穿上它吗？我已清洗我的脚---我必须再次弄脏它们吗？ [4](https://biblehub.com/songs/5-4.htm) 我的爱人把他的手插入门闩开口；我的心开始为他怦怦直跳。 [6](https://biblehub.com/songs/5-6.htm) 我为我的爱人开门，但我的爱人已离开；他走了。我的心因他的离去而沉沦。我找寻他但没有找到他。我呼唤他，但他没有回答。
+
+[^17-12]: [赛63:17](https://biblehub.com/isaiah/63-17.htm) 耶和华，祢为什么使我们游离祢的道路，并使我们的心刚硬，致我们不崇敬祢？为祢的仆人，属于祢遗产的支派的缘故，请返回。 [可6:52](https://biblehub.com/mark/6-52.htm) 因为他们未曾理解关于饼食的事；他们的心被刚硬了。 [16:14](https://biblehub.com/mark/16-14.htm) 稍后，耶稣向十一人在他们正在吃饭时显现；祂训斥他们缺乏信心，且固执拒绝相信那些在祂已升起后已看见祂的人。
+
+[^17-13]: [诗32:3](https://biblehub.com/psalms/32-3.htm) 当我保持静默时，我的骨头因着我终日叹息而消磨。 [4](https://biblehub.com/psalms/32-4.htm) 日日夜夜，祢的手在我身上沉重；我的力量如在夏天的炎热中被吸干。 [51:8](https://biblehub.com/psalms/51-8.htm) 让我听见欢喜与高兴；让祢已击碎的骨头欢欣。 [51:8](https://biblehub.com/psalms/51-8.htm) 让我听见欢喜与高兴；让祢已击碎的骨头欢欣。
+
+[^17-14]: [撒下12:14](https://biblehub.com/2_samuel/12-14.htm) 但因为由做此你已对耶和华展示十足的藐视，这为你生的儿子将死。”
+
+[^17-15]: [诗89:31](https://biblehub.com/psalms/89-31.htm) 如果他们违背我的预旨而未能保持我的命令， [32](https://biblehub.com/psalms/89-32.htm) 我会用杖惩罚他们的罪恶，用鞭笞惩罚他们的罪邪； [林前11:32](https://biblehub.com/1_corinthians/11-32.htm) 尽管如此，当我们被主以这种方法审判时，我们是在被规训以致我们不会最终与世界一同被定罪。
