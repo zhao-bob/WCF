@@ -37,6 +37,8 @@
 
 ## [第十六章 论善功](https://zhao-bob.github.io/WCF/chapter16)
 
+## [第十七章 论圣徒的持守](https://zhao-bob.github.io/WCF/chapter17)
+
 
 
 
