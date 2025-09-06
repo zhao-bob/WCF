@@ -39,6 +39,8 @@
 
 ## [第十七章 论圣徒的持守](https://zhao-bob.github.io/WCF/chapter17)
 
+## [第十八章 论恩典和拯救的确信](https://zhao-bob.github.io/WCF/chapter18)
+
 
 
 
