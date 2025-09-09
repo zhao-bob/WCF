@@ -31,3 +31,11 @@ Of the Law of God
 [^19-5]: [林前5:7](https://biblehub.com/1_corinthians/5-7.htm) 去除旧酵，以使你们能成为一个新的无酵批次---与你们真实的一样。因为基督，我们的逾越节羔羊，已被献祭。 [林后6:17](https://biblehub.com/2_corinthians/6-17.htm) 因此，“从他们那里出来并要分离，耶和华说。不要碰不洁的东西，而我就会接收你们。” [犹1:23](https://biblehub.com/jude/1-23.htm) 由从火里抓起他们以拯救其他人；对其他人展示宽恕，混合着畏惧---甚至厌恶被败坏的肉体染色的衣物。
 
 [^19-6]: [西2:14](https://biblehub.com/colossians/2-14.htm) 已取消我们法定债务的指控，它与我们对立并定我们罪；祂已将它拿走，将它钉向十字架。 [16](https://biblehub.com/colossians/2-16.htm) 因此，不要让任何人由你吃的或喝的，或关于宗教节日、新月庆典或安息日来评判你们。 [17](https://biblehub.com/colossians/2-17.htm) 这些是要来了的事情的影子；然而，真实在基督中被找到。 [但9:27](https://biblehub.com/daniel/9-27.htm) 他要以一个“七”与许多人确认一个约。在这个“七”的中间，他将终结献祭和供品。并在神殿里，他会立起一个导致荒凉的可恨之物，直到被降旨的末了被倒在他身上。 [弗2:15](https://biblehub.com/ephesians/2-15.htm) 由将律法及其命令和规章搁置在祂的肉体中。祂的旨意是在祂自己里面从两者创造一个新的人种，因而促成和平， [16](https://biblehub.com/ephesians/2-16.htm) 并在一个身体里藉着由祂处死他们敌意的十字架使他们俩都与上帝和解。
+
+## 19.4
+
+> To them also, as a body politic, He gave sundry judicial laws, which expired together with the State of that people; not obliging under any now, further than the general equity thereof may require.
+
+对他们，作为一个政治体，祂也赐下各种司法律法，它们与那子民的国家一起到期；现在不责成子民在任何之下，而远超其中通用的公平可能要求的[^19-7]。
+
+[^19-6]: （[出21](https://biblehub.com/niv/exodus/21.htm) - [出22](https://biblehub.com/niv/exodus/22.htm) ） [创49:10](https://biblehub.com/genesis/49-10.htm) 权杖不会背离犹大，统治者的手杖也不会背离他的脚间，直到它所属的祂要来时，而列邦的顺服都将是祂的。 [彼前2:13](https://biblehub.com/1_peter/2-13.htm) 为主的缘故，要使你们自己服从每个人类权威：不管是皇帝---作为最高权威； [14](https://biblehub.com/1_peter/2-14.htm) 还是总督---他们被祂差派来惩罚那些行恶的人，而举荐那些行义的人。 [太5:17](https://biblehub.com/matthew/5-17.htm) “不要以为我已来要废除律法或众先知；我未曾为废除它们而来，而是为成全它们。 [38](https://biblehub.com/matthew/5-38.htm) “你们已听过经上说，‘以眼还眼，以牙还牙。’ [39](https://biblehub.com/matthew/5-39.htm) 但我告诉你们，不要反抗一个邪恶个体。如果任何人掴你的右脸颊，也要把另一边的脸颊转向他们。 [林前9:8](https://biblehub.com/1_corinthians/9-8.htm) 我仅仅以人类权威说这吗？难道律法没说相同的事吗？ [9](https://biblehub.com/1_corinthians/9-9.htm) 因为经上在摩西律法上记着：“公牛在踩谷的时候，不要给它笼嘴。”这是关于上帝所担忧的公牛吗？ [10](https://biblehub.com/1_corinthians/9-10.htm) 无疑祂为我们而说这，不是吗？是的，这是为我们记的，因为无论谁犁地和脱粒，都应该有能力这样做以希望有份于收获。
