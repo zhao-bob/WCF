@@ -77,3 +77,13 @@ Of the Law of God
 [^19-19]: [加2:16](https://biblehub.com/galatians/2-16.htm) 知道，一个个体不由律法的功劳被称义，而由在耶稣基督中的信心。所以我们也已将我们的信心放置在基督耶稣中，以使我们能由在基督中的信心而不是律法的功劳被称义，因为由律法的功劳无人会被称义。 [路17:10](https://biblehub.com/luke/17-10.htm) 所以，当你们已完成你们被吩咐去做的一切时，你们也应该说：‘我们是不配的仆人；我们仅仅已完成我们的职责。’”
 
 [^19-20]: [罗6:12](https://biblehub.com/romans/6-12.htm) 因此，不要让罪恶在你们必朽的身体中为王，以致你们顺服它邪恶的欲望。 [14](https://biblehub.com/romans/6-14.htm) 因为罪恶将不再是你们的主人，因为你们不在律法之下，而在恩典之下。 [彼前3:8](https://biblehub.com/1_peter/3-8.htm) 最终，你们所有人，要心灵相同，要有同情，彼此相爱，要怜悯而谦卑。 [9](https://biblehub.com/1_peter/3-9.htm) 不要以邪恶报应邪恶，或以侮辱报应侮辱。正相反，要以祝福报应邪恶，因为你们向此被召唤以致你们能继承一个祝福。 [10](https://biblehub.com/1_peter/3-10.htm) 因为，“无论谁会爱生命并看见好日子，必须使他们的舌头避开邪恶，并使他们的嘴唇避开诡诈的话语。 [11](https://biblehub.com/1_peter/3-11.htm) 他们必须从邪恶转离并行善；他们必须寻求和平并追求它。 [12](https://biblehub.com/1_peter/3-12.htm) 因为主的眼睛在义人上，而祂的耳朵专注于他们的祷告，但主的脸却与那些作恶的人相对。” [诗34:12](https://biblehub.com/psalms/34-12.htm) 你们中无论谁爱生命并渴望看见许多好日子， [13](https://biblehub.com/psalms/34-13.htm) 要使你的舌头避开邪恶，并使你的嘴唇避开说谎。 [14](https://biblehub.com/psalms/34-14.htm) 从邪恶转离并行善；寻求和平并追求它。 [15](https://biblehub.com/psalms/34-15.htm) 耶和华的眼睛在义人上，而祂的耳朵专注于他们的呼喊； [16](https://biblehub.com/psalms/34-16.htm) 但耶和华的脸与那些作恶的人相对，以将他们的名从地上抹去。 [来12:28](https://biblehub.com/hebrews/12-28.htm) 因此，既然我们在领受一个不可能被动摇的国度，就让我们感谢，并这样以崇敬和惊惧欣然敬拜上帝， [29](https://biblehub.com/hebrews/12-29.htm) 因为我们的“上帝是吞灭之火”。
+
+## 19.7
+
+> Neither are the forementioned uses of the law contrary to the grace of the Gospel, but do sweetly comply with it; the Spirit of Christ subduing and enabling the will of man to do that freely, and cheerfully, which the will of God, revealed in the law, requires to be done.
+
+律法前述的使用都不与福音的恩典相悖，而确实甜美地与它依从[^19-21]；基督的圣灵制伏并赋能人的意志以自由地、并情愿地做那，这是律法中被启示的上帝的意志所要求被完成的[^19-22]。
+
+[^19-21]: [加3:21](https://biblehub.com/galatians/3-21.htm) 因此，律法是与上帝的应许相对吗？绝对不是！因为假使一种律法被赐予而能赋予生命，那么正义肯定就会由律法而来。
+
+[^19-22]: [结36:27](https://biblehub.com/ezekiel/36-27.htm) 而我会把我的圣灵放置在你们里面，并感动你们以遵循我的预旨，而谨慎保持我的律法。 [来8:10](https://biblehub.com/hebrews/8-10.htm) 这是在那时之后我会与以色列子民确立的约，主宣告。我会将我的律法放置在他们的心灵里并将它们刻在他们心上。我会是他们的上帝，而他们会是我的子民。 [耶31:33](https://biblehub.com/jeremiah/31-33.htm) “这是我在那时之后会与以色列子民立的圣约。”耶和华宣告。“我会将我的律法放置在他们的心灵中并将它刻在他们心上。我会是他们的上帝，而他们会是我的子民。”
