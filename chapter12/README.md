@@ -18,7 +18,7 @@ Of Adoption
 
 [^12-5]: [弗3:12](https://biblehub.com/ephesians/3-12.htm) 在祂里面并藉着在祂中的信心，我们能以自由和信赖接近上帝。 [罗5:2](https://biblehub.com/romans/5-2.htm) 藉着祂，我们已由信心获得进入这现在我们在其中站立的恩典的权限。而我们在上帝荣耀的希望中夸耀。
 
-[^12-6]: [加4:6](https://biblehub.com/galatians/4-6.htm) 因为你们是祂的儿子，上帝差遣了祂的圣子的圣灵进入我们内心，那高呼“阿爸，父”的圣灵。
+[^12-6]: [加4:6](https://biblehub.com/galatians/4-6.htm) 因为你们是祂的儿子，上帝差遣了祂的圣子的圣灵进入我们内心，那高呼“阿爸，圣父”的圣灵。
 
 [^12-7]: [诗103:13](https://biblehub.com/psalms/103-13.htm) 如同一个父亲怜悯他的子女，耶和华一样怜悯那些敬畏他的人；
 
