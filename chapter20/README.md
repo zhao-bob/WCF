@@ -40,8 +40,18 @@ Of Christian Liberty, and Liberty of Conscience
 
 [^20-13]: [罗10:17](https://biblehub.com/romans/10-17.htm) 因此，信心来自听到消息，而消息藉着关于基督的言被听到。 [14:23](https://biblehub.com/romans/14-23.htm) 但无论谁有怀疑，如果他们吃，就被定罪，因为他们的吃不是出于信心；而一切不来自信心的，都是罪恶。 [赛8:20](https://biblehub.com/isaiah/8-20.htm) 请教上帝的指令和警告的见证，如果任何人不按照这言的讲话，他们就没有黎明之光。 [徒17:11](https://biblehub.com/acts/17-11.htm) 现在庇哩亚犹太人具有比帖撒罗尼迦更高尚的品格，因为他们以极大的殷切领受了消息，并每天都考察圣经，以看保罗说的是否真实。 [约4:22](https://biblehub.com/john/4-22.htm) 你们撒马利亚人敬拜你们不知道的；我们敬拜我们确实知道的，因为拯救源自犹太人。 [何5:11](https://biblehub.com/hosea/5-11.htm) 以法莲被压迫，在审判中被践踏，因为专心在追求偶像上。 [启13:12](https://biblehub.com/revelation/13-12.htm) 它代它行使了第一只猛兽的所有权柄，并使地上和它的居民敬拜第一只猛兽，而它致命的伤口已被治愈。 [16](https://biblehub.com/revelation/13-16.htm) 它还强迫所有族民，无论伟大和渺小，富有和贫穷，自由和奴隶，都在他们的右手或在他们额头上都领受一个标记， [17](https://biblehub.com/revelation/13-17.htm) 以致他们不能买或卖，除非他们有了那标记---那猛兽的名字或它名字的数字。 [耶8:9](https://biblehub.com/jeremiah/8-9.htm) 智者将被置于耻辱；他们将感到沮丧并被困住。既然他们已拒斥耶和华的言，他们有什么样的智慧呢？
 
+## 20.3
+
 > They who, upon pretence of Christian liberty, do practice any sin, or cherish any lust, do thereby destroy the end of Christian liberty, which is, that being delivered out of the hands of our enemies, we might serve the Lord without fear, in holiness and righteousness before Him, all the days of our life.
 
 他们那些假装属基督自在的人，确实实践任何罪恶，或钟爱任何情欲，从而确实摧毁属基督的自在目的，那就是，我们从我们敌人的手中被解救出，而以我们生命的所有日子能无所畏惧地在祂面前在神圣和正义中侍奉主[^20-14]。
 
 [^20-14]: [西5:13](https://biblehub.com/galatians/5-13.htm) 我的弟兄姊妹，你们被召唤而自由了。但不要用你们的自由沉溺于肉体；相反，要在爱中谦卑地彼此服侍。 [彼前2:16](https://biblehub.com/1_peter/2-16.htm) 要作为自由族民来生活，但不要用你们的自由作为邪恶的一种掩盖；要作为上帝的仆人来生活。 [彼后2:19](https://biblehub.com/2_peter/2-19.htm) 他们向他们许诺自由，而他们自己却是腐化的奴隶---因为“无论什么已掌控一个人，他就是什么的奴隶”。 [约8:34](https://biblehub.com/john/8-34.htm) 耶稣回复：“我实实在在告诉你们，每一个犯罪的，都是罪恶的奴隶。 [路1:74](https://biblehub.com/luke/1-74.htm) 以将我们从我们敌人的手中营救，并使我们有能力无所畏惧地侍奉祂 [75](https://biblehub.com/luke/1-75.htm) 以我们所有日子在祂面前在神圣和正义中。
+
+## 20.4
+
+> And because the powers which God has ordained, and the liberty which Christ has purchased are not intended by God to destroy, but mutually to uphold and preserve one another, they who, upon pretence of Christian liberty, shall oppose any lawful power, or the lawful exercise of it, whether it be civil or ecclesiastical, resist the ordinance of God.
+
+而因为上帝已按立的权柄，与基督已赎取的自在，不是上帝打算要摧毁的，而是要互相高举并彼此保守，而他们那些假装属基督自在的，会反叛任何合法的权柄，或其合法的行使，无论这是民事的还是神职的，他们就是在反抗上帝的预令[^20-15]。
+
+[^20-15]: [太12:25](https://biblehub.com/matthew/12-25.htm) 耶稣知道他们的心思就对他们说：“每个分裂自己的国度将被毁坏，每个分裂自己的城市或家室都不会站立。 [彼前2:13](https://biblehub.com/1_peter/2-13.htm) 为主的缘故，要使你们自己服从每个人类权威：不管是皇帝---作为最高权威； [14](https://biblehub.com/1_peter/2-14.htm) 还是总督---他们被祂差派来惩罚那些行恶的人，而举荐那些行义的人。 [16](https://biblehub.com/1_peter/2-16.htm) 要作为自由族民来生活，但不要用你们的自由作为邪恶的一种掩盖；要作为上帝的仆人来生活。 [罗13:1](https://biblehub.com/romans/13-1.htm) 让每个人顺从治理权威，因为除了上帝已确立的外，没有其他权威。现存的权威已被上帝确立。 [2](https://biblehub.com/romans/13-2.htm) 因此，无论谁叛逆权威，就在叛逆上帝已设立的，而那些这样做的人会给他们自己带来审判。 [3](https://biblehub.com/romans/13-3.htm) 因为统治者不是对那些行义的人，而是对那些行恶的人握有恐惧。你们想从对当权者的畏惧中释放吗？那么行义事，你们就会被举荐。 [4](https://biblehub.com/romans/13-4.htm) 因为当权的那位是为你们的善的上帝的仆人。但如果你们行恶，要害怕，因为统治者不无原因地举剑。他们是上帝的仆人，忿怒的代理以惩罚行恶者。 [5](https://biblehub.com/romans/13-5.htm) 因此，服从于权威是必要的，不仅因为有可能的惩罚，而且也出于良心。 [6](https://biblehub.com/romans/13-6.htm) 这也是为什么你们纳税，因为权威们是上帝的仆人，他们把他们的全职时间都献给治理。 [7](https://biblehub.com/romans/13-7.htm) 把你们欠每个人的给他们：如果你们欠税，就交税；如果是收入，则给收入；如果是尊重，就给尊重；如果是荣誉，就给荣誉。 [8](https://biblehub.com/romans/13-8.htm) 除了彼此相爱这持续的债，不要有债依旧未付，因为无论谁爱别人就已成全律法。 [来13:17](https://biblehub.com/hebrews/13-17.htm) 对你们的领袖有信赖，并服从他们的权威，因为他们警守你们，如同那些必须交代的人。这样做以使他们的功劳会成为一种喜乐，而不是一种负担，而那会对你们沒有益处。
