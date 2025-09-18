@@ -43,6 +43,8 @@
 
 ## [第十九章 论上帝的律法](https://zhao-bob.github.io/WCF/chapter19)
 
+## [第二十章 论属基督的自在、及良心自在](https://zhao-bob.github.io/WCF/chapter20)
+
 
 
 
