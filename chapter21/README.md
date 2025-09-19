@@ -2,7 +2,7 @@
 
 Of Religious Worship, and the Sabbath Day
 
-## 20.1
+## 21.1
 
 > The light of nature shows that there is a God, who has lordship and sovereignty over all, is good, and does good unto all, and is therefore to be feared, loved, praised, called upon, trusted in, and served, with all the heart, and with all the soul, and with all the might. But the acceptable way of worshipping the true God is instituted by Himself, and so limited by His own revealed will, that He may not be worshipped according to the imaginations and devices of men, or the suggestions of Satan, under any visible representation, or any other way not prescribed in the holy Scripture.
 
@@ -11,3 +11,15 @@ Of Religious Worship, and the Sabbath Day
 [^21-1]: [罗1:20](https://biblehub.com/romans/1-20.htm) 因为自创造世界以来，上帝不可见的品质---祂永恒的大能和神的本性---通过已被造之物被理解，已被清晰地看见，以致人们没有借口。 [徒17:24](https://biblehub.com/acts/17-24.htm) “制造了世界和其中一切的上帝是天与地的主，而不住在人手所建造的神殿里。 [诗119:68](https://biblehub.com/psalms/119-68.htm) 祢是善良的，而祢所做的是善的；请教导我祢的预旨。 [耶10:7](https://biblehub.com/jeremiah/10-7.htm) 谁不该敬畏祢，列邦之王？这是祢应当的。在列邦所有智慧领袖之间以及在他们所有王国中，没有人像祢一样。 [诗31:23](https://biblehub.com/psalms/31-23.htm) 要爱耶和华，祂所有信实的子民！耶和华保守那些忠实于祂的人，但对骄傲的人祂足额偿还。 [18:3](https://biblehub.com/psalms/18-3.htm) 我向值得赞美的耶和华呼唤，而我就已从我的敌人中被拯救 [罗10:12](https://biblehub.com/romans/10-12.htm) 因为犹太人和外邦人之间没有差异---相同的主是所有之主，并丰富地祝福所有求靠祂的人， [诗62:8](https://biblehub.com/psalms/62-8.htm) 你们子民，要时时刻刻信任祂；向祂倾倒你们的心，因为上帝是我们的避难所。 [书24:14](https://biblehub.com/joshua/24-14.htm) “现在要敬畏耶和华并用所有的信实侍奉祂。丢弃你们祖先在幼发拉底河对岸和在埃及敬拜的神，而侍奉耶和华。 [可12:33](https://biblehub.com/mark/12-33.htm) 用你们所有的心、用你们所有的理解、用你们所有的力量去爱祂，并要爱邻如己，这比所有燔祭和献祭都重要。”
 
 [^21-2]: [申12:32](https://biblehub.com/deuteronomy/12-32.htm) 你们务必行所有我命令你们的；不要对其添加或从其减去。 [太15:9](https://biblehub.com/matthew/15-9.htm) 他们徒然地敬拜我；他们的教导不过是人类的规则。’” [徒17:25](https://biblehub.com/acts/17-25.htm) 而且祂不被人手侍奉，仿佛祂需要任何东西。相反，祂本身赐给每个人生命与呼吸以及其他一切。 [太4:9](https://biblehub.com/matthew/4-9.htm) “这所有我都会赐给你，”他说，“如果你会俯伏并敬拜我。” [10](https://biblehub.com/matthew/4-10.htm) 耶稣对他说：“远离我，撒旦！因为经上记着：‘要敬拜主你们的上帝，并惟独侍奉祂。’” （也参见[申4:15](https://biblehub.com/deuteronomy/4-15.htm) ，[16](https://biblehub.com/deuteronomy/4-16.htm) ，[17](https://biblehub.com/deuteronomy/4-17.htm) ，[18](https://biblehub.com/deuteronomy/4-18.htm) ，[19](https://biblehub.com/deuteronomy/4-19.htm) ，[20](https://biblehub.com/deuteronomy/4-20.htm) ） [出20:4](https://biblehub.com/exodus/20-4.htm) “你不可为你自己以任何在天国之上、在地之下或在诸水里的东西的形式制造塑像。 [5](https://biblehub.com/exodus/20-5.htm) 你不可向他们俯伏或敬拜它们；因为我，耶和华你的上帝，是一位忌邪的上帝，为父母的罪惩罚其子女，至那些恨我的人的第三代和第四代， [6](https://biblehub.com/exodus/20-6.htm) 却向那些爱我并保持我诫命的千万代展示爱。
+
+## 21.2
+
+> Religious worship is to be given to God, the Father, Son, and Holy Ghost; and to Him alone; not to angels, saints, or any other creature: and, since the fall, not without a Mediator; nor in the mediation of any other but of Christ alone.
+
+宗教敬拜要被献给上帝、圣父、圣子和圣魂；且惟独给祂[^21-3]；不是给天使、圣徒或任何其他受造物[^21-4]：而且，自堕落以来，不无一位中保；且惟独基督，也没有在任何其他的中保中[^21-5]。
+
+[^21-3]: [太4:10](https://biblehub.com/matthew/4-10.htm) 耶稣对他说：“远离我，撒旦！因为经上记着：‘要敬拜主你们的上帝，并惟独侍奉祂。’” [约5:23](https://biblehub.com/john/5-23.htm) 以使所有人能如尊敬圣父一样尊敬圣子。无论谁不尊敬圣子，就是不尊敬差派了祂的圣父。 [林后13:14](https://biblehub.com/2_corinthians/13-14.htm) 愿主耶稣基督的恩典、上帝的爱和圣灵的团契与你们所有人同在。
+
+[^21-4]: [西2:18](https://biblehub.com/colossians/2-18.htm) 不要让任何以虚假谦卑和天使敬拜为乐的人使你们失格。这样一个个体也查究关于他们已看到的大量细节；他们以无聊的观念被他们不属灵的心灵膨胀。 [启19:10](https://biblehub.com/revelation/19-10.htm) 听到这，我俯在他的脚下敬拜他。但他对我说：“不要那样做！我同你以及你的紧握耶稣的见证的弟兄姊妹是同主的仆人。要敬拜上帝！因为是预言的圣灵为耶稣担任见证。” [罗1:25](https://biblehub.com/romans/1-25.htm) 他们为谎言交换了关于上帝的真理，并敬拜和侍奉被造之物，而不是被永远赞美的造物主。阿门。
+
+[^21-5]: [约14:6](https://biblehub.com/john/14-6.htm) 耶稣回答：“我是道路、真理和生命。除非藉着我，就无人到圣父这里来。 [提前2:5](https://biblehub.com/1_timothy/2-5.htm) 因为上帝和人类之间有独一的上帝和独一的中保---基督耶稣那人， [弗2:18](https://biblehub.com/ephesians/2-18.htm) 因为藉着祂，我们两者都由一位圣灵拥有归向圣父的权限。 [西3:17](https://biblehub.com/colossians/3-17.htm) 而无论你们做什么，不管是在言词还是事迹上，所有都要奉主耶稣的名去做，藉着祂将感谢献给上帝圣父。
