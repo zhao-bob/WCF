@@ -26,9 +26,9 @@ Of Religious Worship, and the Sabbath Day
 
 ## 21.3
 
-> Prayer, with thanksgiving, being one special part of religious worship, is by God required of all men: and, that it may be accepted, it is to be made in the name of the Son, by the help of His Spirit, according to His will, with understanding, reverence, humility, fervency, faith, love and perseverance;
+> Prayer, with thanksgiving, being one special part of religious worship, is by God required of all men: and, that it may be accepted, it is to be made in the name of the Son, by the help of His Spirit, according to His will, with understanding, reverence, humility, fervency, faith, love and perseverance; and, if vocal, in a known tongue.
 
-祷告，带着感恩，为宗教敬拜的一个特殊部分[^21-6]，是上帝要求所有人的[^21-7]：而，为使它能被接受，它要奉圣子的名[^21-8]，由祂的圣灵的帮助[^21-9]，按照祂的意志[^21-10]，带着理解、崇敬、谦卑、炽热、信心、爱和持守[^21-11]；
+祷告，带着感恩，为宗教敬拜的一个特殊部分[^21-6]，是上帝要求所有人的[^21-7]：而，为使它能被接受，它要奉圣子的名[^21-8]，由祂的圣灵的帮助[^21-9]，按照祂的意志[^21-10]，带着理解、崇敬、谦卑、炽热、信心、爱和持守[^21-11]；而如果发声，则以一种已知的方言来求[^21-12]。
 
 [^21-6]: [腓4:6](https://biblehub.com/philippians/4-6.htm) 不要为任何事情焦虑，而是在每个情况下，由祷告和请愿，带着感恩，向上帝呈上你们的请求。
 
@@ -41,3 +41,19 @@ Of Religious Worship, and the Sabbath Day
 [^21-10]: [约壹5:14](https://biblehub.com/1_john/5-14.htm) 这是我们在接近上帝时拥有的信赖：如果我们按照祂的意志问求任何事情，祂就听见我们。
 
 [^21-11]: [诗47:7](https://biblehub.com/psalms/47-7.htm) 因为上帝是全地之王；为祂唱一首赞美的诗篇。 [传5:1](https://biblehub.com/ecclesiastes/5-1.htm) 当你去上帝的家时，要守卫你的脚步。要走近去听，而不是去奉上愚蠢人的献祭，他们不知道他们行恶。 [2](https://biblehub.com/ecclesiastes/5-2.htm) 不要快速开口，不要仓促于心在上帝面前讲出任何话。上帝在天国而你在地上，所以让你的言词稀少。 [来12:28](https://biblehub.com/hebrews/12-28.htm) 因此，既然我们在领受一个不可被动摇的国度，就让我们感谢，并这样以崇敬和惊惧敬拜上帝， [创18:27](https://biblehub.com/genesis/18-27.htm) 于是亚伯拉罕再次大声讲：“既然我已如此无畏地对耶和华讲话，虽然除了尘土和灰烬我什么都不是， [雅5:16](https://biblehub.com/james/5-16.htm) 因此，相互忏悔你们的罪恶，并相互祷告，以致你们能被治愈。一个正义个体的祷告是有权柄而有效力的。 [1:6](https://biblehub.com/james/1-6.htm) 但当你们问求时，你们必须相信且不怀疑，因为怀疑的人像海浪一样，被风吹而翻腾。 [7](https://biblehub.com/james/1-7.htm) 那个人不应期望从主那里领受任何东西。 [可11:24](https://biblehub.com/mark/11-24.htm) 因此，我告诉你们，无论你们在祷告中问求什么，相信你们已领受它，而它就会是你们的。 [太6:12](https://biblehub.com/matthew/6-12.htm) 并对我们饶恕我们的债，如同我们也已饶恕我们的欠债人。 [14](https://biblehub.com/matthew/6-14.htm) 因为当别人对你们犯罪时，如果你们饶恕他们，你们天国的圣父也会饶恕你们。 [15](https://biblehub.com/matthew/6-15.htm) 但如果你们不对别人饶恕他们的罪恶，你们的圣父也不会饶恕你们的罪恶。 [西4:2](https://biblehub.com/colossians/4-2.htm) 将你们自己奉献于祷告，警醒并感谢。 [弗6:18](https://biblehub.com/ephesians/6-18.htm) 并在圣灵中在所有情形以各种祈祷与请求来祷告。以此在心灵中，警觉并总是保持不断为所有主的子民祷告。
+
+[^21-12]: [林前14:14](https://biblehub.com/1_corinthians/14-14.htm) 因为如果我用方言祷告，我的灵祷告，但我的心灵却无果效。
+
+## 21.4
+
+> Prayer is to be made for things lawful; and for all sorts of men living, or that shall live hereafter: but not for the dead, nor for those of whom it may be known that they have sinned the sin unto death.
+
+祷告是为合法的事情[^21-13]；以及为活着的，或那今后要活的各类人而求[^21-14]：而不是为死人[^21-15]，也不是为那些能尽知他们已犯向死之罪恶的人[^21-16]。
+
+[^21-13]: [约壹5:14](https://biblehub.com/1_john/5-14.htm) 这是我们在接近上帝时拥有的信赖：如果我们按照祂的意志问求任何事情，祂就听见我们。
+
+[^21-14]: [提前2:1](https://biblehub.com/1_timothy/2-1.htm) 于是我敦促，首先，请愿、祷告、调解和感恩要为所有子民来求--- [2](https://biblehub.com/1_timothy/2-2.htm) 为国王和所有那些当权者，以使我们能在所有敬神和神圣中过和平和安静的生活。 [约17:20](https://biblehub.com/john/17-20.htm) “我的祷告不是惟独为他们。我也为那些藉着他们的消息会信仰我的人祷告， [撒下7:29](https://biblehub.com/2_samuel/7-29.htm) 现在请愿意保佑祢仆人的家族，以使它永远在祢的视域中持续；因为祢，主宰耶和华，已讲话，并以祢的祝福，祢仆人的家族将永远被祝福。 [得4:12](https://biblehub.com/ruth/4-12.htm) 藉着耶和华由这个年轻女人赐给你们的孩子，愿你的家庭像塔玛为犹大所生的法勒斯的一样。”
+
+[^21-15]: [撒下12:21](https://biblehub.com/2_samuel/12-21.htm) 他的侍从问他：“你为什么这样行？小孩活着的时候，你禁食并哭泣，但现在小孩死了，你却起来并进食！” [22](https://biblehub.com/2_samuel/12-22.htm) 他回答：“在小孩仍然活着的时候，我禁食并哭泣。我想，‘谁知道呢？或许耶和华对我仁慈而让孩子存活。’ [23](https://biblehub.com/2_samuel/12-23.htm) 但现在他死了，我为什么要继续禁食呢？我能再带他回来吗？我会去他那，他却不会返回我这。” [路16:25](https://biblehub.com/luke/16-25.htm) “但亚伯拉罕回复：‘儿子，请记住在你的一生，你领受了你的好事，而拉撒路领受了坏事，但现在他在这里被安慰，而你却在剧痛中。 [26](https://biblehub.com/luke/16-26.htm) 而除了这所有之外，我们和你之间一条巨大的鸿沟已被设置到位，以致那些想从这里到你那的人不能，而任何人也不能从那里跨越到我们这。’ [启14:13](https://biblehub.com/revelation/14-13.htm) 然后我听见一个从天国而来的话音说：“记下这：从今以后死在主里的死人有福了。”“是的，”圣灵说，“他们会从苦劳中安息，因为他们的事迹将跟随他们。”
+
+[^21-16]: [约壹5:16](https://biblehub.com/1_john/5-16.htm) 如果你看到任何弟兄姊妹犯下一种不导致死亡的罪恶，你应该祷告而上帝会赐给他们生命。我是指那些其的罪恶不会导致死亡的人。有一种导致死亡的罪恶。我并不在说你应该为那祷告。
