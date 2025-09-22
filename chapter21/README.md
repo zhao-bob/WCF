@@ -57,3 +57,29 @@ Of Religious Worship, and the Sabbath Day
 [^21-15]: [撒下12:21](https://biblehub.com/2_samuel/12-21.htm) 他的侍从问他：“你为什么这样行？小孩活着的时候，你禁食并哭泣，但现在小孩死了，你却起来并进食！” [22](https://biblehub.com/2_samuel/12-22.htm) 他回答：“在小孩仍然活着的时候，我禁食并哭泣。我想，‘谁知道呢？或许耶和华对我仁慈而让孩子存活。’ [23](https://biblehub.com/2_samuel/12-23.htm) 但现在他死了，我为什么要继续禁食呢？我能再带他回来吗？我会去他那，他却不会返回我这。” [路16:25](https://biblehub.com/luke/16-25.htm) “但亚伯拉罕回复：‘儿子，请记住在你的一生，你领受了你的好事，而拉撒路领受了坏事，但现在他在这里被安慰，而你却在剧痛中。 [26](https://biblehub.com/luke/16-26.htm) 而除了这所有之外，我们和你之间一条巨大的鸿沟已被设置到位，以致那些想从这里到你那的人不能，而任何人也不能从那里跨越到我们这。’ [启14:13](https://biblehub.com/revelation/14-13.htm) 然后我听见一个从天国而来的话音说：“记下这：从今以后死在主里的死人有福了。”“是的，”圣灵说，“他们会从苦劳中安息，因为他们的事迹将跟随他们。”
 
 [^21-16]: [约壹5:16](https://biblehub.com/1_john/5-16.htm) 如果你看到任何弟兄姊妹犯下一种不导致死亡的罪恶，你应该祷告而上帝会赐给他们生命。我是指那些其的罪恶不会导致死亡的人。有一种导致死亡的罪恶。我并不在说你应该为那祷告。
+
+## 21.5
+
+> The reading of the Scriptures with godly fear, the sound preaching and conscionable hearing of the Word, in obedience unto God, with understanding, faith and reverence, singing of psalms with grace in the heart; as also, the due administration and worthy receiving of the sacraments instituted by Christ, are all parts of the ordinary religious worship of God: beside religious oaths, vows, solemn fastings, and thanksgivings upon special occasions, which are, in their several times and seasons, to be used in an holy and religious manner.
+
+以敬神的敬畏诵读圣经[^21-17]，健全的传讲[^21-18]和凭良心聆听圣言，以理解、信心和崇敬，顺服于上帝[^21-19]，带着恩典在内心歌唱诗篇[^21-20]；同样，对由基督设立的圣礼的适当施行和配得的领受，是上帝的一般宗教敬拜的所有部分[^21-21]：此外宗教誓言[^21-22]、誓约[^21-23]、庄严的禁食[^21-24]、和在特殊情形下的感恩[^21-25]，这些在它们多个时期和时节中，要以神圣和宗教的方式被使用[^21-26]。
+
+[^21-17]: [徒15:21](https://biblehub.com/acts/15-21.htm) 因为摩西的律法从最早的时期起就已在每个城市被传讲，并在每个安息日在会堂中被诵读。 [启1:3](https://biblehub.com/revelation/1-3.htm) 大声诵读这预言的言词的人是有福的，而那些听见它并将其中所记放在内心的人是有福的，因为那时间近了。
+
+[^21-18]: [提后4:2](https://biblehub.com/2_timothy/4-2.htm) 要传讲那言；要在应季和非应季做预备；要纠正、训斥和鼓励---以极大的耐心和谨慎的指令。
+
+[^21-19]: [雅1:22](https://biblehub.com/james/1-22.htm) 不要仅仅听这言，而这样欺骗你们自己。要做它说的。 [徒10:33](https://biblehub.com/acts/10-33.htm) 所以我立刻派人去请你，而你来是件好事。现在我们在上帝的临在中都在此听从主已命令你告诉我们的一切。” [太13:19](https://biblehub.com/matthew/13-19.htm) 当任何人听见关于国度的消息而不理解它时，恶魔就来并抢走播种在他们内心的东西。这是那沿着路径播下的种子。 [来4:2](https://biblehub.com/hebrews/4-2.htm) 因为我们也已有向我们宣布了的佳音，正如他们所有；但他们听见的消息对他们没有价值，因为他们没有分享那些顺服的人的信心。 [赛66:2](https://biblehub.com/isaiah/66-2.htm) 难道不是我的手已制造这些万物，而所以它们就进到存有吗？”耶和华宣告。“这些是我青睐的人：那些在灵里谦卑和痛悔，并因我的言战兢的人。
+
+[^21-20]: [西3:16](https://biblehub.com/colossians/3-16.htm) 在你们藉着诗篇、赞美诗和圣歌，以源自圣灵的所有智慧彼此教导和劝诫，在你们内心怀着感激向上帝歌唱时，让基督的消息丰富地栖居在你们中间。 [弗5:19](https://biblehub.com/ephesians/5-19.htm) 以来自圣灵的诗篇、赞美诗和圣歌彼此讲话。从你们的内心向主歌唱并创作音乐， [雅5:13](https://biblehub.com/james/5-13.htm) 你们中间任何人在烦恼中吗？让他们祷告。任何人是否幸福？让他们歌唱赞美的歌。
+
+[^21-21]: [太28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗， [林前11:23](https://biblehub.com/1_corinthians/11-23.htm) 因为我从主领受了我也传给了你们的：主耶稣在祂被出卖的那夜，拿起饼， [24](https://biblehub.com/1_corinthians/11-24.htm) 而当祂献完感谢时，祂擘开它并说：“这是我的身体，是为你们的；要这样做以记念我。” [25](https://biblehub.com/1_corinthians/11-25.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是在我血中新的圣约；每当你们喝它时，都要这样做，以记念我。” [26](https://biblehub.com/1_corinthians/11-26.htm) 因为无论何时你们吃这饼，喝这杯，你们就宣布主的死，直到祂来。 [27](https://biblehub.com/1_corinthians/11-27.htm) 因此，无论谁以不配的方式吃主的饼或喝主的杯的，就是犯对主的身体和血犯罪的罪行。 [28](https://biblehub.com/1_corinthians/11-28.htm) 每个人在吃这饼和喝这杯之前都应该审查他们自己。 [徒2:42](https://biblehub.com/acts/2-42.htm) 他们将他们自己奉献给使徒们的教导并献给团契，擘饼及祷告。
+
+[^21-22]: [申6:13](https://biblehub.com/deuteronomy/6-13.htm) 要敬畏耶和华你们的上帝，惟独侍奉祂并奉祂的名起誓。 [尼10:29](https://biblehub.com/nehemiah/10-29.htm) 现在，所有这些人都加入他们的以色列贵族同胞中，以咒诅和誓言束缚他们自己，以遵循藉着上帝的仆人摩西被赐的上帝的律法，并谨慎遵守耶和华我们主的所有命令、规章和预旨。
+
+[^21-23]: [赛19:21](https://biblehub.com/isaiah/19-21.htm) 所以耶和华会向埃及人揭晓祂自己，而在那日他们会承认耶和华。他们会用献祭和素祭敬拜；他们会向耶和华宣誓，并遵守它们。 [传5:4](https://biblehub.com/ecclesiastes/5-4.htm) 当你向上帝宣誓时，不要耽搁成全它。祂不喜悦愚蠢的人；要成全你的誓约。 [5](https://biblehub.com/ecclesiastes/5-5.htm) 不宣誓好过宣誓而不成全它。
+
+[^21-24]: [珥2:12](https://biblehub.com/joel/2-12.htm) “就在现在，”耶和华宣告，“用你们所有的心，以禁食、哭泣、哀悼回归我。 [斯4:16](https://biblehub.com/esther/4-16.htm) “去，把所有在书珊的犹太人聚集在一起，并为我禁食。三天不吃不喝，不分昼夜。我和我的侍从会像你们一样禁食。当这完成时，我会晋见国王，即使这是对抗律法的。而如果我灭亡，我就灭亡。” [太9:15](https://biblehub.com/matthew/9-15.htm) 耶稣回答：“新郎和他的客人在一起时，他们怎么能哀悼呢？那时间将到来，新郎会从他们中被带走；那时他们将禁食。 [林前7:5](https://biblehub.com/1_corinthians/7-5.htm) 不要互相剥夺，除非可能由互相容许而只为一时，以致你们能将你们自己奉献于祷告。然后再次到一起，以致撒旦不会因为你们缺乏自制而诱惑你们。
+
+[^21-25]: （[诗107全篇](https://biblehub.com/niv/psalms/107.htm.htm) ） [斯9:22](https://biblehub.com/esther/9-22.htm) 在当犹太人从他们敌人解脱的时刻，而在当他们的忧愁被转为喜乐，而他们的哀悼成被转为庆祝的一天的月份时。他记下它们以遵从这些日子，作为筵席和喜乐，并彼此赠送食物的礼品并给穷人礼物的日子。
+
+[^21-26]: [来12:28](https://biblehub.com/hebrews/12-28.htm) 因此，既然我们在领受一个不可被动摇的国度，就让我们感谢，并这样以崇敬和惊惧敬拜上帝，
