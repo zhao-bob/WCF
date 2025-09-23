@@ -83,3 +83,23 @@ Of Religious Worship, and the Sabbath Day
 [^21-25]: （[诗107全篇](https://biblehub.com/niv/psalms/107.htm.htm) ） [斯9:22](https://biblehub.com/esther/9-22.htm) 在当犹太人从他们敌人解脱的时刻，而在当他们的忧愁被转为喜乐，而他们的哀悼成被转为庆祝的一天的月份时。他记下它们以遵从这些日子，作为筵席和喜乐，并彼此赠送食物的礼品并给穷人礼物的日子。
 
 [^21-26]: [来12:28](https://biblehub.com/hebrews/12-28.htm) 因此，既然我们在领受一个不可被动摇的国度，就让我们感谢，并这样以崇敬和惊惧敬拜上帝，
+
+## 21.6
+
+> Neither prayer, nor any other part of religious worship, is now, under the Gospel, either tied unto, or made more acceptable by any place in which it is performed, or towards which it is directed: but God is to be worshipped everywhere, in spirit and truth; as, in private families daily, and in secret, each one by himself; so, more solemnly in the public assemblies, which are not carelessly or wilfully to be neglected, or forsaken, when God, by His Word or providence, calls thereunto.
+
+现在，在福音之下，无论是祷告，还是宗教崇拜的任何其他部分，既不与它被实行，或它被指向的任何地方相联系，也不由此而更被悦纳[^21-27]：而是上帝要被敬拜，在任何地方[^21-28]，在灵和真理中[^21-29]；如在私人家庭中[^21-30]每日[^21-31]，且隐秘地，各人独自[^21-32]；同样，在公共集会中则更庄严，这是当上帝由祂的圣言或神意召唤至此时，不能漫不经心或故意被忽略或舍弃的[^21-33]。
+
+[^21-27]: [约4:21](https://biblehub.com/john/4-21.htm) “女人啊，”耶稣回复，“相信我，你将既不在这山峰上，也不在耶路撒冷敬拜圣父的时候正到来。
+
+[^21-28]: [玛1:11](https://biblehub.com/malachi/1-11.htm) 我的名会在列邦中间伟大，从日出之地到日落之地。在每个地方，熏香和纯洁的供品会被带给我，因为我的名会在列邦中间伟大，”万军之耶和华说。 [提前2:8](https://biblehub.com/1_timothy/2-8.htm) 因此，我想要每个地方的人都祷告，不带愤怒或争辩地举起神圣的手。
+
+[^21-29]: [约4:23](https://biblehub.com/john/4-23.htm) 但真正的敬拜者将在圣灵和真理中敬拜圣父的时候正到来并现在已到来，因为他们是圣父寻求的那类敬拜者。 [24](https://biblehub.com/john/4-24.htm) 上帝是灵，而祂的敬拜者必须在圣灵中和在真理中敬拜。
+
+[^21-30]: [耶10:25](https://biblehub.com/jeremiah/10-25.htm) 把祢的忿怒倾倒在那些不承认祢的列邦上，倒在那些不求靠祢名的列族上。因为他们已将雅各吞食；他们已将他彻底吞食并摧毁他的家园。 [申6:6](https://biblehub.com/deuteronomy/6-6.htm) 我今天赐给你们的这些诫命是要在你们的心上 [7](https://biblehub.com/deuteronomy/6-7.htm) 使你们的子女铭记它们。当你们坐在家里，当你们走在路上，当你们躺下以及当你们起床时，要讨论它们。 [伯1:5](https://biblehub.com/job/1-5.htm) 当一期筵席已完毕，约伯会为他们安排被净化。一大早，他会为他们各个献燔祭，心想：“也许我的子女已在他们内心犯罪并咒诅上帝。”这是约伯的惯常习俗。 [撒下6:18](https://biblehub.com/2_samuel/6-18.htm) 在他结束献燔祭和团契祭后，他奉万军之耶和华的名祝福子民。 [20](https://biblehub.com/2_samuel/6-20.htm) 当大卫返回家中祝福他的家室时，扫罗的女儿米甲出来会见他，说：“以色列王今天已是多么与众不同，完全在他仆人的婢女的视野前半裸着走来走去，和任何粗俗的家伙一样！” [彼前3:7](https://biblehub.com/1_peter/3-7.htm) 丈夫们，以同样的方法在你们与你们妻子同住时，要体贴，将她们作为较弱的伴侣，并与你们一同作为仁慈恩赐生命的继承人，以尊重对待，以致没有事情会阻碍你们的祷告。 [徒10:2](https://biblehub.com/acts/10-2.htm) 他和他全家都是虔诚，敬畏上帝的；他慷慨地向贫乏的人施舍，并定期向上帝祷告。
+
+[^21-31]: [太6:11](https://biblehub.com/matthew/6-11.htm) 我们日用的干粮今日赐给我们。
+
+[^21-32]: [太6:6](https://biblehub.com/matthew/6-6.htm) 但当你祷告时，走进你的房间，关上门并向你看不见的圣父祷告。于是你的圣父，看到暗中被完成的，就会赏赐你。 [弗6:18](https://biblehub.com/ephesians/6-18.htm) 并在圣灵中在所有情形以各种祈祷与请求来祷告。以此在心灵中，警觉并总是保持不断为所有主的子民祷告。
+
+[^21-33]: [赛56:6](https://biblehub.com/isaiah/56-6.htm) 而那些将他们自己与耶和华绑定以侍候祂，爱耶和华的名并作祂的仆人的异邦人，所有那些保持安息日而不亵渎它和那些牢牢握紧我圣约的--- [7](https://biblehub.com/isaiah/56-7.htm) 这些人我会带到我的圣山上并在我祷告的宫殿中赐给他们喜乐。他们的燔祭和献祭将在我的祭坛上被接受；因为我的宫殿将被称为一个为万邦祷告的住所。 [来10:25](https://biblehub.com/hebrews/10-25.htm) 不要放弃一起聚会，像有些人习惯于做的，而是彼此鼓励---而当你们看见那一天接近时，愈发如此。 [箴1:20](https://biblehub.com/proverbs/1-20.htm) 公开在外智慧大声召唤，她在公共广场上提升她的话音； [21](https://biblehub.com/proverbs/1-21.htm) 她在城墙顶上呼求，在城门口她做她的演讲： [24](https://biblehub.com/proverbs/1-24.htm) 但既然我召唤时你拒绝听从，而当我伸出手时无人专注， [8:34](https://biblehub.com/proverbs/8-34.htm) 那些听从我，天天在我的门口守望，在我的门道等候的人是有福的。 [徒13:42](https://biblehub.com/acts/13-42.htm) 当保罗和巴拿巴正离开会堂，民众邀请他们在下一个安息日进一步讲这些事情。 [路4:16](https://biblehub.com/luke/4-16.htm) 祂去了拿撒勒，祂在那里被养育，而在安息日，祂以祂的习俗走进会堂。祂站起来诵读， [徒2:42](https://biblehub.com/acts/2-42.htm) 他们将他们自己奉献给使徒们的教导并献给团契，擘饼及祷告。
