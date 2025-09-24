@@ -103,3 +103,17 @@ Of Religious Worship, and the Sabbath Day
 [^21-32]: [太6:6](https://biblehub.com/matthew/6-6.htm) 但当你祷告时，走进你的房间，关上门并向你看不见的圣父祷告。于是你的圣父，看到暗中被完成的，就会赏赐你。 [弗6:18](https://biblehub.com/ephesians/6-18.htm) 并在圣灵中在所有情形以各种祈祷与请求来祷告。以此在心灵中，警觉并总是保持不断为所有主的子民祷告。
 
 [^21-33]: [赛56:6](https://biblehub.com/isaiah/56-6.htm) 而那些将他们自己与耶和华绑定以侍候祂，爱耶和华的名并作祂的仆人的异邦人，所有那些保持安息日而不亵渎它和那些牢牢握紧我圣约的--- [7](https://biblehub.com/isaiah/56-7.htm) 这些人我会带到我的圣山上并在我祷告的宫殿中赐给他们喜乐。他们的燔祭和献祭将在我的祭坛上被接受；因为我的宫殿将被称为一个为万邦祷告的住所。 [来10:25](https://biblehub.com/hebrews/10-25.htm) 不要放弃一起聚会，像有些人习惯于做的，而是彼此鼓励---而当你们看见那一天接近时，愈发如此。 [箴1:20](https://biblehub.com/proverbs/1-20.htm) 公开在外智慧大声召唤，她在公共广场上提升她的话音； [21](https://biblehub.com/proverbs/1-21.htm) 她在城墙顶上呼求，在城门口她做她的演讲： [24](https://biblehub.com/proverbs/1-24.htm) 但既然我召唤时你拒绝听从，而当我伸出手时无人专注， [8:34](https://biblehub.com/proverbs/8-34.htm) 那些听从我，天天在我的门口守望，在我的门道等候的人是有福的。 [徒13:42](https://biblehub.com/acts/13-42.htm) 当保罗和巴拿巴正离开会堂，民众邀请他们在下一个安息日进一步讲这些事情。 [路4:16](https://biblehub.com/luke/4-16.htm) 祂去了拿撒勒，祂在那里被养育，而在安息日，祂以祂的习俗走进会堂。祂站起来诵读， [徒2:42](https://biblehub.com/acts/2-42.htm) 他们将他们自己奉献给使徒们的教导并献给团契，擘饼及祷告。
+
+## 21.7
+
+> As it is the law of nature, that, in general, a due proportion of time be set apart for the worship of God; so, in His Word, by a positive, moral, and perpetual commandment binding all men in all ages, He has particularly appointed one day in seven, for a Sabbath, to be kept holy unto Him: which, from the beginning of the world to the resurrection of Christ, was the last day of the week: and, from the resurrection of Christ, was changed into the first day of the week, which, in Scripture, is called the Lord's Day, and is to be continued to the end of the world, as the Christian Sabbath.
+
+因为普遍地，为敬拜上帝分别一个适当比例的时间是本性的律法；因此，在祂的圣言中，由一条积极、道德和长久的诫命，束缚在所有时代的所有人，祂已特别指定七天中的一天为安息日，要向祂被保持为神圣[^21-34]：从世界的起初到基督的复活，这是一周的最后一天：而，从基督的复活起，这被变成了一周的第一天[^21-35]，这在经书中，被称为主日[^21-36]，并要作为属基督的安息日被持续到世界的末了[^21-37]。
+
+[^21-34]: [出20:8](https://biblehub.com/exodus/20-8.htm) “由保持其神圣来记念安息日。 [10](https://biblehub.com/exodus/20-10.htm) 但第七日是耶和华你的上帝的安息日。在这天你不应做任何工作、不仅你，而且你的儿子或女儿、或是你的男仆或女仆、或是你的牲口、或是定居在你城里的异邦人都不行。 [11](https://biblehub.com/exodus/20-11.htm) 因为在六日内耶和华制造了诸天和地、海、和在它们之中的所有，但祂在第七日安息了。因此，耶和华祝福安息日，并使其神圣。 [赛56:2](https://biblehub.com/isaiah/56-2.htm) 这样做的人是有福的---对此牢牢握紧的个人，保持安息日而不亵渎它，并使他们的手避开做任何恶。 [4](https://biblehub.com/isaiah/56-4.htm) 因为这是耶和华说的：“对保持我的安息日，选择使我满意的，并牢牢握紧我的圣约的阉人--- [6](https://biblehub.com/isaiah/56-6.htm) 而那些将他们自己与耶和华绑定以侍候祂，爱耶和华的名并作祂的仆人的异邦人，所有那些保持安息日而不亵渎它和那些牢牢握紧我圣约的--- [7](https://biblehub.com/isaiah/56-7.htm) 这些人我会带到我的圣山上并在我祷告的宫殿中赐给他们喜乐。他们的燔祭和献祭将在我的祭坛上被接受；因为我的宫殿将被称为一个为万邦祷告的住所。
+
+[^21-35]: [创2:2](https://biblehub.com/genesis/2-2.htm) 到第七日，上帝已结束祂已在做的工作；因此，在第七日，祂从祂所有的工作中安息了。 [3](https://biblehub.com/genesis/2-3.htm) 于是上帝祝福第七日并使它神圣，因为在这天，祂从祂已完成的所有创造之工中安息了。 [林前16:1](https://biblehub.com/1_corinthians/16-1.htm) 现在关于为主的子民筹钱：做我吩咐加拉太教会要做的事。 [2](https://biblehub.com/1_corinthians/16-2.htm) 在每周的第一天，你们各人都应该根据自己的收入留出一笔钱，将它存起来，以致当我来的时候就不必筹钱。 [徒20:7](https://biblehub.com/acts/20-7.htm) 在这周的第一天，我们来到一起擘饼。保罗对民众演讲，而因为他打算第二天离开，就一直讲到午夜。
+
+[^21-36]: [启1:10](https://biblehub.com/revelation/1-10.htm) 在主日，我在圣灵中，而我听见我后面一个高亢的话音，像号角一样，
+
+[^21-37]: [出20:8](https://biblehub.com/exodus/20-8.htm) “由保持其神圣来记念安息日。 [10](https://biblehub.com/exodus/20-10.htm) 但第七日是耶和华你的上帝的安息日。在这天你不应做任何工作、不仅你，而且你的儿子或女儿、或是你的男仆或女仆、或是你的牲口、或是定居在你城里的异邦人都不行。 [太5:17](https://biblehub.com/matthew/5-17.htm) “不要以为我已来要废除律法或众先知；我未曾为废除它们而来，而是为成全它们。 [18](https://biblehub.com/matthew/5-18.htm) 我实在告诉你们，直到天与地消失，连最小的字母，和一笔最少的笔画，都不会以任何手段从律法中消失，直至一切被成就。
