@@ -45,6 +45,8 @@
 
 ## [第二十章 论属基督的自在、及良心自在](https://zhao-bob.github.io/WCF/chapter20)
 
+## [第二十一章 论宗教敬拜，和安息日](https://zhao-bob.github.io/WCF/chapter21)
+
 
 
 
