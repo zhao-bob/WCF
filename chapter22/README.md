@@ -25,3 +25,15 @@ Of Lawful Oaths and Vows
 [^22-5]: [来6:16](https://biblehub.com/hebrews/6-16.htm) 民众对比他们自己更伟大的某位发誓，而这誓言确认所说的并终结所有的辩论。 [林后1:23](https://biblehub.com/2_corinthians/1-23.htm) 我呼唤上帝作我的证人---我将我的生命押注在它上---那是为了轻饶你们，我才没有返回哥林多。 [赛65:16](https://biblehub.com/isaiah/65-16.htm) 无论谁在这土地上祈求祝福，会这样对独一永真的上帝来做；无论谁在这土地上起誓，会对独一永真的上帝发誓。因为过去的烦恼将被忘记，并从我的眼前被隐藏。
 
 [^22-6]: [王上8:31](https://biblehub.com/1_kings/8-31.htm) “当任何人对他们的邻居行恶并被要求起誓而且他们来到在这神殿中祢的祭坛前发此誓言时， [尼13:25](https://biblehub.com/nehemiah/13-25.htm) 我训斥了他们并召唤咒诅降在他们身上。我打了这些男人中的几个并扯掉了他们的头发。我让他们以上帝的名起誓并说：“你们不要把你们的女儿嫁给他们的儿子，也不要为了你们的儿子或为你们自己娶他们的女儿。 [拉10:5](https://biblehub.com/ezra/10-5.htm) 于是以斯拉起来，并使祭司长、利未人和所有以色列人都立下誓言去做已被建议的。于是他们起了誓。
+
+# 22.3
+
+> Whosoever takes an oath ought duly to consider the weightiness of so solemn an act, and therein to avouch nothing but what he is fully persuaded is the truth: neither may any man bind himself by oath to any thing but what is good and just, and what he believes so to be, and what he is able and resolved to perform. Yet it is a sin to refuse an oath touching any thing that is good and just, being imposed by lawful authority.
+
+无论谁起誓，都应该适当地思虑如此庄严的行动的权重，而在其中不认信任何东西，除了他被完全信服的真理[^22-7]：任何人也不能由誓言将他自己束缚到任何东西上，除了善和公正的，和他相信将是如此的，以及他有能力并决心履行的[^22-8]。但拒绝一个被合法权威强制的触及任何善良和公正事物的誓言是一种罪恶[^22-9]。
+
+[^22-7]: [出20:7](https://biblehub.com/exodus/20-7.htm) “你不可错用耶和华你上帝的名，因为耶和华不会持任何错用祂名的人无罪。 [耶4:2](https://biblehub.com/jeremiah/4-2.htm) 而如果你以讲真理、公正、正义的方法发誓：‘如耶和华永活一样无疑’，那么列邦就会由祂祈求祝福，并在祂里面夸耀。”
+
+[^22-8]: [创24:2](https://biblehub.com/genesis/24-2.htm) 他对在家室里的主仆，主管他拥有的所有的那位，说：“把你的手放在我的大腿下面。 [3](https://biblehub.com/genesis/24-3.htm) 我要你对耶和华，天国的上帝和大地的上帝发誓，你不会从我生活的迦南人的女儿中间为我的儿子娶一位妻子， [5](https://biblehub.com/genesis/24-5.htm) 那仆人问他：“如果那女人不愿意和我一同回到这土地该如何？那么我应该带你儿子回到你出身的家乡吗？” [6](https://biblehub.com/genesis/24-6.htm) “做出保证你不带我的儿子回那里，”亚伯拉罕说。 [8](https://biblehub.com/genesis/24-8.htm) 如果女人不愿意和你一同回来，那么你就会被免除我的这个誓言。只是不要带我的儿子回那里。” [9](https://biblehub.com/genesis/24-9.htm) 于是仆人把他的手放在他的主人亚伯拉罕的大腿下，并向他就此事要发了誓言。
+
+[^22-9]: [民5:19](https://biblehub.com/numbers/5-19.htm) 然后，祭司要让这女人立下誓言并对她说：“如果没有其他男人已与你有过性关系，而你在和你的丈夫结婚期间没有走偏而变得不洁，愿这带来诅咒的苦水不会伤害你。 [21](https://biblehub.com/numbers/5-21.htm) 这里祭司要将这女人置于此咒诅之下---“愿耶和华由祂使你的子宫流产并使你腹部肿胀，致使你成为你族民的咒诅。 [尼5:12](https://biblehub.com/nehemiah/5-12.htm) “我们会将它归还，”他们说。“而且我们不会向他们要求任何更多的东西。我们会像你说的做。”于是我召集众祭司，并让贵族和官员们起誓去做他们已承诺的。 [出22:7](https://biblehub.com/exodus/22-7.htm) “如果任何人为安全保管把银子或物品给一位邻居，而它们是从这邻居家被偷的，这窃贼如果被抓住，必须加倍偿还。 [8](https://biblehub.com/exodus/22-8.htm) 但如果没有找到那窃贼，房子的业主必须显现在法官们面前，而他们必须判定房子的业主是否占有他邻居的财物。 [9](https://biblehub.com/exodus/22-9.htm) 在所有牛、驴、羊、服装的非法占有或任何其他关于有人说“这是我的”的丢失财物的案件中，双方都要将他们的案件带到法官面前。被法官宣告罪行的一方必须对另一方双倍偿还。 [10](https://biblehub.com/exodus/22-10.htm) “如果有人为安全保管把驴、牛、羊或任何其他牲口给邻居，而它死了，或受伤、或在无人看到时被偷， [11](https://biblehub.com/exodus/22-11.htm) 他们之间的争议会由在耶和华面前起誓---该邻居没拿另外一人的财物---来解决。业主要接受这，并且不需要赔偿。
