@@ -37,3 +37,15 @@ Of Lawful Oaths and Vows
 [^22-8]: [创24:2](https://biblehub.com/genesis/24-2.htm) 他对在家室里的主仆，主管他拥有的所有的那位，说：“把你的手放在我的大腿下面。 [3](https://biblehub.com/genesis/24-3.htm) 我要你对耶和华，天国的上帝和大地的上帝发誓，你不会从我生活的迦南人的女儿中间为我的儿子娶一位妻子， [5](https://biblehub.com/genesis/24-5.htm) 那仆人问他：“如果那女人不愿意和我一同回到这土地该如何？那么我应该带你儿子回到你出身的家乡吗？” [6](https://biblehub.com/genesis/24-6.htm) “做出保证你不带我的儿子回那里，”亚伯拉罕说。 [8](https://biblehub.com/genesis/24-8.htm) 如果女人不愿意和你一同回来，那么你就会被免除我的这个誓言。只是不要带我的儿子回那里。” [9](https://biblehub.com/genesis/24-9.htm) 于是仆人把他的手放在他的主人亚伯拉罕的大腿下，并向他就此事要发了誓言。
 
 [^22-9]: [民5:19](https://biblehub.com/numbers/5-19.htm) 然后，祭司要让这女人立下誓言并对她说：“如果没有其他男人已与你有过性关系，而你在和你的丈夫结婚期间没有走偏而变得不洁，愿这带来诅咒的苦水不会伤害你。 [21](https://biblehub.com/numbers/5-21.htm) 这里祭司要将这女人置于此咒诅之下---“愿耶和华由祂使你的子宫流产并使你腹部肿胀，致使你成为你族民的咒诅。 [尼5:12](https://biblehub.com/nehemiah/5-12.htm) “我们会将它归还，”他们说。“而且我们不会向他们要求任何更多的东西。我们会像你说的做。”于是我召集众祭司，并让贵族和官员们起誓去做他们已承诺的。 [出22:7](https://biblehub.com/exodus/22-7.htm) “如果任何人为安全保管把银子或物品给一位邻居，而它们是从这邻居家被偷的，这窃贼如果被抓住，必须加倍偿还。 [8](https://biblehub.com/exodus/22-8.htm) 但如果没有找到那窃贼，房子的业主必须显现在法官们面前，而他们必须判定房子的业主是否占有他邻居的财物。 [9](https://biblehub.com/exodus/22-9.htm) 在所有牛、驴、羊、服装的非法占有或任何其他关于有人说“这是我的”的丢失财物的案件中，双方都要将他们的案件带到法官面前。被法官宣告罪行的一方必须对另一方双倍偿还。 [10](https://biblehub.com/exodus/22-10.htm) “如果有人为安全保管把驴、牛、羊或任何其他牲口给邻居，而它死了，或受伤、或在无人看到时被偷， [11](https://biblehub.com/exodus/22-11.htm) 他们之间的争议会由在耶和华面前起誓---该邻居没拿另外一人的财物---来解决。业主要接受这，并且不需要赔偿。
+
+# 22.4
+
+> An oath is to be taken in the plain and common sense of the words, without equivocation, or mental reservation. It cannot oblige to sin; but in any thing not sinful, being taken, it binds to performance, although to a man's own hurt. Not is it to be violated, although made to heretics, or infidels.
+
+起誓要以直白而通常意义的言词，没有含糊其词或心理的预留[^22-10]。它不能为罪恶效劳；但是，在任何无罪恶的事情上，一旦起誓，它就与实行绑定，即使是对一个人自身的创伤[^22-11]。即使它是向异端或不信者所求的，也不能被违背[^22-12]。
+
+[^22-10]: [耶4:2](https://biblehub.com/jeremiah/4-2.htm) 而如果你以讲真理、公正、正义的方法发誓：‘如耶和华永活一样无疑’，那么列邦就会由祂祈求祝福，并在祂里面夸耀。” [诗24:4](https://biblehub.com/psalms/24-4.htm) 一个拥有洁净的手和一颗纯洁的心的人，不信奉偶像，或对假神发誓。
+
+[^22-11]: [撒上25:22](https://biblehub.com/1_samuel/25-22.htm) 如果到早上时我留下任何一个属于他的男性活着，愿上帝对付大卫，哪怕它如此严厉！” [32](https://biblehub.com/1_samuel/25-32.htm) 大卫对亚比该说：“赞美归于耶和华，以色列的上帝，今天祂已差派你来会见我。 [33](https://biblehub.com/1_samuel/25-33.htm) 愿你为你好的判断，使我今天避开杀戮，并避开我亲手替我自己报复而被祝福。 [34](https://biblehub.com/1_samuel/25-34.htm) 否则，如耶和华，以色列的上帝永活一样无疑，祂已使我避开伤害你，假使你不快速来会见我，到破晓时，没有一个属于拿八的男性将会被留下活着。 [诗15:4](https://biblehub.com/psalms/15-4.htm) 那些鄙视卑鄙的人，却尊敬那些敬畏耶和华的人；那些即使当它造成创伤时保持誓言，而不改变他们的心灵的人；
+
+[^22-12]: [结17:16](https://biblehub.com/ezekiel/17-16.htm) “‘如我永活一样无疑，主宰耶和华宣告，他要死在巴比伦，死在将他置于王位上的国王的土地上，他鄙视他的誓言，而且他破坏了他的条约。 [18](https://biblehub.com/ezekiel/17-18.htm) 他由破坏约而鄙视那誓言。因为他已将他的手交在许诺上，却做了所有这些事情，他必不能逃脱。 [19](https://biblehub.com/ezekiel/17-19.htm) “‘因此，这是主宰耶和华说的：如我永活一样无疑，我会为鄙视我的誓言且破坏我的圣约而报应他。 [书9:18](https://biblehub.com/joshua/9-18.htm) 但以色列人没有攻击他们，因为集会的领袖们已对耶和华以色列的上帝向他们发了一个誓言。整个集会都对领袖们抱怨， [撒下21:1](https://biblehub.com/2_samuel/21-1.htm) 在大卫为王期间，有一场相继三年的饥荒；所以大卫寻求耶和华的面。耶和华说：“这都算在扫罗和他血迹斑斑的家族上；这是因为他处死了基遍人。”
