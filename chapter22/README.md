@@ -49,3 +49,11 @@ Of Lawful Oaths and Vows
 [^22-11]: [撒上25:22](https://biblehub.com/1_samuel/25-22.htm) 如果到早上时我留下任何一个属于他的男性活着，愿上帝对付大卫，哪怕它如此严厉！” [32](https://biblehub.com/1_samuel/25-32.htm) 大卫对亚比该说：“赞美归于耶和华，以色列的上帝，今天祂已差派你来会见我。 [33](https://biblehub.com/1_samuel/25-33.htm) 愿你为你好的判断，使我今天避开杀戮，并避开我亲手替我自己报复而被祝福。 [34](https://biblehub.com/1_samuel/25-34.htm) 否则，如耶和华，以色列的上帝永活一样无疑，祂已使我避开伤害你，假使你不快速来会见我，到破晓时，没有一个属于拿八的男性将会被留下活着。 [诗15:4](https://biblehub.com/psalms/15-4.htm) 那些鄙视卑鄙的人，却尊敬那些敬畏耶和华的人；那些即使当它造成创伤时保持誓言，而不改变他们的心灵的人；
 
 [^22-12]: [结17:16](https://biblehub.com/ezekiel/17-16.htm) “‘如我永活一样无疑，主宰耶和华宣告，他要死在巴比伦，死在将他置于王位上的国王的土地上，他鄙视他的誓言，而且他破坏了他的条约。 [18](https://biblehub.com/ezekiel/17-18.htm) 他由破坏约而鄙视那誓言。因为他已将他的手交在许诺上，却做了所有这些事情，他必不能逃脱。 [19](https://biblehub.com/ezekiel/17-19.htm) “‘因此，这是主宰耶和华说的：如我永活一样无疑，我会为鄙视我的誓言且破坏我的圣约而报应他。 [书9:18](https://biblehub.com/joshua/9-18.htm) 但以色列人没有攻击他们，因为集会的领袖们已对耶和华以色列的上帝向他们发了一个誓言。整个集会都对领袖们抱怨， [撒下21:1](https://biblehub.com/2_samuel/21-1.htm) 在大卫为王期间，有一场相继三年的饥荒；所以大卫寻求耶和华的面。耶和华说：“这都算在扫罗和他血迹斑斑的家族上；这是因为他处死了基遍人。”
+
+# 22.5
+
+> A vow is of the like nature with a promissory oath, and ought to be made with the like religious care, and to be performed with the like faithfulness.
+
+誓约与应许性誓言具有同样的本性，而应以同样的宗教护理来被作，并以同样的信实来被实行[^22-13]。
+
+[^22-13]: [赛19:21](https://biblehub.com/isaiah/19-21.htm) 所以耶和华会向埃及人揭晓祂自己，而在那日他们会承认耶和华。他们会用献祭和素祭敬拜；他们会向耶和华宣誓，并遵守它们。 [传5:4](https://biblehub.com/ecclesiastes/5-4.htm) 当你向上帝宣誓时，不要耽搁成全它。祂不喜悦愚蠢的人；要成全你的誓约。 [5](https://biblehub.com/ecclesiastes/5-5.htm) 不宣誓好过宣誓而不成全它。 [6](https://biblehub.com/ecclesiastes/5-6.htm) 不要让你的嘴引导你进入罪恶。不要向神殿信使抗议，“我的誓约是一个失误。”为什么上帝会对你说的愤怒，并摧毁你双手的作品呢？ [诗61:8](https://biblehub.com/psalms/61-8.htm) 那时，我将在赞美祢的名中不断歌唱，并日复一日成全我的誓约。 [66:13](https://biblehub.com/psalms/66-13.htm) 我会带着燔祭来到祢的神殿并向祢成全我的誓约--- [14](https://biblehub.com/psalms/66-14.htm) 当我窘困时我嘴唇上承诺的和我口中讲的誓约。
