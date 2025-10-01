@@ -57,3 +57,13 @@ Of Lawful Oaths and Vows
 誓约与应许性誓言具有同样的本性，而应以同样的宗教护理来被作，并以同样的信实来被实行[^22-13]。
 
 [^22-13]: [赛19:21](https://biblehub.com/isaiah/19-21.htm) 所以耶和华会向埃及人揭晓祂自己，而在那日他们会承认耶和华。他们会用献祭和素祭敬拜；他们会向耶和华宣誓，并遵守它们。 [传5:4](https://biblehub.com/ecclesiastes/5-4.htm) 当你向上帝宣誓时，不要耽搁成全它。祂不喜悦愚蠢的人；要成全你的誓约。 [5](https://biblehub.com/ecclesiastes/5-5.htm) 不宣誓好过宣誓而不成全它。 [6](https://biblehub.com/ecclesiastes/5-6.htm) 不要让你的嘴引导你进入罪恶。不要向神殿信使抗议，“我的誓约是一个失误。”为什么上帝会对你说的愤怒，并摧毁你双手的作品呢？ [诗61:8](https://biblehub.com/psalms/61-8.htm) 那时，我将在赞美祢的名中不断歌唱，并日复一日成全我的誓约。 [66:13](https://biblehub.com/psalms/66-13.htm) 我会带着燔祭来到祢的神殿并向祢成全我的誓约--- [14](https://biblehub.com/psalms/66-14.htm) 当我窘困时我嘴唇上承诺的和我口中讲的誓约。
+
+# 22.6
+
+> It is not to be made to any creature, but to God alone: and that it may be accepted, it is to be made voluntarily, out of faith, and conscience of duty, in way of thankfulness for mercy received, or for the obtaining of what we want, whereby we more strictly bind ourselves to necessary duties: or, to other things, so far and so long as they may fitly conduce thereunto.
+
+它不能向任何受造物而被作，而惟独向上帝[^22-14]：而为使它能被接受，它是志愿做出的，出自信心，和职责的良心，以对领受的宽恕，或对我们想要的得偿的感谢的方法，从而我们更严格地将我们自己与必要的职责绑定： 或者，与其他事情，就其而言并只要它们能适宜地导引至此[^22-15]。
+
+[^22-14]: [诗76:11](https://biblehub.com/psalms/76-11.htm) 向耶和华你的上帝宣誓，并成全它们；让所有邻近土地的人都将礼物带给要被敬畏的独一位。 [耶44:25](https://biblehub.com/jeremiah/44-25.htm) 这是万军之耶和华，以色列的上帝说的：你们和你们的妻子已完成在你们承诺时你们说的你们要做的事：‘我们肯定会落实我们做的誓约，向天国的皇后烧香和浇酒祭。’“那就去吧，做你们承诺了的！信守你们的誓约！ [26](https://biblehub.com/jeremiah/44-26.htm) 但是你们所有住在埃及的犹太人，请听见耶和华的言词：‘我对我的大名发誓，’耶和华说，‘住在埃及任何地方而来自犹大的，无人会再一次祈求我的名或发誓，“如主宰耶和华永活一样无疑。”
+
+[^22-15]: [申23:21](https://biblehub.com/deuteronomy/23-21.htm) 如果你向耶和华你的上帝宣誓，不要兑现迟缓，因为耶和华你的上帝肯定会向你索求它，而你就会有罪恶的罪行。 [22](https://biblehub.com/deuteronomy/23-22.htm) 但如果你戒除宣誓，你就不会有罪行。 [23](https://biblehub.com/deuteronomy/23-23.htm) 无论你的嘴唇讲出什么，你都必须保证去做，因为你用你自己的口自由地给耶和华你的上帝宣了你的誓约。 [诗50:14](https://biblehub.com/psalms/50-14.htm) “将感谢祭献祭给上帝，成全你给至高者的誓约， [创28:20](https://biblehub.com/genesis/28-20.htm) 于是雅各宣誓，说：“如果上帝会与我同在，并会在我启程的这旅途中看守我，而会赐我食物吃和衣服穿 [21](https://biblehub.com/genesis/28-21.htm) 以致我平安返回我父亲的家室，那么耶和华就会是我的上帝 [22](https://biblehub.com/genesis/28-22.htm) 而这我已立为支柱的石头会是上帝的住所，而在祢赐给我的所有中，我会献给祢十分之一。 [撒上1:11](https://biblehub.com/1_samuel/1-11.htm) 她宣誓：“万军之耶和华，但愿祢会看向祢仆人的痛苦并记念我，而不忘记祢的仆人，但却赐她一个儿子，那么我会在他生命的所有日子里将他献给耶和华，而没有剃刀再会被用在他的头上。” [诗66:13](https://biblehub.com/psalms/66-13.htm) 我会带着燔祭来到祢的神殿，并成全我给你的誓约--- [14](https://biblehub.com/psalms/66-14.htm) 当我窘困时我嘴唇上承诺的和我口中讲的誓约。 [诗132:2](https://biblehub.com/psalms/132-2.htm) 他给耶和华起誓，他给雅各的大能者宣誓： [3](https://biblehub.com/psalms/132-3.htm) “我不会进入我的住所，或上我的床， [4](https://biblehub.com/psalms/132-4.htm) 我不会让我的眼睛睡着，或让我的眼睑安睡， [5](https://biblehub.com/psalms/132-5.htm) 直到我为耶和华找到一个地方，一个为雅各大能者的居所。”
