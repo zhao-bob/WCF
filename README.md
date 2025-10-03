@@ -47,6 +47,8 @@
 
 ## [第二十一章 论宗教敬拜，和安息日](https://zhao-bob.github.io/WCF/chapter21)
 
+## [第二十二章 论合法的誓言和誓约](https://zhao-bob.github.io/WCF/chapter22)
+
 
 
 
