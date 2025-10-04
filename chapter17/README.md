@@ -44,7 +44,7 @@ Of the Perseverance of the Saints
 
 [^17-12]: [赛63:17](https://biblehub.com/isaiah/63-17.htm) 耶和华，祢为什么使我们游离祢的道路，并使我们的心刚硬，致我们不崇敬祢？为祢的仆人，属于祢遗产的支派的缘故，请返回。 [可6:52](https://biblehub.com/mark/6-52.htm) 因为他们未曾理解关于饼食的事；他们的心被刚硬了。 [16:14](https://biblehub.com/mark/16-14.htm) 稍后，耶稣向十一人在他们正在吃饭时显现；祂训斥他们缺乏信心，且固执拒绝相信那些在祂已升起后已看见祂的人。
 
-[^17-13]: [诗32:3](https://biblehub.com/psalms/32-3.htm) 当我保持静默时，我的骨头因着我终日叹息而消磨。 [4](https://biblehub.com/psalms/32-4.htm) 日日夜夜，祢的手在我身上沉重；我的力量如在夏天的炎热中被吸干。 [51:8](https://biblehub.com/psalms/51-8.htm) 让我听见欢喜与高兴；让祢已击碎的骨头欢欣。 [51:8](https://biblehub.com/psalms/51-8.htm) 让我听见欢喜与高兴；让祢已击碎的骨头欢欣。
+[^17-13]: [诗32:3](https://biblehub.com/psalms/32-3.htm) 当我保持静默时，我的骨头因着我终日叹息而消磨。 [4](https://biblehub.com/psalms/32-4.htm) 日日夜夜，祢的手在我身上沉重；我的力量如在夏天的炎热中被吸干。 [51:8](https://biblehub.com/psalms/51-8.htm) 让我听见欢喜与高兴；让祢已击碎的骨头欢欣。
 
 [^17-14]: [撒下12:14](https://biblehub.com/2_samuel/12-14.htm) 但因为由做此你已对耶和华展示十足的藐视，这为你生的儿子将死。”
 
