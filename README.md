@@ -49,6 +49,7 @@
 
 ## [第二十二章 论合法的誓言和誓约](https://zhao-bob.github.io/WCF/chapter22)
 
+## [第二十三章 论民事长官](https://zhao-bob.github.io/WCF/chapter23)
 
 
 
