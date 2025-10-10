@@ -33,3 +33,15 @@ Of Marriage and Divorce
 [^24-6]: [林前7:39](https://biblehub.com/1_corinthians/7-39.htm) 一个女人只要她的丈夫活着，她就受他的束缚。但如果她的丈夫死了，她就自由地与任何她希冀的人结婚，但他必须属于主。
 
 [^24-7]: [创34:14](https://biblehub.com/genesis/34-14.htm) 他们对他们说：“我们不能做这样的事；我们不能把我们的妹妹给一个未受割礼的男人。那对我们会是一种羞耻。 [出34:16](https://biblehub.com/exodus/34-16.htm) 而当你们选他们女儿中的一些为你的儿子作妻子，而那些女儿将她们自己向她们的诸神卖淫时，她们会引导你们的儿子做相同的事。 [申7:3](https://biblehub.com/deuteronomy/7-3.htm) 不要与他们杂婚。不要把你们的女儿给他们的儿子，或者为你们的儿子取他们的女儿。 [4](https://biblehub.com/deuteronomy/7-4.htm) 因为他们会使你们的子女从跟随我中转离去侍奉别的诸神，而耶和华的愤怒会对你们燃烧，并会快速将你们摧毁。 [王上11:4](https://biblehub.com/1_kings/11-4.htm) 随着所罗门年老，他的妻子们将他的心转随其他诸神，而他的心没有完全被献给耶和华他的上帝，如他父亲大卫的心曾经那样。 [尼13:25](https://biblehub.com/nehemiah/13-25.htm) 我训斥了他们并召唤咒诅降在他们身上。我打了这些男人中的几个并扯掉了他们的头发。我让他们以上帝的名起誓并说：“你们不要把你们的女儿嫁给他们的儿子，也不要为了你们的儿子或为你们自己娶他们的女儿。 [26](https://biblehub.com/nehemiah/13-26.htm) 难道不是因为像这些的婚姻以色列王所罗门才犯了罪吗？许多邦国中间，没有像他一样的国王。他被他的上帝爱，而上帝使他做全以色列之上的国王，而即使他被异邦女人引导进入罪恶。 [27](https://biblehub.com/nehemiah/13-27.htm) 难道现在我们不该听到你们通过与异邦女人结婚也正在做所有并在对我们的上帝不忠吗？” [玛2:11](https://biblehub.com/malachi/2-11.htm) 犹大已不忠。在以色列和在耶路撒冷一件可憎的事情已被犯下：犹大通过与敬拜异邦神的女人结婚，已亵渎了耶和华爱的圣殿。 [12](https://biblehub.com/malachi/2-12.htm) 至于做这的那人，无论他可能是谁，愿耶和华将他从雅各的帐幕中移除---即使他向万军之耶和华带来供品。 [林后6:14](https://biblehub.com/2_corinthians/6-14.htm) 不要与不信者在一起被负轭。因为正义和邪恶有什么共同？或者光明与黑暗有什么团契呢？
+
+## 24.4
+
+> Marriage ought not to be within the degrees of consanguinity or affinity forbidden by the Word. Nor can such incestuous marriages ever be made lawful by any law of man or consent of parties, so as those persons may live together as man and wife. The man may not marry any of his wife's kindred, nearer in blood than he may of his own: nor the woman of her husband's kindred, nearer in blood than of her own.
+
+婚姻不应在被圣言禁止的血缘或亲缘的限度之内[^24-8]。这样乱伦婚姻也永不能由任何人的法律或双方的许可变得合法，以致这些个体能作为男人和妻子生活在一起[^24-9]。男人不能与妻子的在血统上比他自身的能更近的任何亲属结婚：女人也不能与她丈夫的在血统上比她自身的更近的亲属结婚[^24-10]。
+
+[^24-8]: （[利18](https://biblehub.com/niv/leviticus/18.htm) ）[林前5:1](https://biblehub.com/1_corinthians/5-1.htm) 竟然据悉你们中间有淫乱，而且甚至是异教徒都不容忍的一类：一个人和他父亲的妻子上床。 [摩2:7](https://biblehub.com/amos/2-7.htm) 他们践踏在穷人的头上，如在地面的尘土上，并且否认对受压迫者的公义。父亲与儿子用同一个女孩而如此污渎我的圣名。
+
+[^24-9]: [可6:18](https://biblehub.com/mark/6-18.htm) 因为约翰已一再对希律说：“拥有你兄弟的妻子对你是不合法的。” [利18:24](https://biblehub.com/leviticus/18-24.htm) “‘不要以任何这些方式来玷污你们自己，因为这就是我要在你们之前驱除的列邦如何变得玷污的。 [25](https://biblehub.com/leviticus/18-25.htm) 甚至土地也被玷污了；所以我为它的罪恶惩罚它，而这土地就吐出它的居民。 [26](https://biblehub.com/leviticus/18-26.htm) 但你们必须遵守我的预旨和律法。土著和定居在你们中间的异邦人，都决不能做任何这些可憎的事， [27](https://biblehub.com/leviticus/18-27.htm) 因为所有这些事情被在你们之前生活在这土地上的族民做了，而这土地就变得玷污了。 [28](https://biblehub.com/leviticus/18-28.htm) 而如果你们玷污这土地，它就会将你们吐出，如它吐出了在你们之前的列邦一样。
+
+[^24-10]: [利20:19](https://biblehub.com/leviticus/20-19.htm) “‘不要与你母亲或你父亲的姐妹有性关系，因为那会羞辱近亲；你们俩都会被担责。 [20](https://biblehub.com/leviticus/20-20.htm) “‘如果一个男人与他的姑姑有性关系，他就已羞辱他的叔叔。他们会被担责；他们将无子女而死。 [21](https://biblehub.com/leviticus/20-21.htm) “‘如果一个男人与他的姑姑有性关系，他就已羞辱他的叔叔。他们会被担责；他们将无子女而死。
