@@ -45,3 +45,15 @@ Of Marriage and Divorce
 [^24-9]: [可6:18](https://biblehub.com/mark/6-18.htm) 因为约翰已一再对希律说：“拥有你兄弟的妻子对你是不合法的。” [利18:24](https://biblehub.com/leviticus/18-24.htm) “‘不要以任何这些方式来玷污你们自己，因为这就是我要在你们之前驱除的列邦如何变得玷污的。 [25](https://biblehub.com/leviticus/18-25.htm) 甚至土地也被玷污了；所以我为它的罪恶惩罚它，而这土地就吐出它的居民。 [26](https://biblehub.com/leviticus/18-26.htm) 但你们必须遵守我的预旨和律法。土著和定居在你们中间的异邦人，都决不能做任何这些可憎的事， [27](https://biblehub.com/leviticus/18-27.htm) 因为所有这些事情被在你们之前生活在这土地上的族民做了，而这土地就变得玷污了。 [28](https://biblehub.com/leviticus/18-28.htm) 而如果你们玷污这土地，它就会将你们吐出，如它吐出了在你们之前的列邦一样。
 
 [^24-10]: [利20:19](https://biblehub.com/leviticus/20-19.htm) “‘不要与你母亲或你父亲的姐妹有性关系，因为那会羞辱近亲；你们俩都会被担责。 [20](https://biblehub.com/leviticus/20-20.htm) “‘如果一个男人与他的姑姑有性关系，他就已羞辱他的叔叔。他们会被担责；他们将无子女而死。 [21](https://biblehub.com/leviticus/20-21.htm) “‘如果一个男人与他的姑姑有性关系，他就已羞辱他的叔叔。他们会被担责；他们将无子女而死。
+
+## 24.5
+
+> Adultery or fornication committed after a contract, being detected before marriage, gives just occasion to the innocent party to dissolve that contract. In the case of adultery after marriage, it is lawful for the innocent party to sue out a divorce and, after the divorce, to marry another, as if the offending party were dead.
+
+婚约之后犯通奸或私通，在婚前被查明，给无罪方解除那婚约正当的情形[^24-11]。在婚后通奸的案例下，对无罪方这是合法的：诉讼离婚，且，离婚后[^24-12]，与另一个结婚，就好像违犯方死了一样[^24-13]。
+
+[^24-11]: [太1:18](https://biblehub.com/matthew/1-18.htm) 这是弥赛亚耶稣的诞生是如何产生的：祂的母亲马利亚被许诺要被嫁给约瑟，但在他们来到一起之前，她被发现藉着圣灵怀孕了。 [19](https://biblehub.com/matthew/1-19.htm) 因为她的丈夫约瑟对律法信实，而未想将她暴露给公众羞耻，所以他有主意要悄悄地与她离婚。 [20](https://biblehub.com/matthew/1-20.htm) 但在他已思虑这之后，主的一位天使在一个梦中向他显现并说：“约瑟大卫的儿子，不要害怕将马利亚取到家为你的妻子，因为在她里面被孕育的源自圣灵。
+
+[^24-12]: [太5:31](https://biblehub.com/matthew/5-31.htm) “曾有人说，‘任何与妻子离婚的人，必须给她离婚证书。’ [32](https://biblehub.com/matthew/5-32.htm) 但我告诉你们，任何与妻子离婚的人，除了淫乱之外，都使她成为通奸的受害者，而任何与一个离婚女人结婚的人就犯通奸罪。
+
+[^24-13]: [太19:9](https://biblehub.com/matthew/19-9.htm) 我告诉你们，任何与妻子离婚的人，除了淫乱之外，而娶另一个女人，就犯通奸罪。” [罗7:2](https://biblehub.com/romans/7-2.htm) 例如，由律法，一个已婚妇女受她的丈夫的束缚只要他活着，但如果她的丈夫死去，她就从将她束缚到他的律法中被免除。 [3](https://biblehub.com/romans/7-3.htm) 所以那么，如果她在她的丈夫仍然活着时与另一个男人有性关系，她就被称为奸妇。但如果她的丈夫死了，她就从该法律中被免除，而如果她与另一个男人结婚，就不是奸妇。
