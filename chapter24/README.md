@@ -57,3 +57,13 @@ Of Marriage and Divorce
 [^24-12]: [太5:31](https://biblehub.com/matthew/5-31.htm) “曾有人说，‘任何与妻子离婚的人，必须给她离婚证书。’ [32](https://biblehub.com/matthew/5-32.htm) 但我告诉你们，任何与妻子离婚的人，除了淫乱之外，都使她成为通奸的受害者，而任何与一个离婚女人结婚的人就犯通奸罪。
 
 [^24-13]: [太19:9](https://biblehub.com/matthew/19-9.htm) 我告诉你们，任何与妻子离婚的人，除了淫乱之外，而娶另一个女人，就犯通奸罪。” [罗7:2](https://biblehub.com/romans/7-2.htm) 例如，由律法，一个已婚妇女受她的丈夫的束缚只要他活着，但如果她的丈夫死去，她就从将她束缚到他的律法中被免除。 [3](https://biblehub.com/romans/7-3.htm) 所以那么，如果她在她的丈夫仍然活着时与另一个男人有性关系，她就被称为奸妇。但如果她的丈夫死了，她就从该法律中被免除，而如果她与另一个男人结婚，就不是奸妇。
+
+## 24.6
+
+> Although the corruption of man be such as is apt to study arguments unduly to put asunder those whom God has joined together in marriage: yet, nothing but adultery, or such wilful desertion as can no way be remedied by the Church, or civil magistrate, is cause sufficient of dissolving the bond of marriage: wherein, a public and orderly course of proceeding is to be observed; and the persons concerned in it not left to their own wills, and discretion, in their own case.
+
+虽然人的败坏如此以致易于不适当地研究论据，以将那些上帝已在婚姻中结合在一起的人拆散：但除了通奸，或那由教会或民事长官没有办法能补救的故意离弃之外，没有任何是解除婚姻纽带的充足理由[^24-14]：其中，应当遵从一种公开、有序的起诉过程；而涉及在其中的个体在他们自身的案件中，不应被放任给他们自身的意志和独裁[^24-15]。
+
+[^24-14]: [太19:8](https://biblehub.com/matthew/19-8.htm) 耶稣回复：“摩西允许你们与你们的妻子离婚，因为你们的心硬。但从起初不是这样的方法。 [太19:9](https://biblehub.com/matthew/19-9.htm) 我告诉你们，任何与妻子离婚的人，除了淫乱之外，而娶另一个女人，就犯通奸罪。” [林前7:15](https://biblehub.com/1_corinthians/7-15.htm) 但如果那不信者离开，就让其这样吧。在这种状况下，兄弟或姐妹不被束缚；上帝已召唤我们生活在和平中。 [太19:6](https://biblehub.com/matthew/19-6.htm) 所以他们不再是两个，而是一体。因此，上帝已结合在一起的，不让任何人分离。
+
+[^24-15]: [申24:1](https://biblehub.com/deuteronomy/24-1.htm) 如果一个男人和一个女人结婚，而她变得不使他满意因为他发现关于她一些不雅的事情，而他给她写下离婚证书，将其给她并将她从他家送出， [2](https://biblehub.com/deuteronomy/24-2.htm) 而如果她离开他的家后成为另一个男人的妻子， [3](https://biblehub.com/deuteronomy/24-3.htm) 而如果她的第二任丈夫不喜欢她，并给她写下离婚证明，将其给她并将她从他家送出，或者如果他死去， [4](https://biblehub.com/deuteronomy/24-4.htm) 那么，与她离婚的她的第一任丈夫，在她已被玷污后，不被允许再与她结婚。那会在耶和华眼中是可憎的。不要将罪恶带到这耶和华你的上帝正赐给你作为遗产的土地上。
