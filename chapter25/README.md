@@ -25,3 +25,11 @@ Of the Church
 [^25-5]: [弗2:19](https://biblehub.com/ephesians/2-19.htm) 结果是，你们不再是异邦人和寄居者，而是与上帝的子民一同的同胞公民，而也是祂的家室的成员， [3:15](https://biblehub.com/ephesians/3-15.htm) 源自祂在天国和在地上的每一家庭都派生出它的名。
 
 [^25-6]: [徒2:47](https://biblehub.com/acts/2-47.htm) 赞美上帝并享受所有子民的恩惠。而主每日把那些要被拯救的人添加到他们的数量上。
+
+## 25.3
+
+> Unto this catholic visible Church Christ has given the ministry, oracles, and ordinances of God, for the gathering and perfecting of the saints, in this life, to the end of the world: and does, by His own presence and Spirit, according to His promise, make them effectual thereunto.
+
+基督已将上帝的事工、神谕和教仪赐给这个可见的大公教会，为圣徒的聚集和完美，在此生，到世界的末了：并且确实，由祂自身的临在和圣灵，按照祂的应许，使他们有效达此目的[^25-7]。
+
+[^25-7]: [林前12:28](https://biblehub.com/1_corinthians/12-28.htm) 上帝在教会中首先安置使徒，第二是先知，第三是教师，然后是奇迹，然后是治愈、帮助、引领和各种方言的天赋。 [弗4:11](https://biblehub.com/ephesians/4-11.htm) 所以基督亲自赐予使徒、先知、福音传教士、牧者和教师， [12](https://biblehub.com/ephesians/4-12.htm) 来为服侍的工作装备他的子民，以致基督的身体能被造就 [13](https://biblehub.com/ephesians/4-13.htm) 直到我们所有人在信心中并在上帝圣子的知识上到达合一，而变得成熟，达成基督圆满的整个度量。 [太28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗， [20](https://biblehub.com/matthew/28-20.htm) 并教导他们遵守我已命令你们的一切。而无疑我总是与你们同在，到这时代的最末了。 [赛59:21](https://biblehub.com/isaiah/59-21.htm) “至于我，这是我同他们的圣约，”耶和华说。“我的圣灵在你们身上，不会背离你们，而我已放置在你们口中的我的言语将总是在你们的唇上，在你们子女的唇上，以及他们后代的唇上，从这时起，直到永远”耶和华说。
