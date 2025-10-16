@@ -33,3 +33,13 @@ Of the Church
 基督已将上帝的事工、神谕和教仪赐给这个可见的大公教会，为圣徒的聚集和完美，在此生，到世界的末了：并且确实，由祂自身的临在和圣灵，按照祂的应许，使他们有效达此目的[^25-7]。
 
 [^25-7]: [林前12:28](https://biblehub.com/1_corinthians/12-28.htm) 上帝在教会中首先安置使徒，第二是先知，第三是教师，然后是奇迹，然后是治愈、帮助、引领和各种方言的天赋。 [弗4:11](https://biblehub.com/ephesians/4-11.htm) 所以基督亲自赐予使徒、先知、福音传教士、牧者和教师， [12](https://biblehub.com/ephesians/4-12.htm) 来为服侍的工作装备他的子民，以致基督的身体能被造就 [13](https://biblehub.com/ephesians/4-13.htm) 直到我们所有人在信心中并在上帝圣子的知识上到达合一，而变得成熟，达成基督圆满的整个度量。 [太28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗， [20](https://biblehub.com/matthew/28-20.htm) 并教导他们遵守我已命令你们的一切。而无疑我总是与你们同在，到这时代的最末了。 [赛59:21](https://biblehub.com/isaiah/59-21.htm) “至于我，这是我同他们的圣约，”耶和华说。“我的圣灵在你们身上，不会背离你们，而我已放置在你们口中的我的言语将总是在你们的唇上，在你们子女的唇上，以及他们后代的唇上，从这时起，直到永远”耶和华说。
+
+## 25.4
+
+> This catholic Church has been sometimes more, sometimes less visible. And particular Churches, which are members thereof, are more or less pure, according as the doctrine of the Gospel is taught and embraced, ordinances administered, and public worship performed more or less purely in them.
+
+此大公教会曾有时更显眼，也曾有时隐蔽[^25-8]。而特定教会，是这其中的成员，其纯洁性依据在它们中教导、拥立福音的教义，施行教仪以及实行公共敬拜的纯洁度的多少，或多或少[^25-9]。
+
+[^25-8]: [罗11:3](https://biblehub.com/romans/11-3.htm) “主啊，他们已杀死祢的先知，拆毁祢的祭坛；我是唯一一个剩下的，而他们正试图杀我”？ [4](https://biblehub.com/romans/11-4.htm) 而上帝对他的回答是什么？“我已为我自己预留七千人，他们不曾向巴力屈膝。” [启12:6](https://biblehub.com/revelation/12-6.htm) 这女人逃进荒野到一个由上帝为她准备的地方，那里她能被看护1260天。 [14](https://biblehub.com/revelation/12-14.htm) 这女人被赐予巨鹰的两只翅膀，以致她能飞到荒野中为她准备的在大蛇到达范围之外的地方，那里她会被看护一载加二载又半载。
+
+[^25-9]: （[启2](https://biblehub.com/niv/revelation/2.htm)、[3](https://biblehub.com/niv/revelation/3.htm) 全部） [林前5:6](https://biblehub.com/1_corinthians/5-6.htm) 你们的夸耀不好。你们不知道一点酵就能使整批面团发酵吗？ [7](https://biblehub.com/1_corinthians/5-7.htm) 去除旧酵，以使你们能成为一个新的无酵批次---与你们真实的一样。因为基督，我们的逾越节羔羊，已被献祭。
