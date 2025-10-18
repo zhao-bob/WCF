@@ -55,3 +55,13 @@ Of the Church
 [^25-11]: [启18:2](https://biblehub.com/revelation/18-2.htm) 他用强有力的嗓音喊叫：“‘倒了！大巴比伦倒了！’她已成为邪灵的一个居所和每个不洁之灵的出没地，每个不净之鸟的出没地，每个不净而可憎的动物的出没地。 [罗11:18](https://biblehub.com/romans/11-18.htm) 不要认为你们自己比那些其他树枝优越。如果你们确实如此，请思虑这：你们并不支持根，而是根支持你们。 [19](https://biblehub.com/romans/11-19.htm) 那么你们会说，“树枝被折断以使我能被移植进来。” [20](https://biblehub.com/romans/11-20.htm) 不错。但他们因为不相信而被折断，而你们由信心站立。不要自傲，而是战兢。 [21](https://biblehub.com/romans/11-21.htm) 因为如果上帝不轻饶这些原本的树枝，祂也不会轻饶你们。 [22](https://biblehub.com/romans/11-22.htm) 所以要思虑上帝的温良和严苛：严苛是对那些堕落的人，但温良是对你们的，只要你们持续在祂的温良中。否则，你们也会被切断。
 
 [^25-12]: [太16:18](https://biblehub.com/matthew/16-18.htm) 而我告诉你，你是彼得，而在这岩石上我会建造我的教会，冥界的门不会胜过它。 [诗72:17](https://biblehub.com/psalms/72-17.htm) 愿祂的名永远存续；愿它持续得像太阳一样长。那时万邦都会藉着祂而得福，而他们会称祂为有福。 [102:28](https://biblehub.com/psalms/102-28.htm) 祢仆人们的子女会在祢的临在中生活；他们的后代会在祢面前被确立。 [太28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗， [20](https://biblehub.com/matthew/28-20.htm) 并教导他们遵守我已命令你们的一切。而无疑我总是与你们同在，到这时代的最末了。
+
+## 25.6
+
+> There is no other head of the Church but the Lord Jesus Christ. Nor can the Pope of Rome, in any sense, be head thereof; but is that Antichrist, that man of sin, and son of perdition, that exalts himself, in the Church, against Christ and all that is called God.
+
+除了主耶稣基督之外，没有教会其他元首[^25-13]。在任何意义上，罗马教皇也不能为其元首；而是那敌基督，那罪恶之人，永劫之子，他在教会中提拔他自己，对抗基督和所有被称为上帝的[^25-14]。
+
+[^25-13]: [西1:18](https://biblehub.com/colossians/1-18.htm) 而祂是这身体---教会的元首；祂是起初，也是来自死人中间的长子，以致在一切中祂能有至上权。 [弗1:22](https://biblehub.com/ephesians/1-22.htm) 而上帝将万物都放置在祂的脚下，并为教会指定祂为所有之上的元首，
+
+[^25-14]: [太23:8](https://biblehub.com/matthew/23-8.htm) “但你们不该被称为‘拉比’，因为你们只有一位教师，而你们都是兄弟。 [9](https://biblehub.com/matthew/23-9.htm) 而且不要称地上任何人为'父'，因为你们有一位圣父，而祂在天国中。 [10](https://biblehub.com/matthew/23-10.htm) 你们也不该被称为导师，因为你们有一位导师，弥赛亚。 [帖后2:3](https://biblehub.com/2_thessalonians/2-3.htm) 不要让任何人用任何方法欺骗你们，因为那日子不会来到，直到叛逆出现和那不法之人---毁灭之子---被揭露。 [4](https://biblehub.com/2_thessalonians/2-4.htm) 他会反叛并会提拔他自己，在一切被称为上帝或被敬拜的东西之上，以至于他将他自己立于上帝的神殿中，宣布他自己是上帝。 [8](https://biblehub.com/2_thessalonians/2-8.htm) 而于是不法的那位会被揭露，主耶稣会用祂口中的气息将他推翻，用祂到来的光辉将他摧毁。 [9](https://biblehub.com/2_thessalonians/2-9.htm) 不法的那位的到来将依照撒旦的工作的方式。他会借着服务谎言的神迹奇事使用权柄的各样显示， [启13:6](https://biblehub.com/revelation/13-6.htm) 它张开它的口渎犯上帝，并毁谤祂的名和祂的居所处以及那些住在天国中的人。
