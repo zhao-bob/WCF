@@ -55,5 +55,7 @@
 
 ## [第二十五章 论教会](https://zhao-bob.github.io/WCF/chapter25)
 
+## [第二十六章 论圣徒交契](https://zhao-bob.github.io/WCF/chapter26)
+
 
 
