@@ -25,3 +25,15 @@ Of the Sacraments
 在每种圣礼中，在记号和所表示的事物之间有一种属灵的关系或圣礼性的联合：从这里来临的是，一个的名字和效果被归属于另一个[^27-6]。
 
 [^27-6]: [创17:10](https://biblehub.com/genesis/17-10.htm) 这是我同你和你之后你的后代的圣约，是你们要信守的圣约：你们中间每个男性都要受割礼。 [太26:27](https://biblehub.com/matthew/26-27.htm) 于是祂拿了一杯，而当祂献完感谢，祂把它给他们，说：“你们所有人，都以它为饮。 [28](https://biblehub.com/matthew/26-28.htm) 这就是我圣约的血，它为罪恶的减免，为许多人被倾倒出来。 [多3:5](https://biblehub.com/titus/3-5.htm) 祂拯救了我们，不是因为我们已完成的正义的事情，而是因为祂的宽恕。祂藉着再生的洗涤和由圣灵的更新拯救了我们，
+
+## 27.3
+
+> The grace which is exhibited in or by the sacraments rightly used, is not conferred by any power in them; neither does the efficacy of a sacrament depend upon the piety or intention of him that does administer it: but upon the work of the Spirit, and the word of institution, which contains, together with a precept authorizing the use thereof, a promise of benefit to worthy receivers.
+
+在正确使用的圣礼中或由其被展现的恩典，不由在它们中的任何权柄颁授；一项圣礼的效力也不依赖于那施行礼它的人的虔诚或意向[^27-7]：而在于圣灵的功劳[^27-8]，以及设立的言，它包含一个，与一项授权其使用的戒律一同，对值得的领受者有益处的应许[^27-9]。
+
+[^27-7]: [罗2:28](https://biblehub.com/romans/2-28.htm) 一个仅外在为一的个体不是一个犹太人，割礼也不仅仅是外在和物质的。 [29](https://biblehub.com/romans/2-29.htm) 是的，一个内在为一的个体才是犹太人；而割礼是由圣灵对心的割礼，而不是由成文的法典。这样一个个体的赞美不出自其他民众，而出自上帝。 [彼前3:21](https://biblehub.com/1_peter/3-21.htm) 而此水也是现在拯救你们的洗礼的符号---不是移除身体上的污垢，而是向着上帝的一种清晰的良心的许诺。它通过耶稣基督的复活拯救你们，
+
+[^27-8]: [太3:11](https://biblehub.com/matthew/3-11.htm) “我以水为悔改给你们施洗。但在我之后，要来一位比我更有权柄的人，我不配提祂的鞋。祂会以圣灵和火给你们施洗。 [林前12:13](https://biblehub.com/1_corinthians/12-13.htm) 因为我们都由一位圣灵受洗，以致形成一个身体---无论犹太人或外邦人，奴隶或自由人---且我们都被赐予了这一位圣灵为饮。
+
+[^27-9]: [太26:27](https://biblehub.com/matthew/26-27.htm) 于是祂拿了一杯，而当祂献完感谢，祂把它给他们，说：“你们所有人，都以它为饮。 [28](https://biblehub.com/matthew/26-28.htm) 这就是我圣约的血，它为罪恶的减免，为许多人被倾倒出来。 [28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗， [20](https://biblehub.com/matthew/28-20.htm) 并教导他们遵守我已命令你们的一切。而无疑我总是与你们同在，到这时代的最末了。
