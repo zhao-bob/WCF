@@ -37,3 +37,11 @@ Of the Sacraments
 [^27-8]: [太3:11](https://biblehub.com/matthew/3-11.htm) “我以水为悔改给你们施洗。但在我之后，要来一位比我更有权柄的人，我不配提祂的鞋。祂会以圣灵和火给你们施洗。 [林前12:13](https://biblehub.com/1_corinthians/12-13.htm) 因为我们都由一位圣灵受洗，以致形成一个身体---无论犹太人或外邦人，奴隶或自由人---且我们都被赐予了这一位圣灵为饮。
 
 [^27-9]: [太26:27](https://biblehub.com/matthew/26-27.htm) 于是祂拿了一杯，而当祂献完感谢，祂把它给他们，说：“你们所有人，都以它为饮。 [28](https://biblehub.com/matthew/26-28.htm) 这就是我圣约的血，它为罪恶的减免，为许多人被倾倒出来。 [28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗， [20](https://biblehub.com/matthew/28-20.htm) 并教导他们遵守我已命令你们的一切。而无疑我总是与你们同在，到这时代的最末了。
+
+## 27.4
+
+> There are only two sacraments ordained by Christ our Lord in the Gospel; that is to say, Baptism, and the Supper of the Lord: neither of which may be dispensed by any, but by a minister of the Word lawfully ordained.
+
+在福音中惟有两种由基督我们主按立的圣礼；那就是说，洗礼和主餐：除了由一位合法被按立的圣言牧师外，这两者都不能由任何人实施[^27-10]。
+
+[^27-10]: [太28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗， [林前11:20](https://biblehub.com/1_corinthians/11-20.htm) 所以，那么当你们来到一起时，你们吃的不是主餐， [23](https://biblehub.com/1_corinthians/11-23.htm) 因为我从主领受了我也传给了你们的：主耶稣在祂被出卖的那夜，拿起饼， [4:1](https://biblehub.com/1_corinthians/4-1.htm) 那时，这是你们应该如何待我们的：作为基督的仆人，并作为那些被授信以上帝已启示的奥秘的人。 [来5:4](https://biblehub.com/hebrews/5-4.htm) 而无人自行担当这荣誉，但当被上帝召唤时，祂领受了它，正如亚伦一样。
