@@ -10,7 +10,7 @@ Of Christian Liberty, and Liberty of Conscience
 
 [^20-1]: [多2:14](https://biblehub.com/titus/2-14.htm) 祂为我们献出了祂自己，以从所有邪恶中救赎我们，并为祂自己净化一个只属祂自己，殷切行那些善事的民族。 [帖前1:10](https://biblehub.com/1_thessalonians/1-10.htm) 并从天国等候祂从死人苏醒的儿子---耶稣，祂从即将到来的忿怒中营救我们。 [加3:13](https://biblehub.com/galatians/3-13.htm) 基督通过为我们成为一个咒诅而把我们从律法的咒诅救赎，因为经上记着：“每个被悬挂在柱子上的，都被咒诅。”
 
-[^20-2]: [加1:4](https://biblehub.com/galatians/1-4.htm) 祂为我们的罪恶献出祂自己，按照我们上帝和父的意志，从现今邪恶时代营救我们， [西1:13](https://biblehub.com/colossians/1-13.htm) 因为祂把我们从黑暗的管辖中营救，并把我们带进祂所爱的儿子的国度中， [徒26:18](https://biblehub.com/acts/26-18.htm) 以打开他们的眼睛，而使他们从黑暗转向光明，并从撒旦的权柄转向上帝，以致他们能领受罪恶的饶恕，并由对我的信心在那些被圣洁的人中间的席位。’ [罗6:14](https://biblehub.com/romans/6-14.htm) 因为罪恶将不再是你们的主人，因为你们不在律法之下，而在恩典之下。
+[^20-2]: [加1:4](https://biblehub.com/galatians/1-4.htm) 祂为我们的罪恶献出祂自己，按照我们上帝和圣父的意志，从现今邪恶时代营救我们， [西1:13](https://biblehub.com/colossians/1-13.htm) 因为祂把我们从黑暗的管辖中营救，并把我们带进祂所爱的儿子的国度中， [徒26:18](https://biblehub.com/acts/26-18.htm) 以打开他们的眼睛，而使他们从黑暗转向光明，并从撒旦的权柄转向上帝，以致他们能领受罪恶的饶恕，并由对我的信心在那些被圣洁的人中间的席位。’ [罗6:14](https://biblehub.com/romans/6-14.htm) 因为罪恶将不再是你们的主人，因为你们不在律法之下，而在恩典之下。
 
 [^20-3]: [罗8:28](https://biblehub.com/romans/8-28.htm) 而我们知道，上帝使万物都为那些爱祂的人的善运行，而他们已按照祂的旨意被召唤。 [诗119:71](https://biblehub.com/psalms/119-71.htm) 受磨难对我是好的，以使我能学习祢的预旨。 [林前15:54](https://biblehub.com/1_corinthians/15-54.htm) 当易灭的已被穿戴以不灭，而凡人被穿戴以不朽，那么经上所记的警句就会成真：“死亡已在胜利中被吞噬。” [55](https://biblehub.com/1_corinthians/15-55.htm) “死亡啊，你的胜利在哪里？死亡啊，你的刺痛在哪里？” [56](https://biblehub.com/1_corinthians/15-56.htm) 死亡的刺痛是罪恶，而罪恶的权柄是律法。 [57](https://biblehub.com/1_corinthians/15-57.htm) 但感谢归于上帝！祂藉着我们的主耶稣基督将这胜利赐给我们。 [罗8:1](https://biblehub.com/romans/8-1.htm) 因此，现在对那些在基督耶稣里的人没有定罪，
 
