@@ -45,3 +45,11 @@ Of the Sacraments
 在福音中惟有两种由基督我们主按立的圣礼；那就是说，洗礼和主餐：除了由一位合法被按立的圣言牧师外，这两者都不能由任何人实施[^27-10]。
 
 [^27-10]: [太28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗， [林前11:20](https://biblehub.com/1_corinthians/11-20.htm) 所以，那么当你们来到一起时，你们吃的不是主餐， [23](https://biblehub.com/1_corinthians/11-23.htm) 因为我从主领受了我也传给了你们的：主耶稣在祂被出卖的那夜，拿起饼， [4:1](https://biblehub.com/1_corinthians/4-1.htm) 那时，这是你们应该如何待我们的：作为基督的仆人，并作为那些被授信以上帝已启示的奥秘的人。 [来5:4](https://biblehub.com/hebrews/5-4.htm) 而无人自行担当这荣誉，但当被上帝召唤时，祂领受了它，正如亚伦一样。
+
+## 27.5
+
+> The sacraments of the Old Testament in regard to the spiritual things thereby signified and exhibited, were, for substance, the same with those of the new.
+
+旧约圣礼，关于其中所表示和展现的属灵事情，本体上，与新约的那些相同[^27-11]。
+
+[^27-11]: [林前10:1](https://biblehub.com/1_corinthians/10-1.htm) 弟兄姊妹，因为我不想你们对这事实无知：我们的祖先所有都在那云下，而他们所有人都穿越了那海。 [2](https://biblehub.com/1_corinthians/10-2.htm) 他们所有人都在那云中和那海中受洗归入摩西。 [3](https://biblehub.com/1_corinthians/10-3.htm) 他们都吃了相同的灵粮 [4](https://biblehub.com/1_corinthians/10-4.htm) 并喝相同的灵饮；因为他们以源自相伴他们的灵岩为饮，而那岩石是基督。
