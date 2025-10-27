@@ -57,5 +57,7 @@
 
 ## [第二十六章 论圣徒交契](https://zhao-bob.github.io/WCF/chapter26)
 
+## [第二十七章 论圣礼](https://zhao-bob.github.io/WCF/chapter27)
+
 
 
