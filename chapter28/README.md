@@ -23,3 +23,9 @@ Of Baptism
 [^28-7]: [罗6:3](https://biblehub.com/romans/6-3.htm) 或者难道你们不知我们所有进到基督耶稣里受洗的人，都进到祂的死里受洗吗？ [4](https://biblehub.com/romans/6-4.htm) 我们因此藉着进到死里的洗礼，与祂一同被埋葬，以致正如基督藉着圣父的荣耀从死人苏醒，我们也能活出新的生命。
 
 [^28-8]: [太28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗，
+
+> The outward element to be used in this sacrament is water, wherewith the party is to be baptized, in the name of the Father, and of the Son, and of the Holy Ghost, by a minister of the Gospel, lawfully called thereunto.
+
+在此圣礼中被使用的外在元素是水，借此要奉圣父、圣子和圣魂的名，由一位合法被召唤于此的福音牧师为受洗方施洗[^28-9]。
+
+[^28-9]: [太3:11](https://biblehub.com/matthew/3-11.htm) “我以水为悔改给你们施洗。但在我之后，要来一位比我更有权柄的人，我不配提祂的鞋。祂会以圣灵和火给你们施洗。 [约1:33](https://biblehub.com/john/1-33.htm) 而我自己也不认识祂，但差我用水施洗的那位告诉我：‘你看见圣灵降下并留存在身上的那人，就是会用圣灵施洗的那位。’ [太28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗， [20](https://biblehub.com/matthew/28-20.htm) 并教导他们遵守我已命令你们的一切。而无疑我总是与你们同在，到这时代的最末了。
