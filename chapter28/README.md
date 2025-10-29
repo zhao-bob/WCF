@@ -24,8 +24,18 @@ Of Baptism
 
 [^28-8]: [太28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗，
 
+## 28.2
+
 > The outward element to be used in this sacrament is water, wherewith the party is to be baptized, in the name of the Father, and of the Son, and of the Holy Ghost, by a minister of the Gospel, lawfully called thereunto.
 
 在此圣礼中被使用的外在元素是水，借此要奉圣父、圣子和圣魂的名，由一位合法被召唤于此的福音牧师为受洗方施洗[^28-9]。
 
 [^28-9]: [太3:11](https://biblehub.com/matthew/3-11.htm) “我以水为悔改给你们施洗。但在我之后，要来一位比我更有权柄的人，我不配提祂的鞋。祂会以圣灵和火给你们施洗。 [约1:33](https://biblehub.com/john/1-33.htm) 而我自己也不认识祂，但差我用水施洗的那位告诉我：‘你看见圣灵降下并留存在身上的那人，就是会用圣灵施洗的那位。’ [太28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗， [20](https://biblehub.com/matthew/28-20.htm) 并教导他们遵守我已命令你们的一切。而无疑我总是与你们同在，到这时代的最末了。
+
+## 28.3
+
+> Dipping of the person into the water is not necessary; but Baptism is rightly administered by pouring, or sprinkling water upon the person.
+
+将个体浸入水中是不必要的；但洗礼由倒水或洒水到个体上被正确地施行[^28-10]。
+
+[^28-10]: [来9:10](https://biblehub.com/hebrews/9-10.htm) 它们仅是关于食物和饮品以及各种礼仪性清洗的问题---外部规章的施用直到新秩序时间。 [19](https://biblehub.com/hebrews/9-19.htm) 当摩西已将律法的每个命令都宣布给所有子民时，他拿牛犊的血与水、鲜红羊毛与牛膝草树枝一同，并洒向书卷和所有子民。 [20](https://biblehub.com/hebrews/9-20.htm) 他说：“这是上帝已命令你们信守的圣约的血。” [21](https://biblehub.com/hebrews/9-21.htm) 以同样的方法，他将那血洒向会幕和它仪式上所用的一切。 [22](https://biblehub.com/hebrews/9-22.htm) 事实上，律法要求几乎一切都要以血被洗净，而不以血的流出就没有饶恕。 [徒2:41](https://biblehub.com/acts/2-41.htm) 那些接受他的消息的人都受洗了，而那天大约三千人被添加到他们的数量。 [16:33](https://biblehub.com/acts/16-33.htm) 在晚上的那时辰，狱卒带走他们，并清洗他们的伤口；于是立刻他和他所有家室受了洗。 [可7:4](https://biblehub.com/mark/7-4.htm) 当他们从集市出来，除非他们洗浴，否则他们不吃东西。而他们遵从许多其他传统，例如清洗杯子、水罐和水壶。）
