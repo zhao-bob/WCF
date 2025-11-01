@@ -61,3 +61,13 @@ Of Baptism
 [^28-14]: [罗4:11](https://biblehub.com/romans/4-11.htm) 而他领受了割礼作为一个记号，是一个他在仍未受割礼时由信心拥有正义的封印。所以那么，他是所有相信但未受割礼的人的父亲，以使正义能被归功给他们。 [徒10:2](https://biblehub.com/acts/10-2.htm) 他和他全家都是虔诚，敬畏上帝的；他慷慨地向贫乏的人施舍，并定期向上帝祷告。 [4](https://biblehub.com/acts/10-4.htm) 哥尼流在畏惧中凝视着他。“主，这是什么？”他问。天使回答：“你对穷人祷告和礼物，已经作为纪念祭上达上帝面前。 [22](https://biblehub.com/acts/10-22.htm) 那些人回复：”我们从百夫长哥尼流那里来。他是一个正义且敬畏上帝的人，被所有犹太族民尊重。一位圣天使告诉他要请你到他家里来，以致他能听到你要说的话。” [31](https://biblehub.com/acts/10-31.htm) 并说：‘哥尼流，上帝已听到你的祷告，并记住你给穷人的礼物。 [45](https://biblehub.com/acts/10-45.htm) 与彼得一同来的那些受过割礼的信徒都感到震惊：圣灵的恩赐甚至已被倾倒在外邦人上。 [47](https://biblehub.com/acts/10-47.htm) “无疑，无人能挡他们以水受洗的道。正如我们已受的，他们已领受圣灵。”
 
 [^28-15]: [徒8:13](https://biblehub.com/acts/8-13.htm) 西门亲自相信并受洗。他跟随腓力到每个地方，被他看到的伟大神迹和奇迹震惊。 [23](https://biblehub.com/acts/8-23.htm) 因为我看见你充满苦毒，成了罪恶的俘虏。”
+
+## 28.6
+
+> The efficacy of Baptism is not tied to that moment of time wherein it is administered; yet, notwithstanding, by the right use of this ordinance, the grace promised is not only offered, but really exhibited, and conferred, by the Holy Ghost, to such (whether of age or infants) as that grace belongs unto, according to the counsel of God's own will, in His appointed time.
+
+洗礼的效力不和它被施行的的时间的那一瞬间联系[^28-16]；但尽管如此，由此教仪的正确使用，应许的恩典不仅按照上帝自身的意志的密旨，在祂指定的时间里，被圣魂供应，而且被真实地展现和颁授，给那恩典属于的这人（无论业已成年还是婴儿）[^28-17]。
+
+[^28-16]: [约3:5](https://biblehub.com/john/3-5.htm) 耶稣回答：“我实实在在告诉你们，除非他们从水和圣灵而生，无人能进入上帝的国度。 [8](https://biblehub.com/john/3-8.htm) 风吹向无论任何它愿意的地方。你听见它的声音，但你不能辨出它从哪里来，或它正往哪里去。对每个从圣灵生的，都是如此。
+
+[^28-17]: [加3:27](https://biblehub.com/galatians/3-27.htm) 因为你们所有受洗进入基督的人，都已用基督穿戴你们自己。 [多3:5](https://biblehub.com/titus/3-5.htm) 祂拯救了我们，不是因为我们已完成的正义的事情，而是因为祂的宽恕。祂藉着再生的洗涤和由圣灵的更新拯救了我们， [弗5:25](https://biblehub.com/ephesians/5-25.htm) 丈夫们，爱你们的妻子，正如基督爱教会，为她放弃祂自己， [26](https://biblehub.com/ephesians/5-26.htm) 藉着圣言，靠着以水清洗，洗净她，以使她成为神圣， [徒2:38](https://biblehub.com/acts/2-38.htm) 彼得回复：“你们每一个都要奉耶稣基督的名，为你们的罪恶的饶恕，悔改并受洗。你们就会领受圣灵的恩赐。 [41](https://biblehub.com/acts/2-41.htm) 那些接受他的消息的人都受洗了，而那天大约三千人被添加到他们的数量。
