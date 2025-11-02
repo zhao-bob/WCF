@@ -71,3 +71,11 @@ Of Baptism
 [^28-16]: [约3:5](https://biblehub.com/john/3-5.htm) 耶稣回答：“我实实在在告诉你们，除非他们从水和圣灵而生，无人能进入上帝的国度。 [8](https://biblehub.com/john/3-8.htm) 风吹向无论任何它愿意的地方。你听见它的声音，但你不能辨出它从哪里来，或它正往哪里去。对每个从圣灵生的，都是如此。
 
 [^28-17]: [加3:27](https://biblehub.com/galatians/3-27.htm) 因为你们所有受洗进入基督的人，都已用基督穿戴你们自己。 [多3:5](https://biblehub.com/titus/3-5.htm) 祂拯救了我们，不是因为我们已完成的正义的事情，而是因为祂的宽恕。祂藉着再生的洗涤和由圣灵的更新拯救了我们， [弗5:25](https://biblehub.com/ephesians/5-25.htm) 丈夫们，爱你们的妻子，正如基督爱教会，为她放弃祂自己， [26](https://biblehub.com/ephesians/5-26.htm) 藉着圣言，靠着以水清洗，洗净她，以使她成为神圣， [徒2:38](https://biblehub.com/acts/2-38.htm) 彼得回复：“你们每一个都要奉耶稣基督的名，为你们的罪恶的饶恕，悔改并受洗。你们就会领受圣灵的恩赐。 [41](https://biblehub.com/acts/2-41.htm) 那些接受他的消息的人都受洗了，而那天大约三千人被添加到他们的数量。
+
+## 28.7
+
+> The sacrament of Baptism is but once to be administered unto any person.
+
+洗礼的圣礼对任何个人只被施行一次[^28-18]。
+
+[^28-18]: [多3:5](https://biblehub.com/titus/3-5.htm) 祂拯救了我们，不是因为我们已完成的正义的事情，而是因为祂的宽恕。祂藉着再生的洗涤和由圣灵的更新拯救了我们，
