@@ -59,5 +59,7 @@
 
 ## [第二十七章 论圣礼](https://zhao-bob.github.io/WCF/chapter27)
 
+## [第二十八章 论洗礼](https://zhao-bob.github.io/WCF/chapter28)
+
 
 
