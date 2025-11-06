@@ -31,3 +31,15 @@ Of the Lord's Supper
 [^29-5]: [太26:26](https://biblehub.com/matthew/26-26.htm) 他们正在吃的时候，耶稣拿起饼，而当祂献完感谢时，祂擘开它并将它给祂的门徒，说：“拿去吃；这是我的身体。” [27](https://biblehub.com/matthew/26-27.htm) 于是祂拿了一杯，而当祂献完感谢，祂把它给他们，说：“你们所有人，都以它为饮。 [28](https://biblehub.com/matthew/26-28.htm) 这就是我圣约的血，它为罪恶的减免，为许多人被倾倒出来。 [可14:22](https://biblehub.com/mark/14-22.htm) 他们正在吃的时候，耶稣拿起饼，而当祂献完感谢时，祂擘开它并将它给他的门徒，说：“拿去；这是我的身体。” [23](https://biblehub.com/mark/14-23.htm) 然后祂拿了一杯，而当祂献完感谢，祂把它给他们，而他们所有人都以它为饮。 [24](https://biblehub.com/mark/14-24.htm) “这是我圣约的血，为许多人被倾倒出来，”祂对他们说。 [路22:19](https://biblehub.com/luke/22-19.htm) 而祂拿起饼，献了感谢就擘开它，并将它给他们，说：“这是我的身体赐给你们；要如此行以记念我。” [20](https://biblehub.com/luke/22-20.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是我血中的新约，为你们被倾倒出来。” [林前11:23](https://biblehub.com/1_corinthians/11-23.htm) 因为我从主领受了我也传给了你们的：主耶稣在祂被出卖的那夜，拿起饼， [24](https://biblehub.com/1_corinthians/11-24.htm) 而当祂献完感谢时，祂擘开它并说：“这是我的身体，是为你们的；要这样做以记念我。” [25](https://biblehub.com/1_corinthians/11-25.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是在我血中新的圣约；每当你们喝它时，都要这样做，以记念我。” [26](https://biblehub.com/1_corinthians/11-26.htm) 因为无论何时你们吃这饼，喝这杯，你们就宣布主的死，直到祂来。
 
 [^29-6]: [徒20:7](https://biblehub.com/acts/20-7.htm) 在这周的第一天，我们来到一起擘饼。保罗对民众演讲，而因为他打算第二天离开，就一直讲到午夜。 [林前11:20](https://biblehub.com/1_corinthians/11-20.htm) 所以，那么当你们来到一起时，你们吃的不是主餐，
+
+## 29.4
+
+> Private masses, or receiving this sacrament by a priest, or any other alone; as likewise, the denial of the cup to the people, worshipping the elements, the lifting them up, or carrying them about, for adoration, and the reserving them for any pretended religious use; are all contrary to the nature of this sacrament, and to the institution of Christ.
+
+私人弥撒，或独自从一位祭司或任何其他人领受此圣礼[^29-7]；类似地，否决将杯给子民[^29-8]，敬拜这些元素，为爱慕将它们举起，或将它们随身携带，以及为任何假装的宗教用途预留它们；都与这圣礼的本性，和基督的设立相悖[^29-9]。
+
+[^29-7]: [林前10:16](https://biblehub.com/1_corinthians/10-16.htm) 我们为之献出感谢的感恩之杯不是一种对基督的血的参与？而我们擘开的饼不是一种对基督的身体的参与吗？
+
+[^29-8]: [可14:23](https://biblehub.com/mark/14-23.htm) 然后祂拿了一杯，而当祂献完感谢，祂把它给他们，而他们所有人都以它为饮。 [林前11:25](https://biblehub.com/1_corinthians/11-25.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是在我血中新的圣约；每当你们喝它时，都要这样做，以记念我。” [26](https://biblehub.com/1_corinthians/11-26.htm) 因为无论何时你们吃这饼，喝这杯，你们就宣布主的死，直到祂来。 [27](https://biblehub.com/1_corinthians/11-27.htm) 因此，无论谁以不配的方式吃主的饼或喝主的杯的，就是犯对主的身体和血犯罪的罪行。 [28](https://biblehub.com/1_corinthians/11-28.htm) 每个人在吃这饼和喝这杯之前都应该审查他们自己。 [29](https://biblehub.com/1_corinthians/11-29.htm) 因为那些不辨别基督的身体吃喝的人，吃喝在他们自己上的审判。
+
+[^29-9]: [太15:9](https://biblehub.com/matthew/15-9.htm) 他们徒然地敬拜我；他们的教导不过是人类的规则。’”
