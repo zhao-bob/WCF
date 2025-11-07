@@ -43,3 +43,13 @@ Of the Lord's Supper
 [^29-8]: [可14:23](https://biblehub.com/mark/14-23.htm) 然后祂拿了一杯，而当祂献完感谢，祂把它给他们，而他们所有人都以它为饮。 [林前11:25](https://biblehub.com/1_corinthians/11-25.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是在我血中新的圣约；每当你们喝它时，都要这样做，以记念我。” [26](https://biblehub.com/1_corinthians/11-26.htm) 因为无论何时你们吃这饼，喝这杯，你们就宣布主的死，直到祂来。 [27](https://biblehub.com/1_corinthians/11-27.htm) 因此，无论谁以不配的方式吃主的饼或喝主的杯的，就是犯对主的身体和血犯罪的罪行。 [28](https://biblehub.com/1_corinthians/11-28.htm) 每个人在吃这饼和喝这杯之前都应该审查他们自己。 [29](https://biblehub.com/1_corinthians/11-29.htm) 因为那些不辨别基督的身体吃喝的人，吃喝在他们自己上的审判。
 
 [^29-9]: [太15:9](https://biblehub.com/matthew/15-9.htm) 他们徒然地敬拜我；他们的教导不过是人类的规则。’”
+
+## 29.5
+
+> The outward elements in this sacrament, duly set apart to the uses ordained by Christ, have such relation to Him crucified, as that, truly, yet sacramentally only, they are sometimes called by the name of the things they represent, to wit, the body and blood of Christ; albeit, in substance and nature, they still remain truly and only bread and wine, as they were before.
+
+此圣礼中的外在元素，适当地被分别为由基督按立的用途，与祂被钉十字架有如此关系，以致真正地，但惟圣礼性地，它们有时被它们表征的事情的名称称呼，即基督的身体和血[^29-10]；纵使如此，在本体和性质上，它们仍然依旧，真正且仅是饼和酒，如它们之前所是[^29-11]。
+
+[^29-10]: [太26:26](https://biblehub.com/matthew/26-26.htm) 他们正在吃的时候，耶稣拿起饼，而当祂献完感谢时，祂擘开它并将它给祂的门徒，说：“拿去吃；这是我的身体。” [27](https://biblehub.com/matthew/26-27.htm) 于是祂拿了一杯，而当祂献完感谢，祂把它给他们，说：“你们所有人，都以它为饮。 [28](https://biblehub.com/matthew/26-28.htm) 这就是我圣约的血，它为罪恶的减免，为许多人被倾倒出来。
+
+[^29-11]: [林前11:26](https://biblehub.com/1_corinthians/11-26.htm) 因为无论何时你们吃这饼，喝这杯，你们就宣布主的死，直到祂来。 [27](https://biblehub.com/1_corinthians/11-27.htm) 因此，无论谁以不配的方式吃主的饼或喝主的杯的，就是犯对主的身体和血犯罪的罪行。 [28](https://biblehub.com/1_corinthians/11-28.htm) 每个人在吃这饼和喝这杯之前都应该审查他们自己。 [太26:29](https://biblehub.com/matthew/26-29.htm) 我告诉你们，从今以后，我不会以这葡萄树的果实为饮，直到当我在我圣父的国度里与你们一同新饮它的那一天。
