@@ -53,3 +53,11 @@ Of the Lord's Supper
 [^29-10]: [太26:26](https://biblehub.com/matthew/26-26.htm) 他们正在吃的时候，耶稣拿起饼，而当祂献完感谢时，祂擘开它并将它给祂的门徒，说：“拿去吃；这是我的身体。” [27](https://biblehub.com/matthew/26-27.htm) 于是祂拿了一杯，而当祂献完感谢，祂把它给他们，说：“你们所有人，都以它为饮。 [28](https://biblehub.com/matthew/26-28.htm) 这就是我圣约的血，它为罪恶的减免，为许多人被倾倒出来。
 
 [^29-11]: [林前11:26](https://biblehub.com/1_corinthians/11-26.htm) 因为无论何时你们吃这饼，喝这杯，你们就宣布主的死，直到祂来。 [27](https://biblehub.com/1_corinthians/11-27.htm) 因此，无论谁以不配的方式吃主的饼或喝主的杯的，就是犯对主的身体和血犯罪的罪行。 [28](https://biblehub.com/1_corinthians/11-28.htm) 每个人在吃这饼和喝这杯之前都应该审查他们自己。 [太26:29](https://biblehub.com/matthew/26-29.htm) 我告诉你们，从今以后，我不会以这葡萄树的果实为饮，直到当我在我圣父的国度里与你们一同新饮它的那一天。
+
+## 29.6
+
+> That doctrine which maintains a change of the substance of bread and wine, into the substance of Christ's body and blood (commonly called transubstantiation) by consecration of a priest, or by any other way, is repugnant, not to Scripture alone, but even to common sense, and reason; overthrows the nature of the sacrament, and has been, and is, the cause of manifold superstitions; yes, of gross idolatries.
+
+那种维护由一位祭司的祝圣，或由任何其他方法，将饼和酒的本体改变为基督的身体和血的本体（通常被称为变体论）的教义，不惟独与圣经，而且甚至与常识和理性相抵触；推翻此圣礼的本性，并且曾是，现在也是，百般迷信的起因；真的是，属堂而皇之拜偶像[^29-12]。
+
+[^29-12]: [徒3:21](https://biblehub.com/acts/3-21.htm) 天国必须接收祂，直到为上帝的时间到来以恢复一切，如祂很久以前藉着祂的圣先知们应许了的。 [林前11:24](https://biblehub.com/1_corinthians/11-24.htm) 而当祂献完感谢时，祂擘开它并说：“这是我的身体，是为你们的；要这样做以记念我。” [25](https://biblehub.com/1_corinthians/11-25.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是在我血中新的圣约；每当你们喝它时，都要这样做，以记念我。” [26](https://biblehub.com/1_corinthians/11-26.htm) 因为无论何时你们吃这饼，喝这杯，你们就宣布主的死，直到祂来。 [路24:6](https://biblehub.com/luke/24-6.htm) 祂不在这里；祂已经醒来！要记得祂还在加利利与你们同在的时，祂怎样告诉你们的： [39](https://biblehub.com/luke/24-39.htm) 看我的双手和我的双脚。这就是我自己！摸摸我并看看；一个魂魄没有肉体和骨头，可你们看到我有。”
