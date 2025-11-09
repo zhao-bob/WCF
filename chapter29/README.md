@@ -61,3 +61,13 @@ Of the Lord's Supper
 那种维护由一位祭司的祝圣，或由任何其他方法，将饼和酒的本体改变为基督的身体和血的本体（通常被称为变体论）的教义，不惟独与圣经，而且甚至与常识和理性相抵触；推翻此圣礼的本性，并且曾是，现在也是，百般迷信的起因；真的是，属堂而皇之拜偶像[^29-12]。
 
 [^29-12]: [徒3:21](https://biblehub.com/acts/3-21.htm) 天国必须接收祂，直到为上帝的时间到来以恢复一切，如祂很久以前藉着祂的圣先知们应许了的。 [林前11:24](https://biblehub.com/1_corinthians/11-24.htm) 而当祂献完感谢时，祂擘开它并说：“这是我的身体，是为你们的；要这样做以记念我。” [25](https://biblehub.com/1_corinthians/11-25.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是在我血中新的圣约；每当你们喝它时，都要这样做，以记念我。” [26](https://biblehub.com/1_corinthians/11-26.htm) 因为无论何时你们吃这饼，喝这杯，你们就宣布主的死，直到祂来。 [路24:6](https://biblehub.com/luke/24-6.htm) 祂不在这里；祂已经醒来！要记得祂还在加利利与你们同在的时，祂怎样告诉你们的： [39](https://biblehub.com/luke/24-39.htm) 看我的双手和我的双脚。这就是我自己！摸摸我并看看；一个魂魄没有肉体和骨头，可你们看到我有。”
+
+## 29.7
+
+> Worthy receivers, outwardly partaking of the visible elements, in this sacrament, do then also, inwardly by faith, really and indeed, yet not carnally and corporally but spiritually, receive and feed upon, Christ crucified, and all benefits of His death: the body and blood of Christ being then, not corporally or carnally, in, with, or under the bread and wine; yet, as really, but spiritually, present to the faith of believers in that ordinance, as the elements themselves are to their outward senses.
+
+配得的领受者在此圣礼中，外在地共享的可见元素[^29-13]，确实那时也，内在地由信心，真实而真确地，但不是肉身和躯体地，而是属灵地，领受和受养于被钉十字架的基督，和祂死亡的所有益处：基督的身体和血在那时，不是躯体或肉身地，在饼和酒里，与饼和酒一同，或在饼和酒之下；而是，作为真实地，但属灵地，在那教仪中向信徒们的信心呈现，如这些元素它们自己会给他们的外在感觉一样[^29-14]。
+
+[^29-13]: [林前11:28](https://biblehub.com/1_corinthians/11-28.htm) 每个人在吃这饼和喝这杯之前都应该审查他们自己。
+
+[^29-14]: [林前10:16](https://biblehub.com/1_corinthians/10-16.htm) 我们为之献出感谢的感恩之杯不是一种对基督的血的参与？而我们擘开的饼不是一种对基督的身体的参与吗？
