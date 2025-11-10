@@ -71,3 +71,13 @@ Of the Lord's Supper
 [^29-13]: [林前11:28](https://biblehub.com/1_corinthians/11-28.htm) 每个人在吃这饼和喝这杯之前都应该审查他们自己。
 
 [^29-14]: [林前10:16](https://biblehub.com/1_corinthians/10-16.htm) 我们为之献出感谢的感恩之杯不是一种对基督的血的参与？而我们擘开的饼不是一种对基督的身体的参与吗？
+
+## 29.7
+
+> Although ignorant and wicked men receive the outward elements in this sacrament; yet, they receive not the thing signified thereby; but, by their unworthy coming thereunto, are guilty of the body and blood of the Lord, to their own damnation. Wherefore, all ignorant and ungodly persons, as they are unfit to enjoy communion with Him, so are they unworthy of the Lord's table; and cannot, without great sin against Christ, while they remain such, partake of these holy mysteries, or be admitted thereunto.
+
+虽然无知而邪恶的人在此圣礼中领受外在元素；但是，他们没有领受那其中表示的事情；而且，由于他们不配到来至此，而犯对主的身体和血，对他们自身的天谴的罪行。因此，所有无知而不敬神的个体，因为他们不适宜享受同祂的交契，所以他们不配主的桌；而且在他们依旧如此时，就不能，不对基督犯巨大的罪恶，而共享这些神圣的奥秘[^29-15]，或被接纳至其中[^29-16]。
+
+[^29-15]: [林前11:27](https://biblehub.com/1_corinthians/11-27.htm) 因此，无论谁以不配的方式吃主的饼或喝主的杯的，就是犯对主的身体和血犯罪的罪行。 [28](https://biblehub.com/1_corinthians/11-28.htm) 每个人在吃这饼和喝这杯之前都应该审查他们自己。 [29](https://biblehub.com/1_corinthians/11-29.htm) 因为那些不辨别基督的身体吃喝的人，吃喝在他们自己上的审判。 [林后6:14](https://biblehub.com/2_corinthians/6-14.htm) 不要与不信者在一起被负轭。因为正义和邪恶有什么共同？或者光明与黑暗有什么团契呢？ [15](https://biblehub.com/2_corinthians/6-15.htm) 基督和彼列之间有什么和谐呢？或者，一个信徒同一个非信徒有什么共同呢？ [16](https://biblehub.com/2_corinthians/6-16.htm) 上帝的神殿和偶像之间有什么协定？因为我们是永活上帝的殿。如上帝已说的：“我将与他们同住并行走在他们中间，而我会是他们的上帝，而他们会是我的子民。”
+
+[^29-16]: [林前5:6](https://biblehub.com/1_corinthians/5-6.htm) 你们的夸耀不好。你们不知道一点酵就能使整批面团发酵吗？ [7](https://biblehub.com/1_corinthians/5-7.htm) 去除旧酵，以使你们能成为一个新的无酵批次---与你们真实的一样。因为基督，我们的逾越节羔羊，已被献祭。 [13](https://biblehub.com/1_corinthians/5-13.htm) 上帝会审判那些外面的人。“从你们中间把那邪恶的个体驱逐出去。” [帖后3:6](https://biblehub.com/2_thessalonians/3-6.htm) 奉主耶稣基督的名，我们命令你们，弟兄姊妹，要避开每一个无聊和扰乱的，并不按照你们从我们领受的教导生活的信徒。 [14](https://biblehub.com/2_thessalonians/3-14.htm) 要对任何不遵守我们在这封信中的指令的人特殊备注。不要与他们交往，为使他们能感到羞愧。 [15](https://biblehub.com/2_thessalonians/3-15.htm) 但不要把他们当作一个敌人，而要像你们会警告一个同胞信徒那样警告他们。 [太7:6](https://biblehub.com/matthew/7-6.htm) “不要将奉神的东西给狗；不要将你们的珍珠扔给猪。如果你们如此，他们可能在他们脚下践踏它们，并转身将你们撕成碎片。

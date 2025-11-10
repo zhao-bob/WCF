@@ -26,7 +26,7 @@ Of Lawful Oaths and Vows
 
 [^22-6]: [王上8:31](https://biblehub.com/1_kings/8-31.htm) “当任何人对他们的邻居行恶并被要求起誓而且他们来到在这神殿中祢的祭坛前发此誓言时， [尼13:25](https://biblehub.com/nehemiah/13-25.htm) 我训斥了他们并召唤咒诅降在他们身上。我打了这些男人中的几个并扯掉了他们的头发。我让他们以上帝的名起誓并说：“你们不要把你们的女儿嫁给他们的儿子，也不要为了你们的儿子或为你们自己娶他们的女儿。 [拉10:5](https://biblehub.com/ezra/10-5.htm) 于是以斯拉起来，并使祭司长、利未人和所有以色列人都立下誓言去做已被建议的。于是他们起了誓。
 
-# 22.3
+## 22.3
 
 > Whosoever takes an oath ought duly to consider the weightiness of so solemn an act, and therein to avouch nothing but what he is fully persuaded is the truth: neither may any man bind himself by oath to any thing but what is good and just, and what he believes so to be, and what he is able and resolved to perform. Yet it is a sin to refuse an oath touching any thing that is good and just, being imposed by lawful authority.
 
@@ -38,7 +38,7 @@ Of Lawful Oaths and Vows
 
 [^22-9]: [民5:19](https://biblehub.com/numbers/5-19.htm) 然后，祭司要让这女人立下誓言并对她说：“如果没有其他男人已与你有过性关系，而你在和你的丈夫结婚期间没有走偏而变得不洁，愿这带来诅咒的苦水不会伤害你。 [21](https://biblehub.com/numbers/5-21.htm) 这里祭司要将这女人置于此咒诅之下---“愿耶和华由祂使你的子宫流产并使你腹部肿胀，致使你成为你族民的咒诅。 [尼5:12](https://biblehub.com/nehemiah/5-12.htm) “我们会将它归还，”他们说。“而且我们不会向他们要求任何更多的东西。我们会像你说的做。”于是我召集众祭司，并让贵族和官员们起誓去做他们已承诺的。 [出22:7](https://biblehub.com/exodus/22-7.htm) “如果任何人为安全保管把银子或物品给一位邻居，而它们是从这邻居家被偷的，这窃贼如果被抓住，必须加倍偿还。 [8](https://biblehub.com/exodus/22-8.htm) 但如果没有找到那窃贼，房子的业主必须显现在法官们面前，而他们必须判定房子的业主是否占有他邻居的财物。 [9](https://biblehub.com/exodus/22-9.htm) 在所有牛、驴、羊、服装的非法占有或任何其他关于有人说“这是我的”的丢失财物的案件中，双方都要将他们的案件带到法官面前。被法官宣告罪行的一方必须对另一方双倍偿还。 [10](https://biblehub.com/exodus/22-10.htm) “如果有人为安全保管把驴、牛、羊或任何其他牲口给邻居，而它死了，或受伤、或在无人看到时被偷， [11](https://biblehub.com/exodus/22-11.htm) 他们之间的争议会由在耶和华面前起誓---该邻居没拿另外一人的财物---来解决。业主要接受这，并且不需要赔偿。
 
-# 22.4
+## 22.4
 
 > An oath is to be taken in the plain and common sense of the words, without equivocation, or mental reservation. It cannot oblige to sin; but in any thing not sinful, being taken, it binds to performance, although to a man's own hurt. Not is it to be violated, although made to heretics, or infidels.
 
@@ -50,7 +50,7 @@ Of Lawful Oaths and Vows
 
 [^22-12]: [结17:16](https://biblehub.com/ezekiel/17-16.htm) “‘如我永活一样无疑，主宰耶和华宣告，他要死在巴比伦，死在将他置于王位上的国王的土地上，他鄙视他的誓言，而且他破坏了他的条约。 [18](https://biblehub.com/ezekiel/17-18.htm) 他由破坏约而鄙视那誓言。因为他已将他的手交在许诺上，却做了所有这些事情，他必不能逃脱。 [19](https://biblehub.com/ezekiel/17-19.htm) “‘因此，这是主宰耶和华说的：如我永活一样无疑，我会为鄙视我的誓言且破坏我的圣约而报应他。 [书9:18](https://biblehub.com/joshua/9-18.htm) 但以色列人没有攻击他们，因为集会的领袖们已对耶和华以色列的上帝向他们发了一个誓言。整个集会都对领袖们抱怨， [撒下21:1](https://biblehub.com/2_samuel/21-1.htm) 在大卫为王期间，有一场相继三年的饥荒；所以大卫寻求耶和华的面。耶和华说：“这都算在扫罗和他血迹斑斑的家族上；这是因为他处死了基遍人。”
 
-# 22.5
+## 22.5
 
 > A vow is of the like nature with a promissory oath, and ought to be made with the like religious care, and to be performed with the like faithfulness.
 
@@ -58,7 +58,7 @@ Of Lawful Oaths and Vows
 
 [^22-13]: [赛19:21](https://biblehub.com/isaiah/19-21.htm) 所以耶和华会向埃及人揭晓祂自己，而在那日他们会承认耶和华。他们会用献祭和素祭敬拜；他们会向耶和华宣誓，并遵守它们。 [传5:4](https://biblehub.com/ecclesiastes/5-4.htm) 当你向上帝宣誓时，不要耽搁成全它。祂不喜悦愚蠢的人；要成全你的誓约。 [5](https://biblehub.com/ecclesiastes/5-5.htm) 不宣誓好过宣誓而不成全它。 [6](https://biblehub.com/ecclesiastes/5-6.htm) 不要让你的嘴引导你进入罪恶。不要向神殿信使抗议，“我的誓约是一个失误。”为什么上帝会对你说的愤怒，并摧毁你双手的作品呢？ [诗61:8](https://biblehub.com/psalms/61-8.htm) 那时，我将在赞美祢的名中不断歌唱，并日复一日成全我的誓约。 [66:13](https://biblehub.com/psalms/66-13.htm) 我会带着燔祭来到祢的神殿并向祢成全我的誓约--- [14](https://biblehub.com/psalms/66-14.htm) 当我窘困时我嘴唇上承诺的和我口中讲的誓约。
 
-# 22.6
+## 22.6
 
 > It is not to be made to any creature, but to God alone: and that it may be accepted, it is to be made voluntarily, out of faith, and conscience of duty, in way of thankfulness for mercy received, or for the obtaining of what we want, whereby we more strictly bind ourselves to necessary duties: or, to other things, so far and so long as they may fitly conduce thereunto.
 
@@ -68,7 +68,7 @@ Of Lawful Oaths and Vows
 
 [^22-15]: [申23:21](https://biblehub.com/deuteronomy/23-21.htm) 如果你向耶和华你的上帝宣誓，不要兑现迟缓，因为耶和华你的上帝肯定会向你索求它，而你就会有罪恶的罪行。 [22](https://biblehub.com/deuteronomy/23-22.htm) 但如果你戒除宣誓，你就不会有罪行。 [23](https://biblehub.com/deuteronomy/23-23.htm) 无论你的嘴唇讲出什么，你都必须保证去做，因为你用你自己的口自由地给耶和华你的上帝宣了你的誓约。 [诗50:14](https://biblehub.com/psalms/50-14.htm) “将感谢祭献祭给上帝，成全你给至高者的誓约， [创28:20](https://biblehub.com/genesis/28-20.htm) 于是雅各宣誓，说：“如果上帝会与我同在，并会在我启程的这旅途中看守我，而会赐我食物吃和衣服穿 [21](https://biblehub.com/genesis/28-21.htm) 以致我平安返回我父亲的家室，那么耶和华就会是我的上帝 [22](https://biblehub.com/genesis/28-22.htm) 而这我已立为支柱的石头会是上帝的住所，而在祢赐给我的所有中，我会献给祢十分之一。 [撒上1:11](https://biblehub.com/1_samuel/1-11.htm) 她宣誓：“万军之耶和华，但愿祢会看向祢仆人的痛苦并记念我，而不忘记祢的仆人，但却赐她一个儿子，那么我会在他生命的所有日子里将他献给耶和华，而没有剃刀再会被用在他的头上。” [诗66:13](https://biblehub.com/psalms/66-13.htm) 我会带着燔祭来到祢的神殿，并成全我给你的誓约--- [14](https://biblehub.com/psalms/66-14.htm) 当我窘困时我嘴唇上承诺的和我口中讲的誓约。 [诗132:2](https://biblehub.com/psalms/132-2.htm) 他给耶和华起誓，他给雅各的大能者宣誓： [3](https://biblehub.com/psalms/132-3.htm) “我不会进入我的住所，或上我的床， [4](https://biblehub.com/psalms/132-4.htm) 我不会让我的眼睛睡着，或让我的眼睑安睡， [5](https://biblehub.com/psalms/132-5.htm) 直到我为耶和华找到一个地方，一个为雅各大能者的居所。”
 
-# 22.7
+## 22.7
 
 > No man may vow to do any thing forbidden in the Word of God, or what would hinder any duty therein commanded, or which is not in his own power, and for the performance whereof he has no promise of ability from God. In which respects, popish monastical vows of perpetual single life, professed poverty, and regular obedience, are so far from being degrees of higher perfection, that they are superstitious and sinful snares, in which no Christian may entangle himself.
 
