@@ -61,5 +61,7 @@
 
 ## [第二十八章 论洗礼](https://zhao-bob.github.io/WCF/chapter28)
 
+## [第二十九章 论主餐](https://zhao-bob.github.io/WCF/chapter29)
+
 
 
