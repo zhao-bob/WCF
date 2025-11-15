@@ -63,5 +63,7 @@
 
 ## [第二十九章 论主餐](https://zhao-bob.github.io/WCF/chapter29)
 
+## [第三十章 论教会谴罚](https://zhao-bob.github.io/WCF/chapter30)
+
 
 
