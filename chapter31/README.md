@@ -27,3 +27,12 @@ Of Synods and Councils
 属于公会和议会的是：行政性地判定信心的争论，和良心的案件；为上帝的公共敬拜，和祂的教会治理更好的秩序定下规则和方向；在管理不善的案例下接受投诉，并权威性地判定该事；而其法令和判定，如果与上帝的圣言调谐，要以崇敬和服从被领受；不仅为它们与圣言的一致，而且为其中它们被作出的权柄，作为上帝由此在祂圣言中指定一项预令[^31-4]。
 
 [^31-4]: [徒15:15](https://biblehub.com/acts/15-15.htm) 众先知的言词与此一致，如经上所记： [19](https://biblehub.com/acts/15-19.htm) “因此，这是我的判断，我们不应使其对正转向上帝的外邦人变得困难。 [24](https://biblehub.com/acts/15-24.htm) 我们已听说一些人未经我们的授权从我们走出，而干扰你们，由他们说的使你们的心灵烦恼。 [27](https://biblehub.com/acts/15-27.htm) 因此，我们正差派犹大和西拉由口中的言词确认我们写的。 [28](https://biblehub.com/acts/15-28.htm) 这似乎对圣灵和对我们是好的，不使你们负担任何超出如下要求： [29](https://biblehub.com/acts/15-29.htm) 你们要禁绝献祭给偶像的食物、禁绝血、禁绝勒死动物的肉并禁绝淫乱。你们避免这些事情，就会做得好。告别。 [30](https://biblehub.com/acts/15-30.htm) 然后这些人就被派出并走下到安提阿去，在那里他们将教会聚集在一起，并将信交付。 [31](https://biblehub.com/acts/15-31.htm) 人们读了它，而为它鼓励的消息高兴。 [16:4](https://biblehub.com/acts/16-4.htm) 在他们从城镇到城镇间穿行时，他们把在耶路撒冷的使徒和长老送达的决定递送给百姓去遵守。 [太18:17](https://biblehub.com/matthew/18-17.htm) 如果他们仍然拒绝听从，要将其告诉教会；而如果他们甚至拒绝听从教会，你要对待他们如异教徒或税吏一样。 [18](https://biblehub.com/matthew/18-18.htm) “我实在告诉你们，无论你们在地上束缚什么，在天国也将被束缚，无论你们在地上松开什么，在天国也将被松开。 [19](https://biblehub.com/matthew/18-19.htm) “再次，我实在告诉你们，如果你们在地上有两个人同意他们问寻的任何事情，那么它将被我在天国的圣父为他们完成。 [20](https://biblehub.com/matthew/18-20.htm) 因为在两人或三人奉我的名聚集的地方，就有我与他们同在。”
+
+## 31.4
+
+> All synods or councils, since the apostles' times, whether general or particular, may err; and many have erred. Therefore they are not to be made the rule of faith, or practice; but to be used as a help in both.
+
+所有的公会或议会，自使徒时代以来，无论是普遍的还是特定的，都可能错谬；且许多已经错谬。因此，它们不应被作为信心或实践的规则；而应在这两者中作为一种帮助被使用[^31-5]。
+
+[^31-5]: [弗2:20](https://biblehub.com/ephesians/2-20.htm) 以基督耶稣祂自己为主奠基石，建造在众使徒和众先知的根基上。 [徒17:11](https://biblehub.com/acts/17-11.htm) 现在庇哩亚犹太人有比帖撒罗尼迦犹太人更高尚的品格，因为他们以很大的殷切领受了消息，并每天都考察圣经，以看保罗说的是否真实。 [林前2:5](https://biblehub.com/1_corinthians/2-5.htm) 以致你们的信心能不安息在人类智慧上，而是在上帝的大能上。 [林后1:24](https://biblehub.com/2_corinthians/1-24.htm) 并不是我们在你们的信心之上作它的主，而是为你们的喜乐我们与你们同工，因为是由信心你们坚固站立。
+
