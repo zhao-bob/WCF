@@ -36,3 +36,11 @@ Of Synods and Councils
 
 [^31-5]: [弗2:20](https://biblehub.com/ephesians/2-20.htm) 以基督耶稣祂自己为主奠基石，建造在众使徒和众先知的根基上。 [徒17:11](https://biblehub.com/acts/17-11.htm) 现在庇哩亚犹太人有比帖撒罗尼迦犹太人更高尚的品格，因为他们以很大的殷切领受了消息，并每天都考察圣经，以看保罗说的是否真实。 [林前2:5](https://biblehub.com/1_corinthians/2-5.htm) 以致你们的信心能不安息在人类智慧上，而是在上帝的大能上。 [林后1:24](https://biblehub.com/2_corinthians/1-24.htm) 并不是我们在你们的信心之上作它的主，而是为你们的喜乐我们与你们同工，因为是由信心你们坚固站立。
 
+## 31.5
+
+> Synods and councils are to handle, or conclude nothing, but that which is ecclesiastical: and are not to intermeddle with civil affairs which concern the commonwealth, unless by way of humble petition in cases extraordinary; or, by way of advice, for satisfaction of conscience, if they be thereunto required by the civil magistrate.
+
+公会和议会除那神职性的事情外，不要处理或推断任何事情：而且除非在非凡的案例下，通过谦卑请愿的方式；或者，如果他们被民事长官为此被要求为良心的偿赎，而通过劝告的方式，否则不得干预牵扯其治区的民事事务[^31-6]。
+
+[^31-6]: [路12:13](https://biblehub.com/luke/12-13.htm) 人群中某人对祂说：“老师，吩咐我兄弟同我分割遗产。”  [14](https://biblehub.com/luke/12-14.htm) 耶稣回复：“男士，谁指定我在你们之间作审判者或仲裁人呢？” [约18:36](https://biblehub.com/john/18-36.htm) 耶稣说：“我的国度不属这世界。假使它是，我的仆人就会为防止我被犹太领袖逮捕而战斗。但现在我的国度源自另一个地方。”
+
