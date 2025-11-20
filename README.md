@@ -65,5 +65,7 @@
 
 ## [第三十章 论教会谴罚](https://zhao-bob.github.io/WCF/chapter30)
 
+## [第三十一章 论公会和议会](https://zhao-bob.github.io/WCF/chapter31)
+
 
 
