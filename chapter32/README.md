@@ -25,3 +25,11 @@ Of the State of Men after Death, and of the Resurrection of the Dead
 [^32-5]: [帖前4:17](https://biblehub.com/1_thessalonians/4-17.htm) 在那之后，我们仍然活着而剩下的，会同他们一起被提上云里，在空中与主会见。而所以，我们将永远与主同在。 [林前15:51](https://biblehub.com/1_corinthians/15-51.htm) 请听，我告诉你们一个奥秘：我们不会所有人都睡着，但我们所有人都会被改变--- [52](https://biblehub.com/1_corinthians/15-52.htm) 在一闪瞬，在一眨眼，在最后的号角中。因为号角将响起，死人就会被唤起为不会灭亡的，而我们会被改变。
 
 [^32-6]: [伯19:26](https://biblehub.com/job/19-26.htm) 而我的外皮已被摧毁后，但在我的肉体中我会见到上帝； [27](https://biblehub.com/job/19-27.htm) 我将亲自看见祂，用我自身的眼睛---我，而不是另一个。我的内心在我里面多么向往！ [林前15:42](https://biblehub.com/1_corinthians/15-42.htm) 对死人复活也会如此。被播种的身体是易灭的，而它被苏醒为不会灭亡的； [43](https://biblehub.com/1_corinthians/15-43.htm) 它被播种在羞辱中，而它被苏醒在荣耀中；它被播种在软弱中，而它被苏醒在权柄中； [44](https://biblehub.com/1_corinthians/15-44.htm) 它被播种为一个本性的身体，而它被苏醒为一个属灵的身体。如果有一个本性的身体，那也有一个属灵的身体。
+
+## 32.3
+
+> The bodies of the unjust shall, by the power of Christ, be raised to dishonor: the bodies of the just, by His Spirit, unto honor; and be made conformable to His own glorious body.
+
+不公者的身体，由基督的大能，要被苏醒至羞辱；公正者的身体，由祂的圣灵，被至于尊贵；并遵照祂自身荣耀的身体被造[^32-7]。
+
+[^32-6]: [徒24:15](https://biblehub.com/acts/24-15.htm) 而我在上帝中有如这些人他们自己有的相同的希望，即义人和恶人两者都会有一次复活。 [约5:28](https://biblehub.com/john/5-28.htm) “不要对此惊奇，因为时辰将到，那时所有在他们坟墓中的人都会听见祂的话音 [29](https://biblehub.com/john/5-29.htm) 并出来---那些已行那善的人将起来永活，而那些已行那恶的人将起来被定罪。 [腓3:21](https://biblehub.com/philippians/3-21.htm) 祂，由为祂赋能以将一起带到他控制之下的大能，会变换我们卑贱的身体，以致它们会像祂荣耀的身体一样。
