@@ -67,5 +67,7 @@
 
 ## [第三十一章 论公会和议会](https://zhao-bob.github.io/WCF/chapter31)
 
+## [第三十二章 论死后人的状态，和死人复活](https://zhao-bob.github.io/WCF/chapter32)
+
 
 
