@@ -69,5 +69,7 @@
 
 ## [第三十二章 论死后人的状态，和死人复活](https://zhao-bob.github.io/WCF/chapter32)
 
+## [第三十三章 论最后的审判](https://zhao-bob.github.io/WCF/chapter33)
+
 
 
