@@ -32,7 +32,11 @@ Of the Holy Scripture
 
 > Under the name of Holy Scripture, or the Word of God written, are now contained all the books of the Old and New Testament, which are these: All which are given by inspiration of God to be the rule of faith and life.
 
-在圣经或上帝书写的圣言名下，现在被包含有旧约和新约的所有书，它们是这些：所有这些都被上帝的灵感赐予，成为信心和生活的规则[^1-7]。
+在圣经或上帝书写的圣言名下，现在包含有旧约和新约的所有书，它们是这些：所有这些都由上帝的灵感赐予，是信心和生活的规则[^1-7]。
+
+<font color=blue size=2>译者注：</font> 
+<font color=blue size=2>1. "inspiration"在本文被翻译为“灵感”。“faith”被翻译为“信心”，它与“信仰”是同义词。“life”有两个意思：“生活”或“生命”。“生活”是我们生存的方式，而“生命”是人存在的性命。</font>
+<font color=blue size=2>2. "Word"大写时本文被翻译为“圣言”，特指上帝之言。小写时被翻译为“言词”，如果是复数则翻译为“词句”。</font>
 
 <table>
     <tr>
