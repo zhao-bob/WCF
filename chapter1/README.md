@@ -195,7 +195,7 @@ Of the Holy Scripture
 
 > The books commonly called Apocrypha, not being of divine inspiration, are no part of the canon of the Scripture, and therefore are of no authority in the Church of God, nor to be any otherwise approved, or made use of, than other human writings.
 
-通常被称为次经的书，并非神的灵感，不是经书正典的一部分，而因此在上帝的教会中没有权威，也不得以任何其他方式被赞成或使用，相比其他人类写作无异[^1-8]。
+通常被称为次经的书，不属于神的灵感，不是经书正典的一部分，而因此在上帝的教会中没有权威，也不得以任何其他方式被赞成或使用，相比其他人类写作无异[^1-8]。
 
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>1. “divine”被翻译为“神”。</font>
