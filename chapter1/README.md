@@ -195,12 +195,13 @@ Of the Holy Scripture
 
 > The books commonly called Apocrypha, not being of divine inspiration, are no part of the canon of the Scripture, and therefore are of no authority in the Church of God, nor to be any otherwise approved, or made use of, than other human writings.
 
-通常被称为次经的书，不属神的灵感，不是经书正典的一部分，而因此在上帝的教会中没有权威，也不得以任何其他方式被赞成或使用，相比其他人类写作无异[^1-8]。
+通常被称为次经的书，并非神的灵感，不是经书正典的一部分，而因此在上帝的教会中没有权威，也不得以任何其他方式被赞成或使用，相比其他人类写作无异[^1-8]。
 
 <font color=blue size=2>译者注：</font>
-<font color=blue size=2>所有人类的著作在阅读时都应以此为原则，谨慎对待。人类的著作应该是圣经的注解，真理的注解。若没有圣经的话语作支撑，就是魔鬼的话语，就必须否定、扬弃。</font>
+<font color=blue size=2>1. “divine”被翻译为“神”。</font>
+<font color=blue size=2>2. 所有人类的著作在阅读时都应以此为原则，谨慎对待。人类的著作应该是圣经的注解，真理的注解。若没有圣经的话语作支撑，就是魔鬼的话语，就必须否定、扬弃。</font>
 
-[^1-8]: [路24:27](https://biblehub.com/luke/24-27.htm) 并从摩西和所有先知开始，祂向他们解释在所有圣经中所说的涉及祂自己的话。 [44](https://biblehub.com/luke/24-44.htm) 耶稣对他们说：“这是我仍然与你们一同时告诉了你们的：摩西律法、先知书和诗篇中记的关于我的一切都必被成全。”  [罗3:2](https://biblehub.com/romans/3-2.htm) 在每个方面都很多！首先，犹太人已被授信以那上帝同一的言词。 [彼后1:21](https://biblehub.com/2_peter/1-21.htm) 因为预言从未在人意中有它的起源，而众先知虽是人类，却源自上帝讲话，如同他们被圣灵带引。
+[^1-8]: [路24:27](https://biblehub.com/luke/24-27.htm) 并从摩西和所有先知开始，祂向他们解释在所有经书中所说的涉及祂自己的话。 [44](https://biblehub.com/luke/24-44.htm) 耶稣对他们说：“这是我仍然与你们一同时告诉了你们的：摩西律法、先知书和诗篇中记的关于我的一切都必被成全。”  [罗3:2](https://biblehub.com/romans/3-2.htm) 在每个方面都很多！首先，犹太人已被授信以那上帝同一的词句。 [彼后1:21](https://biblehub.com/2_peter/1-21.htm) 因为预言从未在人意中有它的起源，而众先知虽是人类，却源自上帝讲话，如同他们被圣灵带引。
 
 ## 1. 4
 
