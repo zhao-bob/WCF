@@ -215,14 +215,14 @@ Of the Holy Scripture
 
 > We may be moved and induced by the testimony of the Church to an high and reverent esteem of the Holy Scripture. And the heavenliness of the matter, the efficacy of the doctrine, the majesty of the style, the consent of all the parts, the scope of the whole (which is, to give all glory to God), the full discovery it makes of the only way of man's salvation, the many other incomparable excellencies, and the entire perfection thereof, are arguments whereby it does abundantly evidence itself to be the Word of God: yet notwithstanding, our full persuasion and assurance of the infallible truth and divine authority thereof, is from the inward work of the Holy Spirit bearing witness by and with the Word in our hearts.
 
-我们能被教会的见证所感动并感召，以至对圣经有一种崇高和崇敬的敬重[^1-10]。而题材的天国性，教义的效力，风格的威严，所有部分的顺合，整体的宗旨（就是，将所有荣耀献给上帝），对人的惟一拯救之道的充分揭示，那许多其他无与伦比的卓越性，以及其中全整的完美，均是论据，以此它确实丰盛地确证它自己就是上帝的圣言：但尽管如此，我们对其中无谬真理和神性权威的充分信念和确信，是源自圣灵的内在功劳，靠着并用圣言在我们内心受目睹[^1-11]。
+我们能被教会的见证所感动并感召，以至对圣经有一种崇高和崇敬的敬重[^1-10]。而圣经题材的天国性，教义的效力，风格的威严，所有部分的顺合，整体的宗旨（就是，将所有荣耀献给上帝），对人的惟一拯救之道的充分揭示，那许多其他无与伦比的卓越性，以及其中全整的完美，均是论据，以此它确实丰盛地确证它自己就是上帝的圣言：但尽管如此，我们对其中无谬真理和神性权威的充分信念和确信，是源自圣灵的内在功劳，靠着并用圣言在我们内心受目睹[^1-11]。
 
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>我们对圣经的理解、真理的认识并不源自我们自己的能力，而是上帝恩赐的天赋和圣灵的运行。</font>
 
 [^1-10]: [提前3:15](https://biblehub.com/1_timothy/3-15.htm) 如果我被耽搁了，你会知道子民在上帝的家室里举止应该如何，这里是永活上帝的教会，是真理的支柱和根基。
 
-[^1-11]: [约壹2:20](https://biblehub.com/1_john/2-20.htm) 但你们有圣者的恩膏，并且你们所有人都认识真理。 [27](https://biblehub.com/1_john/2-27.htm) 至于你们，你们从祂那里领受的那恩膏留存在你们里面，而你们不需要任何人教导你们。但由于祂的恩膏教导你们关于万物，且由于那恩膏是真实的，而不是假冒的---正因为它已教导你们，就要留存在祂里面。 [约16:13](https://biblehub.com/john/16-13.htm) 但是当祂---真理之圣灵来时，祂将引领你们进入完整的真理。祂不会凭祂自身讲话；祂仅会讲祂听到的，祂也会告诉你们届时什么要来。 [约16:14](https://biblehub.com/john/16-14.htm) 祂会荣耀我，因为祂会领受将向你们揭晓的是源自我的。 [林前2:10](https://biblehub.com/1_corinthians/2-10.htm) 这些是上帝由祂的圣灵已向我们启示的事情。圣灵探究万物，甚至上帝深奥的事情。 [11](https://biblehub.com/1_corinthians/2-11.htm) 因为除了在他们里面他们自身的灵，谁知道一个人的心思呢？以同样的方法，除了上帝的圣灵，没一个知道上帝的心思。 [12](https://biblehub.com/1_corinthians/2-12.htm) 我们已领受的不是世界的灵，而是源自上帝的圣灵，以致我们能理解上帝已白白赐给我们什么。 [赛59:21](https://biblehub.com/isaiah/59-21.htm) “至于我，这是我同他们的圣约，”耶和华说。“我的圣灵在你们身上，不会背离你们，而我已放置在你们口中的我的言语将总是在你们的唇上，在你们子女的唇上，以及他们后代的唇上，从这时起，直到永远”耶和华说。
+[^1-11]: [约壹2:20](https://biblehub.com/1_john/2-20.htm) 但你们有圣者的恩膏，并且你们所有人都认识真理。 [27](https://biblehub.com/1_john/2-27.htm) 至于你们，你们从祂那里领受的那恩膏留存在你们里面，而你们不需要任何人教导你们。但由于祂的恩膏教导你们关于万物，且由于那恩膏是真实的，而不是假冒的---正因为它已教导你们，就要留存在祂里面。 [约16:13](https://biblehub.com/john/16-13.htm) 但是当祂---真理之圣灵来时，祂将引领你们进入完整的真理。祂不会凭祂自身讲话；祂仅会讲祂听到的，祂也会告诉你们届时什么要来。 [14](https://biblehub.com/john/16-14.htm) 祂会荣耀我，因为祂会领受源自我的，并将其向你们揭晓。 [林前2:10](https://biblehub.com/1_corinthians/2-10.htm) 这些是上帝由祂的圣灵已向我们启示的事情。圣灵探究万物，甚至上帝深奥的事情。 [11](https://biblehub.com/1_corinthians/2-11.htm) 因为除了在他们里面他们自身的灵，谁知道一个人的心思呢？以同样的方法，除了上帝的圣灵，没一个知道上帝的心思。 [12](https://biblehub.com/1_corinthians/2-12.htm) 我们已领受的不是世界的灵，而是源自上帝的圣灵，以致我们能理解上帝已白白赐给我们什么。 [赛59:21](https://biblehub.com/isaiah/59-21.htm) “至于我，这是我同他们的圣约，”耶和华说。“我的圣灵在你们身上，不会背离你们，而我已放置在你们口中的我的言词将总是在你们的唇上，在你们子女的唇上，以及他们后代的唇上，从这时起，直到永远”耶和华说。
 
 ## 1. 6
 
