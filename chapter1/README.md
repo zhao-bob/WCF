@@ -228,7 +228,7 @@ Of the Holy Scripture
 
 > The whole counsel of God concerning all things necessary for His own glory, man's salvation, faith and life, is either expressly set down in Scripture, or by good and necessary consequence may be deduced from Scripture: unto which nothing at any time is to be added, whether by new revelations of the Spirit, or traditions of men. Nevertheless, we acknowledge the inward illumination of the Spirit of God to be necessary for the saving understanding of such things as are revealed in the Word and that there are some circumstances concerning the worship of God, and government of the Church, common to human actions and societies, which are to be ordered by the light of nature, and Christian prudence, according to the general rules of the Word, which are always to be observed.
 
-上帝涉及对祂自身的荣耀、人的拯救、信心和生命必要的所有事情的整个密旨，要么在经书中被明确记载，要么能从经书中由切实而必要的结论被推导出：在任何时候都不要对其添加任何东西，无论是由圣灵新的启示，还是人的传统[^1-12]。尽管如此，我们承认上帝的灵的内在光照对于在圣言中被启示的这些事情的拯救性领悟是必要的[^1-13]，而且有些涉及上帝的敬拜和教会的治理的状况与人类行为和社会是共通的，要由本性之光和基督徒的审慎，按照总要被遵从的圣言的通用规则来被排定[^1-14]。
+上帝涉及对祂自身的荣耀、人的拯救、信心和生命必要的所有事情的整个密旨，要么在经书中被明确记载，要么能从经书中由切实而必要的结论被推导出：在任何时候都不要对其添加任何东西，无论是由圣灵新的启示，还是人的传统[^1-12]。尽管如此，我们承认上帝的灵的内在光照对于在圣言中被启示的这些事情的拯救性领悟是必要的[^1-13]，而且有些涉及上帝的敬拜和教会的治理的状况与人类行为和社会是共通的，要由本性之光和基督徒的审慎，按照始终要被遵从的圣言的通用规则来被排定[^1-14]。
 
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>1. "counsel"在本文被译为“密旨”，这是上帝至绝对、至奥妙的旨意，而区分于一般的旨意。</font>
