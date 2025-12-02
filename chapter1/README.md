@@ -245,14 +245,14 @@ Of the Holy Scripture
 
 > All things in Scripture are not alike plain in themselves, nor alike clear unto all: yet those things which are necessary to be known, believed, and observed for salvation are so clearly propounded, and opened in some place of Scripture or other, that not only the learned, but the unlearned, in a due use of the ordinary means, may attain unto a sufficient understanding of them.
 
-经书中所有事情本身都不是相仿直白的，也不是对所有人都相仿清晰的[^1-15]：但那些为拯救必要被知道、相信和遵从的事情，总在经书的某处或别处被清晰地提出和敞开，使得不仅博学的人，而且没学问的人，以平凡手段的一种适当使用，能达成对它们的一种充足领悟[^1-16]。
+经书中所有事情就其本身都不是相仿直白的，也不是对所有人都相仿清晰的[^1-15]：但那些为拯救必要被知道、相信和遵从的事情，总在经书的某处或别处被清晰地提出和敞开，使得不仅博学的人，而且没学问的人，以平凡手段的一种适当使用，能达成对它们的一种充足领悟[^1-16]。
 
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>并非所有人都能理解圣经，因为对圣经的理解并非人力能为，而是圣灵的运作，而能领悟圣经的人是预定的，是上帝在创造天地之前就拣选的。尽管如此，圣经所启示的内容却是普遍的，不是神秘莫测的，而是有耳就能听见、有眼就能看见的。</font>
 
-[^1-15]: [彼后3:16](https://biblehub.com/2_peter/3-16.htm) 他在他所有的信件中以同样的方法写作，在它们中谈到这些问题。他的信件包含一些难以理解的事情，而无知和不稳定的人歪曲它们，如他们歪曲另外的经书一样，而至于他们自身的毁灭。
+[^1-15]: [彼后3:16](https://biblehub.com/2_peter/3-16.htm) 他在他所有的信件中以同样的方法写作，在它们中谈到这些问题。他的信件包含一些难以理解的事情，而无知和不稳定的人歪曲它们，如他们歪曲其余的经书一样，而至于他们自身的毁灭。
 
-[^1-16]: [诗119:105](https://biblehub.com/psalms/119-105.htm) 祢的言是为我步行的一盏灯，是我路径上的一束光。 [130](https://biblehub.com/psalms/119-130.htm) 祢的言词展开赐予光明；它将领悟赐予愚蒙人。
+[^1-16]: [诗119:105](https://biblehub.com/psalms/119-105.htm) 祢的言是为我步行的一盏灯，是我路径上的一束光。 [130](https://biblehub.com/psalms/119-130.htm) 祢的词句展开赐予光明；它将领悟赐予愚蒙人。
 
 ## 1. 8
 
