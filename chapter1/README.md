@@ -258,14 +258,14 @@ Of the Holy Scripture
 
 > The Old Testament in Hebrew (which was the native language of the people of God of old), and the New Testament in Greek (which, at the time of the writing of it, was most generally known to the nations), being immediately inspired by God, and, by His singular care and providence, kept pure in all ages, are therefore authentical; so as, in all controversies of religion, the Church is finally to appeal unto them. But, because these original tongues are not known to all the people of God, who have right unto, and interest in the Scriptures, and are commanded, in the fear of God, to read and search them, therefore they are to be translated in to the vulgar language of every nation unto which they come, that, the Word of God dwelling plentifully in all, they may worship Him in an acceptable manner; and, through patience and comfort of the Scriptures, they may have hope.
 
-希伯来语旧约（这是古代上帝子民的母语）和希腊语新约（在它写作的时间，是列邦普遍知晓的语言），是直接被上帝启发，并且，由祂独特的护理和神意，在所有时代都被保持着纯洁，因此是真实可靠的[^1-17]；因此，在所有宗教争论中，教会最终要向它们诉裁[^1-18]。但是，因为这些原始方言并不是所有上帝子民都知晓的，而他们对经书有权利和兴趣，并在上帝的敬畏中，被命令去诵读和查考它们[^1-19]，因此，它们要被翻译为它们来到的每个国族的俚俗语言[^1-20]，以致上帝的圣言充裕地栖居在所有人中，他们就能以悦纳的方式敬拜祂[^1-21]；而且，藉着经书的耐心和安慰，他们能有希望[^1-22]。
+希伯来语旧约（这是古代上帝子民的母语）和希腊语新约（在它写作的时间，是列邦最普遍知晓的语言），是直接被上帝启发，并且，由祂独特的护理和神意，在所有时代都被保持着纯洁，因此是真实可靠的[^1-17]；因此，在所有宗教争论中，教会最终要向它们诉裁[^1-18]。但是，因为这些原始方言并非对所有上帝子民都知晓，而他们对经书有权利和兴趣，并被命令在上帝的敬畏中，去诵读和查考它们[^1-19]，因此，它们要被翻译为它们来到的每个国族的俚俗语言[^1-20]，以致上帝的圣言充裕地栖居在所有人中，他们就能以悦纳的方式敬拜祂[^1-21]；而且，藉着经书的耐心和安慰，他们能有希望[^1-22]。
 
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>圣经的任何译本并非直接受上帝的启发，并非完美无缺，而是都会有人的谬误。因此不要神化任何译本，这是本文在翻译时不使用和合本的原因。一个合格的译本应持续不断地修订，以接近那无限的真理，这样的译本才是活的。而一个译本有错误而不改正，是一种罪恶。</font>
 
 [^1-17]: [太5:18](https://biblehub.com/matthew/5-18.htm) 我实在告诉你们，直到天与地消失，连最小的字母，和一笔最少的笔画，都不会以任何手段从律法中消失，直至一切被成就。
 
-[^1-18]: [赛8:20](https://biblehub.com/isaiah/8-20.htm) 请教上帝的指令和警告的见证，如果任何人不按照这言的讲话，他们就没有黎明之光。 [徒15:15](https://biblehub.com/acts/15-15.htm) 众先知的言词与此一致，如经上所记： [约5:39](https://biblehub.com/john/5-39.htm) 你们勤勉地研究经书，因为你们以为在它们里面你们有永生。这些正是为我作证的经书， [46](https://biblehub.com/john/5-46.htm) 如果你们相信了摩西，你们就会相信我，因为他写了我的事。
+[^1-18]: [赛8:20](https://biblehub.com/isaiah/8-20.htm) 请教上帝的指令和警告的见证，如果任何人不按照这言词讲话，他们就没有黎明之光。 [徒15:15](https://biblehub.com/acts/15-15.htm) 众先知的言词与此一致，如经上所记： [约5:39](https://biblehub.com/john/5-39.htm) 你们勤勉地研究经书，因为你们以为在它们里面你们有永生。这些正是为我作证的经书， [46](https://biblehub.com/john/5-46.htm) 如果你们相信了摩西，你们就会相信我，因为他写了我的事。
 
 [^1-19]: [约5:39](https://biblehub.com/john/5-39.htm) 你们勤勉地研究经书，因为你们以为在它们里面你们有永生。这些正是为我作证的经书，
 
