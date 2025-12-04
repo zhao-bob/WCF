@@ -279,12 +279,12 @@ Of the Holy Scripture
 
 > The infallible rule of interpretation of Scripture is the Scripture itself: and therefore, when there is a question about the true and full sense of any Scripture (which is not manifold, but one), it must be searched and known by other places that speak more clearly.
 
-释义经书的无谬规则是经书本身：而因此，当对任何经文的真正和完全含义（这不是繁多的，而是独一）有疑问时，它必须由讲得更清晰的其他地方来被查考和认识[^1-23]。
+释义经书的无谬规则是经书本身：而因此，当对任何经文的真正和完全含义（这不是繁多的，而是一体的）有疑问时，它必须由讲得更清晰的其他地方来被查考和认识[^1-23]。
 
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>圣经的查考应是以经解经，不是根据圣经的语句加入个人“发挥”的作文，而是对圣经的内容的“数据挖掘”。将多处内容进行比照，往往能确切理解经文的含义。</font>
 
-[^1-23]: [彼后1:20](https://biblehub.com/2_peter/1-20.htm) 最要紧的是，你们必须理解，经书的预言不是由先知自身对事物的释义而产生的。 [21](https://biblehub.com/2_peter/1-21.htm) 因为预言从未在人意中有它的起源，而众先知虽是人类，却源自上帝讲话，如同他们被圣灵带引。 [徒15:15](https://biblehub.com/acts/15-15.htm) 众先知的言词与此一致，如经上所记： [16](https://biblehub.com/acts/15-16.htm) “‘在这之后，我会返回并重建大卫倒塌的帐幕。我会重建它的废墟，而且我会恢复它，
+[^1-23]: [彼后1:20](https://biblehub.com/2_peter/1-20.htm) 最要紧的是，你们必须理解，没有经书的预言来自一个人自身的释义。 [21](https://biblehub.com/2_peter/1-21.htm) 因为预言从未在人意中有它的起源，而众先知虽是人类，却源自上帝讲话，如同他们被圣灵带引。 [徒15:15](https://biblehub.com/acts/15-15.htm) 众先知的言词与此一致，如经上所记： [16](https://biblehub.com/acts/15-16.htm) “‘在这之后，我会返回并重建大卫倒塌的帐幕。我会重建它的废墟，而且我会恢复它，
 
 ## 1. 10
 
