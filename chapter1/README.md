@@ -290,7 +290,7 @@ Of the Holy Scripture
 
 > The supreme judge by which all controversies of religion are to be determined, and all decrees of councils, opinions of ancient writers, doctrines of men, and private spirits, are to be examined, and in whose sentence we are to rest, can be no other but the Holy Spirit speaking in the Scripture.
 
-判定所有宗教争论、审查议会所有法令、古代作家的观点、人的教义和私人精神的至上审判者，除了在经书中讲话的圣灵，不可能有其他人，而我们要在祂的判决中安息[^1-24]。
+判定所有宗教争论、审查议会所有法令、古代作家的观点、人的教义和私人精神的至上审判者，除了在经书中讲话的圣灵，不可能有其他，而我们要在祂的判决中安息[^1-24]。
 
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>不“论断”人，是不藉着自己的意志来判断，这只会造成人之间的分离；但这不是说人不被“论断”，或人没有资格“论断”，而是应藉着圣灵、以圣经的话语来“论断”。对于后者，我们不仅不该反对，反而要顺服至安息。</font>
