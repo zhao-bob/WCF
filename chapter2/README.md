@@ -6,7 +6,7 @@ Of God, and of the Holy Trinity
 
 > There is but one only, living, and true God, who is infinite in being and perfection, a most pure spirit, invisible, without body, parts, or passions; immutable, immense, eternal, incomprehensible, almighty, most wise, most holy, most free, most absolute, working all things according to the counsel of His own immutable and most righteous will, for His own glory; most loving, gracious, merciful, long-suffering, abundant in goodness and truth, forgiving iniquity, transgression, and sin; the rewarder of them that diligently seek Him; and withal, most just, and terrible in His judgments, hating all sin, and who will by no means clear the guilty.
 
-有且惟有一位[^2-1]，永活，且永真的上帝[^2-2]，祂在存有和完美上是无限的[^2-3]，一位至纯的灵[^2-4]，不可见的[^2-5]，无身体，器官[^2-6]，或情感[^2-7]；不变的[^2-8]，无垠的[^2-9]，永恒的[^2-10]，无法掌握的[^2-11]，全能的[^2-12]，至智的[^2-13]，至圣的[^2-14]，至自由的[^2-15]，至绝对的[^2-16]，按照祂自身不变且至义的意志的密旨运行万物[^2-17]，为祂自身的荣耀[^2-18]；至爱[^2-19]，仁慈、宽容、坚忍、盛于善良和真理，饶恕罪邪、违犯和罪恶[^2-20]；是那些勤勉寻求祂的人的赏赐者[^2-21]；而此外，在祂的审判中至公，而至可惧[^2-22]，憎恨所有罪恶[^2-23]，和那些决不会清洁罪行的人[^2-24]。
+有且惟有一位[^2-1]，永活，且永真的上帝[^2-2]，祂在存有和完美上是无限的[^2-3]，一位至纯的灵[^2-4]，不可见的[^2-5]，无身体，器官[^2-6]，或情感[^2-7]；不变的[^2-8]，无垠的[^2-9]，永恒的[^2-10]，无法掌握的[^2-11]，全能的[^2-12]，至智的[^2-13]，至圣的[^2-14]，至自由的[^2-15]，至绝对的[^2-16]，按照祂自身不变且至义的意志的密旨运行万物[^2-17]，为祂自身的荣耀[^2-18]；至爱[^2-19]，仁慈、宽容、坚忍、盛于善良和真理，饶恕罪邪、违犯和罪恶[^2-20]；是那些勤勉寻求祂的人的赏赐者[^2-21]；而且，在祂的审判中至公，而至可惧[^2-22]，憎恨所有罪恶[^2-23]，和那些决不会清洁罪行的人[^2-24]。
 
 [^2-1]: [申6:4](https://biblehub.com/deuteronomy/6-4.htm) 以色列啊，请聆听：耶和华我们的上帝，耶和华是独一的。 [林前8:4](https://biblehub.com/1_corinthians/8-4.htm) 那么所以，关于吃献祭给偶像的食物：我们知道“偶像在世界上根本是无物”，以及“除独一位外，没有上帝”。 [6](https://biblehub.com/1_corinthians/8-6.htm) 但对我们，有且惟有一位上帝，圣父，万物都从祂而来，而我们为祂而活；并且有且仅有一位主，耶稣基督，万物都藉着祂而来，而我们藉着祂而活。
 
@@ -24,17 +24,17 @@ Of God, and of the Holy Trinity
 
 [^2-8]: [雅1:17](https://biblehub.com/james/1-17.htm) 每一份善而完美的恩赐都源自上天，从天国众光之父降临，而祂不会像飘移的阴影一样改变。 [玛3:6](https://biblehub.com/malachi/3-6.htm) “我耶和华不改变。所以你们，雅各的后代，不被摧毁。
 
-[^2-9]: [王上8:27](https://biblehub.com/1_kings/8-27.htm) “但上帝真实会栖居在地上吗？诸天，即使是至高的天国，也不能容纳祢。我建成的这神殿，是多么渺小！ [耶23:23](https://biblehub.com/jeremiah/23-23.htm) “难道我仅是一个附近的上帝，”耶和华宣告：“而不是一个遥远的上帝吗？ [24](https://biblehub.com/jeremiah/23-24.htm) 谁能躲藏在隐秘的地方，以致我不能看见他们呢？”耶和华宣告。“我难道不是充满天与地吗？”耶和华宣告。
+[^2-9]: [王上8:27](https://biblehub.com/1_kings/8-27.htm) “但上帝真的会栖居在地上吗？诸天，即使是至高的天国，也不能容纳祢。我建成的这神殿，是多么渺小！ [耶23:23](https://biblehub.com/jeremiah/23-23.htm) “难道我仅是一个附近的上帝，”耶和华宣告：“而不是一个遥远的上帝吗？ [24](https://biblehub.com/jeremiah/23-24.htm) 谁能躲藏在隐秘的地方，以致我不能看见他们呢？”耶和华宣告。“我难道不是充满天与地吗？”耶和华宣告。
 
 [^2-10]: [诗90:2](https://biblehub.com/psalms/90-2.htm) 在山脉出生或在祢生出整个世界之前，祢是上帝，从永久到永久。 [提前1:17](https://biblehub.com/1_timothy/1-17.htm) 现在将尊贵与荣耀归给永恒、不朽、不可见的国王、惟一的上帝，直到永永远远。阿门。
 
 [^2-11]: [诗145:3](https://biblehub.com/psalms/145-3.htm) 耶和华是伟大的，而最值得赞美；祂的伟大无人能洞悉。
 
-[^2-12]: [创17:1](https://biblehub.com/genesis/17-1.htm) 亚伯兰九十九岁时，耶和华向他显现并说：“我是全能的上帝；要信实地走在我面前，并无可指摘。 [启4:8](https://biblehub.com/revelation/4-8.htm) 这四个活物每个都有六个翅膀，遍体甚至在它的翅膀下都被眼睛覆盖。它们昼夜永不停止说：“‘圣哉，圣哉，圣哉是主--全能的上帝’，祂昔在、而今在、并且将在要来。”
+[^2-12]: [创17:1](https://biblehub.com/genesis/17-1.htm) 亚伯兰九十九岁时，耶和华向他显现并说：“我是全能的上帝；要信实地走在我面前，并无可指摘。 [启4:8](https://biblehub.com/revelation/4-8.htm) 这四个生灵每个都有六个翅膀，遍体甚至在它的翅膀下都被眼睛覆盖。它们昼夜永不停止说：“‘圣哉，圣哉，圣哉是主--全能的上帝’，祂昔在、而今在、并且将在要来。”
 
 [^2-13]: [罗16:27](https://biblehub.com/romans/16-27.htm) 愿荣耀藉着耶稣基督，永远归于惟一智慧的上帝！阿门。
 
-[^2-14]: [赛6:3](https://biblehub.com/isaiah/6-3.htm) 而他们彼此呼唤着：“圣哉，圣哉，圣哉是万军之耶和华；全地都充满祂的荣耀。 [启4:8](https://biblehub.com/revelation/4-8.htm) 这四个活物每个都有六个翅膀，遍体甚至在它的翅膀下都被眼睛覆盖。它们昼夜永不停止说：“‘圣哉，圣哉，圣哉是主--全能的上帝’，祂昔在、而今在、并且将在要来。”
+[^2-14]: [赛6:3](https://biblehub.com/isaiah/6-3.htm) 而他们彼此呼唤着：“圣哉，圣哉，圣哉是万军之耶和华；全地都充满祂的荣耀。 [启4:8](https://biblehub.com/revelation/4-8.htm) 这四个生灵每个都有六个翅膀，遍体甚至在它的翅膀下都被眼睛覆盖。它们昼夜永不停止说：“‘圣哉，圣哉，圣哉是主--全能的上帝’，祂昔在、而今在、并且将在要来。”
 
 [^2-15]: [诗115:3](https://biblehub.com/psalms/115-3.htm) 我们的上帝在天国中；祂做任何祂愿意的事情。
 
@@ -86,7 +86,7 @@ Of God, and of the Holy Trinity
 
 [^2-36]: [诗145:17](https://biblehub.com/psalms/145-17.htm) 从很久以前已知道的事情。 [罗7:12](https://biblehub.com/romans/7-12.htm) 所以那么，律法是神圣的，而诫命是神圣、正义和善的。
 
-[^2-37]: [启5:12](https://biblehub.com/revelation/5-12.htm) 以一种高亢的话音他们在说：“被残杀了的羔羊值得接收权柄、富足、智慧、力量、尊贵、荣耀、赞美！” [13](https://biblehub.com/revelation/5-13.htm) 然后我听见每个在天国、地上、地下和海里的受造物，以及在它们其中所有，在说：“愿赞美、尊贵、荣耀、权柄归给坐在宝座上的那一位，并归给羔羊，直到永永远远！” [14](https://biblehub.com/revelation/5-14.htm) 那四个活物说：“阿们”，众长老就跪倒敬拜。
+[^2-37]: [启5:12](https://biblehub.com/revelation/5-12.htm) 以一种高亢的话音他们在说：“被残杀了的羔羊值得接收权柄、富足、智慧、力量、尊贵、荣耀、赞美！” [13](https://biblehub.com/revelation/5-13.htm) 然后我听见每个在天国、地上、地下和海里的受造物，以及在它们其中所有，在说：“愿赞美、尊贵、荣耀、权柄归给坐在宝座上的那一位，并归给羔羊，直到永永远远！” [14](https://biblehub.com/revelation/5-14.htm) 那四个生灵说：“阿们”，众长老就跪倒敬拜。
 
 ## 2.3
 
