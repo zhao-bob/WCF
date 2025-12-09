@@ -5,7 +5,7 @@
 
 翻译：Job Zhao 
 
-PDF下载地址[威斯敏斯特信心告白](https://github.com/zhao-bob/WCF/blob/main/source/WCF.pdf)
+PDF下载地址[威斯敏斯特信心告白](https://github.com/zhao-bob/WCF/releases/download/v1.0/WCF.pdf)
 
 ## [第一章 论圣经](https://zhao-bob.github.io/WCF/chapter1)
 
