@@ -2,6 +2,8 @@
 
 Of Providence
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter4">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter6">下一章</a></center>
+
 ## 5.1
 
 > God the great Creator of all things does uphold, direct, dispose, and govern all creatures, actions, and things, from the greatest even to the least, by His most wise and holy providence, according to His infallible foreknowledge, and the free and immutable counsel of His own will, to the praise of the glory of His wisdom, power, justice, goodness, and mercy.
@@ -97,3 +99,5 @@ Of Providence
 既然上帝的神意确实，普遍地，延伸到所有受造物；所以，它照一种最特殊的方式看护祂的教会，并使其中万物趋向于善[^5-27]。
 
 [^5-27]: [提前4:10](https://biblehub.com/1_timothy/4-10.htm) 这是我们为什么苦劳并力争，因为我们已将我们的希望放在永活的上帝里，而祂是所有族民，并且尤其是那些相信的人的救主。 [摩9:8](https://biblehub.com/amos/9-8.htm) “无疑主宰耶和华的眼在这罪恶的国度上。我将从地表摧毁它。但我不会全部摧毁雅各的后代，”耶和华宣告。 [9](https://biblehub.com/amos/9-9.htm) “因为我会赐予命令，而我会震动万邦中的以色列子民，如同谷物在筛子中被摇晃，没有一颗实粒会到达地面。 [罗8:28](https://biblehub.com/romans/8-28.htm) 而我们知道，上帝使万物都为那些爱祂的人的善运行，而他们已按照祂的旨意被召唤。 [赛43:3](https://biblehub.com/isaiah/43-3.htm) 因为我是耶和华你的上帝，以色列的圣者，你的救主；我赐埃及作你的赎金，古实和西巴作你的替代。 [4](https://biblehub.com/isaiah/43-4.htm) 既然你在我视域中是珍稀且尊贵的，又因为我爱你，我会献出族民来交换你，献出列邦来交换你的生命。 [5](https://biblehub.com/isaiah/43-5.htm) 不要害怕，因为我与你同在；我会从东方带来你的子女并从西方聚集你。 [14](https://biblehub.com/isaiah/43-14.htm) 这是耶和华---你的救赎主，以色列的圣者说的：“为你们的缘故，我会派人去巴比伦，并在他们引以为豪的船上，将所有巴比伦人打倒作逃亡者。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter4">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter6">下一章</a></center>

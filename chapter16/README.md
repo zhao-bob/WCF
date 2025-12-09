@@ -2,6 +2,8 @@
 
 Of Good Works
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter15">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter17">下一章</a></center>
+
 ## 16.1
 
 > Good works are only such as God has commanded in His holy Word, and not such as, without the warrant thereof, are devised by men, out of blind zeal, or upon any pretence of good intention.
@@ -99,3 +101,5 @@ Of Good Works
 [^16-27]: [该2:14](https://biblehub.com/haggai/2-14.htm) 于是哈该说：“‘对这民和这邦在我视域中也是如此。’耶和华宣告。‘无论他们做什么，也无论他们奉上什么，哪里就被玷污。 [多1:15](https://biblehub.com/titus/1-15.htm) 对于纯洁的人，万物都是纯洁的，但对那些败坏且不信的人，没有什么是纯洁的。事实上，他们的心灵和良心都被败坏了。 [摩5:21](https://biblehub.com/amos/5-21.htm) “我厌恶，我鄙视你们的宗教节日；你们的集会对我来说是一种恶臭。 [22](https://biblehub.com/amos/5-22.htm) 即使你们带给我燔祭和素祭，我不会接受它们。虽然你们带来上等的团契祭，我也不会顾及它们。 [何1:4](https://biblehub.com/hosea/1-4.htm) 耶和华对何西阿说：“叫他耶斯列，因为我将很快为对耶斯列的屠杀而惩罚耶户家族，而我将终结以色列国度。 [罗9:16](https://biblehub.com/romans/9-16.htm) 因此，这不依赖于人类的欲望或努力，而在于上帝的宽恕。 [多3:15](https://biblehub.com/titus/3-15.htm) 与我一同的每个人都向你们发送问候。问候那些在信心中爱我们的人。愿恩典与你们所有人同在。
 
 [^16-28]: [诗14:4](https://biblehub.com/psalms/14-4.htm) 所有这些作恶者都一无所知吗？他们吞食我的子民，如同吃饼；他们从不求靠耶和华。 [36:3](https://biblehub.com/psalms/36-3.htm) 他们口中的言词是邪恶诡诈的；他们未能智慧地行动或行善。 [伯21:14](https://biblehub.com/job/21-14.htm) 但他们对上帝说：‘别管我们！我们对知道祢的道路没有渴望。 [15](https://biblehub.com/job/21-15.htm) 谁是那全能者，而我们该侍奉祂？由向祂祷告我们会获得什么呢？’ [太25:41](https://biblehub.com/matthew/25-41.htm) “然后祂会对那些在祂左边的人说：‘你们被咒诅的人，从我离去，到为魔鬼和它的使者们预备的永火中去。 [42](https://biblehub.com/matthew/25-42.htm) 因为我饿了而你们什么都不给我吃，我渴了而你们什么都不给我喝， [43](https://biblehub.com/matthew/25-43.htm) 我是一个寄居者而你们不邀请我入住，我需要衣服而你们不穿戴我，我病了和坐牢了而你们不照看我。’ [45](https://biblehub.com/matthew/25-45.htm) “祂会回复：‘我实在告诉你们，无论你们没为这些最小的一个做了什么，你们都没有为我做。’ [23:23](https://biblehub.com/matthew/23-23.htm) “律法教师和法利赛人，你们这些伪善者有祸了！你们献出你们香料的十分之一---薄荷、莳萝和枯茗。但你们已忽略律法更重要的事要---公义、宽恕和信实。你们本该在不忽略前者的同时实践后者。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter15">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter17">下一章</a></center>

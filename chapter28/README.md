@@ -2,6 +2,8 @@
 
 Of Baptism
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter27">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter29">下一章</a></center>
+
 ## 28.1
 
 > Baptism is a sacrament of the New Testament, ordained by Jesus Christ, not only for the solemn admission of the party baptized into the visible Church; but also to be unto him a sign and seal of the covenant of grace, of his ingrafting into Christ, of regeneration, of remission of sins, and of his giving up unto God, through Jesus Christ, to walk in the newness of life. Which sacrament is, by Christ's own appointment, to be continued in His Church until the end of the world.
@@ -79,3 +81,5 @@ Of Baptism
 洗礼的圣礼对任何个人只被施行一次[^28-18]。
 
 [^28-18]: [多3:5](https://biblehub.com/titus/3-5.htm) 祂拯救了我们，不是因为我们已完成的正义的事情，而是因为祂的宽恕。祂藉着再生的洗涤和由圣灵的更新拯救了我们，
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter27">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter29">下一章</a></center>

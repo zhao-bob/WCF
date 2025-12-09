@@ -2,6 +2,8 @@
 
 Of the Civil Magistrate
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter22">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter24">下一章</a></center>
+
 ## 23.1
 
 > God, the supreme Lord and King of all the world, has ordained civil magistrates, to be, under Him, over the people, for His own glory, and the public good: and, to this end, has armed them with the power of the sword, for the defence and encouragement of them that are good, and for the punishment of evil doers.
@@ -53,3 +55,5 @@ Of the Civil Magistrate
 [^23-13]: [彼前2:13](https://biblehub.com/1_peter/2-13.htm) 为主的缘故，要使你们自己服从每个人类权威：不管是皇帝---作为最高权威； [王上2:35](https://biblehub.com/1_kings/2-35.htm) 国王在约押的位置上将耶何耶大的儿子比拿雅置于军队之上，并用祭司撒督取代亚比亚他。 [徒25:9](https://biblehub.com/acts/25-9.htm) 非斯都，希冀给犹太人恩惠，对保罗说：“你愿意上到耶路撒冷，并在那在我面前为这些指控接受审讯吗？” [10](https://biblehub.com/acts/25-10.htm) 保罗回答：“我现在站在凯撒的法庭前，这是我该被审讯的地方。我未曾对犹太人做任何错事，而你自己非常明白。 [11](https://biblehub.com/acts/25-11.htm) 尽管如此，如果我做任何该死的罪行，我不拒绝死。但如果由这些犹太人带来针对我的指控是不真的，则无人有权将我交送给他们。我向凯撒恳求！” [彼后2:1](https://biblehub.com/2_peter/2-1.htm) 但在子民之间也有假先知，正如你们之间会有假教师。他们会暗中引入毁灭性的异端，甚至否认买了他们的主宰的主---给他们自己带来飞快的毁灭。 [10](https://biblehub.com/2_peter/2-10.htm) 这对那些跟随肉体败坏欲望和鄙视权威的人尤其真实。他们大胆而自傲，而不害怕诋毁属天存有； [11](https://biblehub.com/2_peter/2-11.htm) 但即使天使，尽管他们更强且更有权，但当在他们上带来来自主的审判时，也不会诋毁这些存有。 [犹1:8](https://biblehub.com/jude/1-8.htm) 以完全同样的方法，这些悖逆神的人们在他们的梦想的力量上污染他们自己的身体，拒斥权威，并诋毁属天存有。 [9](https://biblehub.com/jude/1-9.htm) 但即使天使长米迦勒，当他在与魔鬼争辩摩西的身体时，他自己不敢以毁谤定他罪，而是说：“主训斥你！” [10](https://biblehub.com/jude/1-10.htm) 但这些人毁谤无论任何他们不理解的，而正是这些他们的确由本能理解的东西---如非理性的动物所为---会摧毁他们。 [11](https://biblehub.com/jude/1-11.htm) 他们有祸了！他们已取该隐的道路；他们为获益已冲入巴兰的谬误中；他们已在可拉的叛逆中被摧毁。
 
 [^23-14]: [帖后2:4](https://biblehub.com/2_thessalonians/2-4.htm) 他会反叛并会提拔他自己，在一切被称为上帝或被敬拜的东西之上，以至于他将他自己立于上帝的神殿中，宣布他自己是上帝。 [启13:15](https://biblehub.com/revelation/13-15.htm) 第二只猛兽被给与权柄以给第一只猛兽的形象呼吸，以致这形象能讲话，并导致所有拒绝敬拜这形象的人被杀死。 [16](https://biblehub.com/revelation/13-16.htm) 它还强迫所有族民，无论伟大和渺小，富有和贫穷，自由和奴隶，都在他们的右手或在他们额头上都领受一个标记， [17](https://biblehub.com/revelation/13-17.htm) 以致他们不能买或卖，除非他们有了那标记---那猛兽的名字或它名字的数字。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter22">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter24">下一章</a></center>

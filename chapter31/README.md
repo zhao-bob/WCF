@@ -2,6 +2,8 @@
 
 Of Synods and Councils
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter30">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter32">下一章</a></center>
+
 ## 31.1
 
 > For the better government, and further edification of the Church, there ought to be such assemblies as are commonly called synods or councils.

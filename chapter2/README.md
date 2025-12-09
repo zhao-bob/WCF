@@ -2,6 +2,8 @@
 
 Of God, and of the Holy Trinity
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter1">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter3">下一章</a></center>
+
 ## 2.1
 
 > There is but one only, living, and true God, who is infinite in being and perfection, a most pure spirit, invisible, without body, parts, or passions; immutable, immense, eternal, incomprehensible, almighty, most wise, most holy, most free, most absolute, working all things according to the counsel of His own immutable and most righteous will, for His own glory; most loving, gracious, merciful, long-suffering, abundant in goodness and truth, forgiving iniquity, transgression, and sin; the rewarder of them that diligently seek Him; and withal, most just, and terrible in His judgments, hating all sin, and who will by no means clear the guilty.
@@ -102,3 +104,5 @@ Of God, and of the Holy Trinity
 [^2-39]: [约1:14](https://biblehub.com/john/1-14.htm) 圣言成了肉体并在我们中间造了祂的居所。我们已见过祂的荣耀，那独生子的荣耀，祂从圣父而来，充满恩典和真理。 [15](https://biblehub.com/john/1-15.htm) 约翰作涉及祂的见证。他疾呼，说：“这是在我说‘祂在我之后来，却已超越我，因为祂早在我之前。’时，我谈及的那一位”）
 
 [^2-40]: [约15:26](https://biblehub.com/john/15-26.htm) “我会从圣父将辩护者差派给你们---从圣父出去的真理的圣灵---当祂来的时候，祂会作关于我的见证。 [加4:6](https://biblehub.com/galatians/4-6.htm) 因为你们是祂的儿子，上帝差遣了祂的圣子的圣灵进入我们内心，那高呼“阿爸，圣父”的圣灵。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter1">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter3">下一章</a></center>

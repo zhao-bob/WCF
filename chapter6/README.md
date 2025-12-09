@@ -2,6 +2,8 @@
 
 Of the Fall of Man, of Sin, and the Punishment thereof
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter5">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter7">下一章</a></center>
+
 ## 6.1
 
 > Our first parents, being seduced by the subtilty and temptations of Satan, sinned, in eating the forbidden fruit. This their sin, God was pleased, according to His wise and holy counsel, to permit, having purposed to order it to His own glory.
@@ -75,3 +77,5 @@ Of the Fall of Man, of Sin, and the Punishment thereof
 [^6-18]: [罗8:20](https://biblehub.com/romans/8-20.htm) 因为此造物易受挫败，不是由它自身的抉择，而是由使它顺从的那一位的意志，在希望中 [哀3:39](https://biblehub.com/lamentations/3-39.htm) 生者为何该在为他们的罪被惩罚时抱怨呢？
 
 [^6-19]: [太25:41](https://biblehub.com/matthew/25-41.htm) “然后祂会对那些在祂左边的人说：‘你们被咒诅的人，从我离去，到为魔鬼和它的使者们预备的永火中去。 [帖后1:9](https://biblehub.com/2_thessalonians/1-9.htm) 他们将被以永远毁灭惩罚，而被排斥在主的临在和祂权能荣耀之外
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter5">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter7">下一章</a></center>

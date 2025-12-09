@@ -2,6 +2,8 @@
 
 Of Lawful Oaths and Vows
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter21">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter23">下一章</a></center>
+
 ## 22.1
 
 > A lawful oath is part of religious worship, wherein, upon just occasion, the person swearing solemnly calls God to witness what he asserts, or promises, and to judge him according to the truth or falsehood of what he swears.
@@ -77,3 +79,5 @@ Of Lawful Oaths and Vows
 [^22-16]: [徒23:12](https://biblehub.com/acts/23-12.htm) 第二天早上，一些犹太人形成了一个密谋，并以誓言束缚他们自己在杀死保罗之前不吃不喝。 [14](https://biblehub.com/acts/23-14.htm) 他们走到祭司长和长老们面前说：“我们已庄严起誓，在我们杀死保罗之前不吃任何东西。 [可6:26](https://biblehub.com/mark/6-26.htm) 国王极大地忧痛，但由于他的誓言和他的宴会客人，他不想拒绝她。 [民30:5](https://biblehub.com/numbers/30-5.htm) 但如果当她的父亲听说此时就禁止她，那么她使她自己负有义务的誓约或许诺一个都不会站立；耶和华会释放她，因为她的父亲已禁止她。 [8](https://biblehub.com/numbers/30-8.htm) 但如果当她的丈夫听说此时就禁止她，他就使她有义务的誓约或她使她自己有义务的轻率承诺作废，而耶和华就会释放她。 [12](https://biblehub.com/numbers/30-12.htm) 但如果当她的丈夫听说了这些时使它们作废，那么从她嘴唇发出的誓约或许诺都不会站立。她的丈夫已将它们作废，而耶和华会释放她。 [13](https://biblehub.com/numbers/30-13.htm) 她的丈夫可以确认或作废她做的任何誓约或任何否认她自己而发誓的许诺。
 
 [^22-17]: [太19:11](https://biblehub.com/matthew/19-11.htm) 耶稣回复：“不是每个人都能接受这言词，而惟有那些它已被赐给的人。 [12](https://biblehub.com/matthew/19-12.htm) 因为有的阉人出生是那样，有的阉人已被别人变为阉人---还有那些为天国国度的缘故选择像阉人一样生活的人。能接受这的人就该接受它。” [林前7:2](https://biblehub.com/1_corinthians/7-2.htm) 但既然淫乱正在出现，各个男人应当与他自身的妻子有性关系，而各个女人应当与她自身的丈夫有性关系。 [9](https://biblehub.com/1_corinthians/7-9.htm) 但如果他们不能控制他们自己，他们就应该结婚，因为结婚总比受情感燃烧好。 [弗4:28](https://biblehub.com/ephesians/4-28.htm) 任何一直在偷窃的人决不能再偷窃，而必须工作，以他们自身的双手做一些有用的事情，以使他们能有一些东西同那些贫乏的人分享。 [彼前4:2](https://biblehub.com/1_peter/4-2.htm) 结果是，他们不为人类邪恶的欲望过他们地上的余生，而是为上帝的意志。 [林前7:23](https://biblehub.com/1_corinthians/7-23.htm) 你们是以高价被买来了的；不要成为人类的奴隶。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter21">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter23">下一章</a></center>

@@ -2,6 +2,8 @@
 
 Of Effectual Calling
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter9">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter11">下一章</a></center>
+
 ## 10.1
 
 > All those whom God hath predestinated unto life, and those only, He is pleased, in His appointed time, effectually to call, by His Word and Spirit, out of that state of sin and death, in which they are by nature to grace and salvation, by Jesus Christ; enlightening their minds spiritually and savingly to understand the things of God, taking away their heart of stone, and giving unto them an heart of flesh; renewing their wills, and, by His almighty power, determining them to that which is good, and effectually drawing them to Jesus Christ: yet so, as they come most freely, being made willing by His grace.
@@ -63,3 +65,5 @@ Of Effectual Calling
 [^10-18]: [徒5:12](https://biblehub.com/acts/4-12.htm) 在其他任何人中找不到拯救，因为天国之下没有别的名被赐给人类，而我们必须被它拯救。 [约14:6](https://biblehub.com/john/14-6.htm) 耶稣回答：“我是道路、真理和生命。除非藉着我，就无人到圣父这里来。 [弗2:12](https://biblehub.com/ephesians/2-12.htm) 请记住，在那时你们从基督分离，被排除在以色列中的公民身份，而是对应许之约的异邦人，在这世界没有希望也不与上帝同在。 [约4:22](https://biblehub.com/john/4-22.htm) 你们撒马利亚人敬拜你们不知道的；我们敬拜我们确实知道的，因为拯救源自犹太人。 [17:3](https://biblehub.com/john/17-3.htm) 现在这是永生：他们认识祢，惟一永真的上帝，和祢已差派的耶稣基督。
 
 [^10-19]: [约贰1:9](https://biblehub.com/2_john/1-9.htm) 任何跑过头，而不持续在基督教导中的人，就没有上帝；无论谁持续在这教导中，谁就既有圣父又有圣子。 [10](https://biblehub.com/2_john/1-10.htm) 如果任何人到你们这里来，却不带这教导，就不要把他们接进你们家室，或欢迎他们。 [11](https://biblehub.com/2_john/1-11.htm) 任何欢迎他们的人都有份于他们邪恶的功劳。 [林前16:22](https://biblehub.com/1_corinthians/16-22.htm) 如果任何人不爱主，就让那个体受咒诅！主，来吧！ [加1:6](https://biblehub.com/galatians/1-6.htm) 令我震惊的是，你们竟如此快速地离弃召唤了你们活在基督恩典里的那位，而正转向一个不同的福音--- [7](https://biblehub.com/galatians/1-7.htm) 而这的确根本不是福音。证据确凿地，有些人将你们扔入混乱，并在试图曲解基督的福音。 [8](https://biblehub.com/galatians/1-8.htm) 但即使我们或一个从天国来的天使要传一种福音，却不是我们传给了你们的那个，要让他们在上帝的咒诅之下！
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter9">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter11">下一章</a></center>

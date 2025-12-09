@@ -2,6 +2,8 @@
 
 Of the Church
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter24">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter26">下一章</a></center>
+
 ## 25.1
 
 > The catholic or universal Church, which is invisible, consists of the whole number of the elect, that have been, are, or shall be gathered into one, under Christ the Head thereof; and is the spouse, the body, the fulness of Him that fills all in all.
@@ -65,3 +67,5 @@ Of the Church
 [^25-13]: [西1:18](https://biblehub.com/colossians/1-18.htm) 而祂是这身体---教会的元首；祂是起初，也是来自死人中间的长子，以致在一切中祂能有至上权。 [弗1:22](https://biblehub.com/ephesians/1-22.htm) 而上帝将万物都放置在祂的脚下，并为教会指定祂为所有之上的元首，
 
 [^25-14]: [太23:8](https://biblehub.com/matthew/23-8.htm) “但你们不该被称为‘拉比’，因为你们只有一位教师，而你们都是兄弟。 [9](https://biblehub.com/matthew/23-9.htm) 而且不要称地上任何人为'父'，因为你们有一位圣父，而祂在天国中。 [10](https://biblehub.com/matthew/23-10.htm) 你们也不该被称为导师，因为你们有一位导师，弥赛亚。 [帖后2:3](https://biblehub.com/2_thessalonians/2-3.htm) 不要让任何人用任何方法欺骗你们，因为那日子不会来到，直到叛逆出现和那不法之人---毁灭之子---被揭露。 [4](https://biblehub.com/2_thessalonians/2-4.htm) 他会反叛并会提拔他自己，在一切被称为上帝或被敬拜的东西之上，以至于他将他自己立于上帝的神殿中，宣布他自己是上帝。 [8](https://biblehub.com/2_thessalonians/2-8.htm) 而于是不法的那位会被揭露，主耶稣会用祂口中的气息将他推翻，用祂到来的光辉将他摧毁。 [9](https://biblehub.com/2_thessalonians/2-9.htm) 不法的那位的到来将依照撒旦的工作的方式。他会借着服务谎言的神迹奇事使用权柄的各样显示， [启13:6](https://biblehub.com/revelation/13-6.htm) 它张开它的口渎犯上帝，并毁谤祂的名和祂的居所处以及那些住在天国中的人。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter24">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter26">下一章</a></center>

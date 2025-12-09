@@ -2,6 +2,8 @@
 
 Of the Communion of Saints
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter25">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter27">下一章</a></center>
+
 ## 26.1
 
 > All saints, that are united to Jesus Christ their Head, by His Spirit, and by faith, have fellowship with Him in His grace, sufferings, death, resurrection, and glory: and, being united to one another in love, they have communion in each other's gifts and graces, and are obliged to the performance of such duties, public and private, as do conduce to their mutual good, both in the inward and outward man.
@@ -33,3 +35,5 @@ Of the Communion of Saints
 [^26-6]: [西1:18](https://biblehub.com/colossians/1-18.htm) 而祂是这身体---教会的元首；祂是起初，也是来自死人中间的长子，以致在一切中祂能有至上权。 [19](https://biblehub.com/colossians/1-19.htm) 因为上帝愿意使祂所有的圆满都栖居在祂里面， [林前8:6](https://biblehub.com/1_corinthians/8-6.htm) 但对我们，有且惟有一位上帝，圣父，万物都从祂而来，而我们为祂而活；并且有且仅有一位主，耶稣基督，万物都藉着祂而来，而我们藉着祂而活。 [赛42:8](https://biblehub.com/isaiah/42-8.htm) “我是耶和华；那是我的名字！我不会将我的荣耀让给另一个，或将我的赞美让给偶像。 [提前6:15](https://biblehub.com/1_timothy/6-15.htm) 上帝会在祂自身的时间使其奏效---上帝，有福且惟一的统治者，万王之王和万主之主， [16](https://biblehub.com/1_timothy/6-16.htm) 惟独祂是不朽的，且生活在不可接近的光明中，没有人已看见或能看见祂。愿尊贵和权能归给祂，直到永远。阿门。 [诗45:7](https://biblehub.com/psalms/45-7.htm) 祢爱正义而憎恨邪恶；因此上帝，祢的上帝，通过用喜乐的油膏抹祢，已将祢安置在祢的同伴们之上。 [来1:8](https://biblehub.com/hebrews/1-8.htm) 但关于圣子，祂说：“上帝啊，祢的宝座会延续到永永远远；公义的权杖将是祢国度的权杖。 [9](https://biblehub.com/hebrews/1-9.htm) 祢已爱正义而恨邪恶；因此上帝，祢的上帝，通过用喜乐的油膏抹祢，已将祢置在祢的同伴之上。”
 
 [^26-7]: [出20:15](https://biblehub.com/exodus/20-15.htm) “你们不可偷窃。 [弗4:28](https://biblehub.com/ephesians/4-28.htm) 任何一直在偷窃的人决不能再偷窃，而必须工作，以他们自身的双手做一些有用的事情，以使他们能有一些东西同那些贫乏的人分享。 [徒5:4](https://biblehub.com/acts/5-4.htm) 它在被卖之前不属于你吗？而在它被卖之后，这钱不是任你处置吗？什么使你想到做这样的事情？你不仅已对人撒谎，还对上帝撒谎。”
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter25">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter27">下一章</a></center>

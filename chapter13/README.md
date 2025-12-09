@@ -2,6 +2,8 @@
 
 Of Sanctification
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter12">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter14">下一章</a></center>
+
 ## 13.1
 
 > They, who are once effectually called, and regenerated, having a new heart, and a new spirit created in them, are further sanctified, really and personally, through the virtue of Christ's death and resurrection, by His Word and Spirit dwelling in them: the dominion of the whole body of sin is destroyed, and the several lusts thereof are more and more weakened and mortified; and they more and more quickened and strengthened in all saving graces, to the practice of true holiness, without which no man shall see the Lord.
@@ -45,3 +47,5 @@ Of Sanctification
 [^13-12]: [彼后3:18](https://biblehub.com/2_peter/3-18.htm) 但要在我们的主和救主耶稣基督的恩典和知识中成长。愿荣耀归于祂，既在现在也在永远！阿门。 [林后3:18](https://biblehub.com/2_corinthians/3-18.htm) 而我们所有人，以被揭开面纱的脸，沉思主的荣耀，正以不断增长的荣耀被变换成祂的形象，而这荣耀来自主，祂是圣灵。
 
 [^13-13]: [林后7:1](https://biblehub.com/2_corinthians/7-1.htm) 因此，亲爱的朋友们，既然我们有这些应许，让我们从沾污身体和灵的一切中净化我们自己，出自对上帝的崇敬使神圣臻备。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter12">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter14">下一章</a></center>

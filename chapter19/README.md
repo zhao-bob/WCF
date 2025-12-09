@@ -2,6 +2,8 @@
 
 Of the Law of God
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter18">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter20">下一章</a></center>
+
 ## 19.1
 
 > God gave to Adam a law, as a covenant of works, by which He bound him and all his posterity, to personal, entire, exact, and perpetual obedience, promised life upon the fulfilling, and threatened death upon the breach of it, and endued him with power and ability to keep it.

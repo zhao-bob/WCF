@@ -2,6 +2,8 @@
 
 Of Repentance unto Life
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter14">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter16">下一章</a></center>
+
 ## 15.1
 
 > Repentance unto life is an evangelical grace, the doctrine whereof is to be preached by every minister of the Gospel, as well as that of faith in Christ.
@@ -65,3 +67,5 @@ Of Repentance unto Life
 [^15-13]: [雅5:16](https://biblehub.com/james/5-16.htm) 因此，相互忏悔你们的罪恶，并相互祷告，以致你们能被治愈。一个正义个体的祷告是有权柄而有效力的。 [路17:3](https://biblehub.com/luke/17-3.htm) 所以警醒你们自己。“如果你的弟兄姊妹对你犯罪，训斥他们；而如果他们悔改，饶恕他们。 [4](https://biblehub.com/luke/17-4.htm) 即使他们一天中七次对你犯罪，而七次回到你身边说‘我悔改’，你必须饶恕他们。” [书7:19](https://biblehub.com/joshua/7-19.htm) 于是约书亚对亚干说：“我儿，将荣耀献给耶和华，以色列的上帝，并尊敬他。告诉我你已做的；不要将它向我隐藏。” （[诗51](https://biblehub.com/niv/psalms/51.htm) 全篇。）
 
 [^15-14]: [林后2:8](https://biblehub.com/2_corinthians/2-8.htm) 因此，我敦促你们，以重申你们对他的爱。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter14">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter16">下一章</a></center>

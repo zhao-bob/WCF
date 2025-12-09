@@ -2,6 +2,8 @@
 
 Of the Last Judgment
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter32">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a><a href="https://zhao-bob.github.io/WCF/chapter1">下一章</a></center>
+
 ## 32.1
 
 > God has appointed a day, wherein He will judge the world, in righteousness, by Jesus Christ, to whom all power and judgment is given of the Father. In which day, not only the apostate angels shall be judged, but likewise all persons that have lived upon earth shall appear before the tribunal of Christ, to give an account of their thoughts, words, and deeds; and to receive according to what they have done in the body, whether good or evil.
@@ -33,3 +35,5 @@ Of the Last Judgment
 [^33-6]: [彼后3:11](https://biblehub.com/2_peter/3-11.htm) 既然一切将以这种方法被摧毁，你们应该成为哪一类的族民呢？你们应该过神圣且敬神的生活 [14](https://biblehub.com/2_peter/3-14.htm) 所以，那么亲爱的朋友们，既然你们对此正期待着，就要尽一切努力被发觉是一尘不染，无可指摘并同祂和平相处。 [林后5:10](https://biblehub.com/2_corinthians/5-10.htm) 因为我们所有人必须显现在基督的审判席前，以致我们各人能为在身体里时已完成的事情，无论好或坏，领受我们应当的。 [11](https://biblehub.com/2_corinthians/5-11.htm) 那么，既然我们知道敬畏主是什么，我们就尝试使其他人信服。我们是什么对上帝是直白的，而我希望这对你们的良心也是直白的。 [帖后1:5](https://biblehub.com/2_thessalonians/1-5.htm) 所有这都是上帝的审判的证据，而作为结果你们将被算为值得你们正在为之受难的上帝的国度的。 [6](https://biblehub.com/2_thessalonians/1-6.htm) 上帝是公正的：祂会将烦恼偿还给那些烦恼你们的 [7](https://biblehub.com/2_thessalonians/1-7.htm) 并赐予受烦恼的你们解脱，而对我们也是。这将当主耶稣与祂大能的天使一同在炽烧之火中从天国被显露时发生。 [路21:7](https://biblehub.com/luke/21-7.htm) “老师，”他们问，“这些事情什么时候会发生？而它们即将发生的记号会是什么？” [28](https://biblehub.com/luke/21-28.htm) 当这些事开始发生时，要站起来并举起你们的头，因为你们的救赎正在靠近。 [罗8:23](https://biblehub.com/romans/8-23.htm) 不仅如此，而且我们怀有圣灵初熟果实，当我们为我们收养儿子名分、我们身体的救赎殷切等候时，就自己内在叹息。 [24](https://biblehub.com/romans/8-24.htm) 因为在这希望中我们被拯救了。但被看见的希望根本没有希望。谁盼望他们已经拥有的呢？ [25](https://biblehub.com/romans/8-25.htm) 但如果我们为我们还未有的盼望，我们就耐心为它等待。
 
 [^33-7]: [太24:36](https://biblehub.com/matthew/24-36.htm) “但关于那天或那时辰，没有人知道，甚至在天国的众天使，或者圣子也不知道，而惟有圣父知道。 [42](https://biblehub.com/matthew/24-42.htm) “因此，要保持警醒，因为你们不知道在哪一天你们的主会来。 [43](https://biblehub.com/matthew/24-43.htm) 但要懂得这：假使房子的主人知道在晚上几点这窃贼要来，他就会保持警醒而不会让他的房子被闯入。 [44](https://biblehub.com/matthew/24-44.htm) 所以你们也必须做好准备，因为人子会在一个你意想不到的时辰来。 [可13:35](https://biblehub.com/mark/13-35.htm) “因此要保持警醒，因为你们不知道房子的业主什么时候回来---是否在晚上，或午夜，或当公鸡打鸣时，或在黎明。 [36](https://biblehub.com/mark/13-36.htm) 如果他突然来，不要让他发现你们在睡。 [37](https://biblehub.com/mark/13-37.htm) 我对你们说的，我说给每一个人：‘警醒！’ [路12:35](https://biblehub.com/luke/12-35.htm) “要穿着好，为服侍做好准备，并使你们的灯保持燃烧， [36](https://biblehub.com/luke/12-36.htm) 像仆人等待他们的主人从一场婚礼盛宴返回一样，以致当他来敲门时，他们能立刻为他打开门。 [启22:20](https://biblehub.com/revelation/22-20.htm) 祂为这些事作证，说：“是的，我不久要来。”阿门。来，主耶稣。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter32">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a><a href="https://zhao-bob.github.io/WCF/chapter1">下一章</a></center>

@@ -2,6 +2,8 @@
 
 Of Saving Faith
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter13">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter15">下一章</a></center>
+
 ## 14.1
 
 > The grace of faith, whereby the elect are enabled to believe to the saving of their souls, is the work of the Spirit of Christ in their hearts, and is ordinarily wrought by the ministry of the Word, by which also, and by the administration of the sacraments, and prayer, it is increased and strengthened.
@@ -45,3 +47,5 @@ Of Saving Faith
 [^14-12]: [来6:11](https://biblehub.com/hebrews/6-11.htm) 我们想你们各人都展示这相同的勤勉到那最末了，以致你们所盼望的能被完全实现。 [12](https://biblehub.com/hebrews/6-12.htm) 我们不想你们变得懒惰，而是要仿效那些藉着信心和耐心继承那被应许的人。 [10:22](https://biblehub.com/hebrews/10-22.htm) 让我们以一颗真诚的心并以信心带来的完全确信，靠近上帝，使我们的心挥洒以将我们从一种有罪的良心中洗净，并用纯洁的水使我们的身体洗涤。 [西2:2](https://biblehub.com/colossians/2-2.htm) 我的目标是他们能在内心被鼓励并在爱中被联合，以致他们能拥有完备理解的完全丰富，使得他们能知道上帝的奥秘，也就是，基督，
 
 [^14-13]: [来12:2](https://biblehub.com/hebrews/12-2.htm) 让我们定睛在耶稣上，祂是信心的先驱者和完美者。为了摆在祂面前的喜乐，祂忍受了十字架，蔑视它的耻辱，并定坐在上帝宝座的右手边。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter13">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter15">下一章</a></center>

@@ -2,6 +2,8 @@
 
 Of the Holy Scripture
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter33">上一章</a> <a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter2">下一章</a></center>
+
 ## 1. 1
 
 > Although the light of nature, and the works of creation and providence do so far manifest the goodness, wisdom, and power of God, as to leave men unexcusable; yet are they not sufficient to give that knowledge of God, and of His will, which is necessary unto salvation. Therefore it pleased the Lord, at sundry times, and in divers manners, to reveal Himself, and to declare that His will unto His Church; and afterwards for the better preserving and propagating of the truth, and for the more sure establishment and comfort of the Church against the corruption of the flesh, and the malice of Satan and of the world, to commit the same wholly unto writing; which makes the Holy Scripture to be most necessary; those former ways of God's revealing His will unto His people being now ceased.
@@ -296,3 +298,5 @@ Of the Holy Scripture
 <font color=blue size=2>不“论断”人，是不藉着自己的意志来判断，这只会造成人之间的分离；但这不是说人不被“论断”，或人没有资格“论断”，而是应藉着圣灵、以圣经的话语来“论断”。对于后者，我们不仅不该反对，反而要顺服至安息。</font>
 
 [^1-24]: [太22:29](https://biblehub.com/matthew/22-29.htm) 耶稣回复：“你们在谬误中，因为你们不明白经书或上帝的大能。 [31](https://biblehub.com/matthew/22-31.htm) 但关于死人复活，难道你们未曾读上帝对你们说了的， [弗2:20](https://biblehub.com/ephesians/2-20.htm) 以基督耶稣祂自己为主奠基石，建造在众使徒和众先知的根基上。 [徒28:25](https://biblehub.com/acts/28-25.htm) 他们在他们自己之间意见不合，在保罗作完这最终陈述后他们就开始离开：“圣灵在祂藉着先知以赛亚说话时将真理讲给了你们的祖先：
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter33">上一章</a> <a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter2">下一章</a></center>

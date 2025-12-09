@@ -2,6 +2,8 @@
 
 Of Christ the Mediator
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter7">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter9">下一章</a></center>
+
 ## 8.1
 
 > It pleased God, in His eternal purpose, to choose and ordain the Lord Jesus, His only begotten Son, to be the Mediator between God and man, the Prophet, Priest, and King, the Head and Savior of His Church, the Heir of all things, and Judge of the world: unto whom He did from all eternity give a people, to be His seed, and to be by Him in time redeemed, called, justified, sanctified, and glorified.
@@ -135,3 +137,5 @@ Of Christ the Mediator
 [^8-42]: [约14:16](https://biblehub.com/john/14-16.htm) 我会企求圣父，而祂会赐给你们另一位辩护者来帮助你们，并永远与你们同在--- [来12:2](https://biblehub.com/hebrews/12-2.htm) 让我们定睛在耶稣上，祂是信心的先驱者和完美者。为了摆在祂面前的喜乐，祂忍受了十字架，蔑视它的耻辱，并定坐在上帝宝座的右手边。 [林后4:13](https://biblehub.com/2_corinthians/4-13.htm) 经上记着：“我相信了；因此我已讲话。”既然我们有那信心相同的灵，我们也相信而因此讲话， [罗8:9](https://biblehub.com/romans/8-9.htm) 然而，如果上帝的圣灵的确住在你们里面，你们就不是在肉体的辖域中，而是在圣灵的辖域中。如果任何人没有基督的圣灵，他们就不属于基督。 [14](https://biblehub.com/romans/8-14.htm) 因为那些被上帝的圣灵引导的人是上帝的子女。 [15:18](https://biblehub.com/romans/15-18.htm) 除了基督借着我已成就的事，我不会冒昧谈到在由我已说和已完成的带领外邦人顺服上帝上的任何事情--- [19](https://biblehub.com/romans/15-19.htm) 而是由神迹奇事的大能，藉着上帝圣灵的大能。因此，从耶路撒冷一路转到以利哩古，我已充分宣布了基督的福音。 [约17:17](https://biblehub.com/john/17-17.htm) 由真理圣洁他们；祢的圣言是真理。
 
 [^8-43]: [诗110:1](https://biblehub.com/psalms/110-1.htm) 大卫的诗篇。耶和华对我主说：“坐在我的右手边，直到我为祢的脚将祢的敌人们做成脚凳。” [林前15:25](https://biblehub.com/1_corinthians/15-25.htm) 因为祂必须作王，直到祂已将祂所有的敌人踩在祂的脚下。 [26](https://biblehub.com/1_corinthians/15-26.htm) 被摧毁的最后的敌人是死亡。 [玛4:2](https://biblehub.com/malachi/4-2.htm) 但对崇敬我的名的你们，正义的太阳会升起，在它的光线中伴着治愈。而你们会像饱足的牛犊出去嬉戏。 [3](https://biblehub.com/malachi/4-3.htm) 然后你们会践踏恶人；在我行动的那天，他们将成为你们脚鞋底的灰烬，”万军之耶和华说。 [西2:15](https://biblehub.com/colossians/2-15.htm) 而已卸除能天使和权威的武装，祂用十字架战胜他们，使他们公开示丑。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter7">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter9">下一章</a></center>

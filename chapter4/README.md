@@ -2,6 +2,8 @@
 
 Of Creation
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter3">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter5">下一章</a></center>
+
 ## 4.1
 
 > It pleased God the Father, Son, and Holy Ghost, for the manifestation of the glory of His eternal power, wisdom, and goodness, in the beginning, to create, or make of nothing, the world, and all things therein whether visible or invisible, in the space of six days; and all very good.
@@ -35,3 +37,5 @@ Of Creation
 [^4-10]: [创2:17](https://biblehub.com/genesis/2-17.htm) 但你决不能以分辨善恶树为食，因为当你以它为食，你将肯定死。 [3:8](https://biblehub.com/genesis/3-8.htm) 然后在天转凉时那人正在园子里行走时，他和他的妻子听见耶和华上帝的声音，而他们在园子的树丛中向耶和华上帝隐藏。 [9](https://biblehub.com/genesis/3-9.htm) 但耶和华上帝向那人呼唤：“你在哪里？” [10](https://biblehub.com/genesis/3-10.htm) 他回答：“我在园子里听见了祢，而我害怕因为我裸露着；所以我躲藏了。” [11](https://biblehub.com/genesis/3-11.htm) 而祂说：“谁告诉你你是裸露着的？你已以我命令你不要为食的树为食吗？” [23](https://biblehub.com/genesis/3-23.htm) 所以耶和华上帝将他从伊甸园流放，去劳作他被取自的地面。
 
 [^4-11]: [创1:26](https://biblehub.com/genesis/1-26.htm) 然后上帝说：“让我们照我们的形象，照我们的样子制造人类，以致他们能统治海里的鱼，天空的鸟，统治牲畜和所有野兽，并统治所有在地面活动的受造物。” [28](https://biblehub.com/genesis/1-28.htm) 上帝祝福他们并对他们说：“要富有果实，并在数目上增长；充满大地并制伏它。统治海中的鱼，天上的鸟，并统治在地面活动的每一个活物。”
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter3">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter5">下一章</a></center>

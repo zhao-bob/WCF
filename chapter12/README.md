@@ -2,6 +2,8 @@
 
 Of Adoption
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter11">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter13">下一章</a></center>
+
 ## 12.1
 
 > All those that are justified, God vouchsafes, in and for His only Son Jesus Christ,to make partakers of the grace of adoption, by which they are taken into the number, and enjoy the liberties and privileges of the children of God, have His name put upon them, receive the spirit of adoption, have access to the throne of grace with boldness, are enabled to cry, Abba, Father, are pitied, protected, provided for, and chastened by Him as by a Father: yet never cast off, but sealed to the day of redemption; and inherit the promises, as heirs of everlasting salvation.
@@ -35,3 +37,5 @@ Of Adoption
 [^12-13]: [来6:12](https://biblehub.com/hebrews/6-12.htm) 我们不想你们变得懒惰，而是要仿效那些藉着信心和耐心继承那被应许的人。
 
 [^12-14]: [彼前1:3](https://biblehub.com/1_peter/1-3.htm) 赞美归于上帝与我们主耶稣基督的圣父！在祂伟大的宽恕中，祂藉着耶稣基督从死人复活，已赐给我们新生，进入永活希望中， [4](https://biblehub.com/1_peter/1-4.htm) 并进入绝不灭亡、损坏或衰落的遗产中。这遗产在天国为你们保留， [来1:14](https://biblehub.com/hebrews/1-14.htm) 难道不是所有天使都是施助的灵，被差派去侍奉那些会继承拯救的人吗？
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter11">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter13">下一章</a></center>

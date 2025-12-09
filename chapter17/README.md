@@ -2,6 +2,8 @@
 
 Of the Perseverance of the Saints
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter16">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter18">下一章</a></center>
+
 ## 17.1
 
 > They, whom God has accepted in His Beloved, effectually called, and sanctified by His Spirit, can neither totally nor finally fall away from the state of grace, but shall certainly persevere therein to the end, and be eternally saved.
@@ -49,3 +51,5 @@ Of the Perseverance of the Saints
 [^17-14]: [撒下12:14](https://biblehub.com/2_samuel/12-14.htm) 但因为由做此你已对耶和华展示十足的藐视，这为你生的儿子将死。”
 
 [^17-15]: [诗89:31](https://biblehub.com/psalms/89-31.htm) 如果他们违背我的预旨而未能保持我的命令， [32](https://biblehub.com/psalms/89-32.htm) 我会用杖惩罚他们的罪恶，用鞭笞惩罚他们的罪邪； [林前11:32](https://biblehub.com/1_corinthians/11-32.htm) 尽管如此，当我们被主以这种方法审判时，我们是在被规训以致我们不会最终与世界一同被定罪。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter16">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter18">下一章</a></center>

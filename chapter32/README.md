@@ -2,6 +2,8 @@
 
 Of the State of Men after Death, and of the Resurrection of the Dead
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter31">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter33">下一章</a></center>
+
 ## 32.1
 
 > The bodies of men, after death, return to dust, and see corruption: but their souls, which neither die nor sleep, having an immortal subsistence, immediately return to God who gave them: the souls of the righteous, being then made perfect in holiness, are received into the highest heavens, where they behold the face of God, in light and glory, waiting for the full redemption of their bodies. And the souls of the wicked are cast into hell, where they remain in torments and utter darkness, reserved to the judgment of the great day. Beside these two places, for souls separated from their bodies, the Scripture acknowledges none.
@@ -33,3 +35,5 @@ Of the State of Men after Death, and of the Resurrection of the Dead
 不公者的身体，由基督的大能，要被苏醒至羞辱；公正者的身体，由祂的圣灵，被至于尊贵；并遵照祂自身荣耀的身体被造[^32-7]。
 
 [^32-6]: [徒24:15](https://biblehub.com/acts/24-15.htm) 而我在上帝中有如这些人他们自己有的相同的希望，即义人和恶人两者都会有一次复活。 [约5:28](https://biblehub.com/john/5-28.htm) “不要对此惊奇，因为时辰将到，那时所有在他们坟墓中的人都会听见祂的话音 [29](https://biblehub.com/john/5-29.htm) 并出来---那些已行那善的人将起来永活，而那些已行那恶的人将起来被定罪。 [腓3:21](https://biblehub.com/philippians/3-21.htm) 祂，由为祂赋能以将一起带到他控制之下的大能，会变换我们卑贱的身体，以致它们会像祂荣耀的身体一样。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter31">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter33">下一章</a></center>

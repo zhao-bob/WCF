@@ -2,6 +2,8 @@
 
 Of Free Will
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter8">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter10">下一章</a></center>
+
 ## 9.1
 
 > God has endued the will of man with that natural liberty, that is neither forced, nor, by any absolute necessity of nature, determined good, or evil.
@@ -53,3 +55,5 @@ Of Free Will
 惟有在荣耀的状态中，人的意志才被变成完美且不变地自由以独自行善[^9-11]。
 
 [^9-11]: [弗4:13](https://biblehub.com/ephesians/4-13.htm) 直到我们所有人在信心中并在上帝圣子的知识上到达合一，而变得成熟，达成基督圆满的整个度量。 [来12:23](https://biblehub.com/hebrews/12-23.htm) 来到长子的教会，他们的名字被记在天国中。你们已经来到上帝，万物的审判者面前，来到被臻善的义人的灵面前， [约壹3:2](https://biblehub.com/1_john/3-2.htm) 亲爱的朋友们，现在我们是上帝的子女，而我们会是什么还未被揭晓。但我们知道当基督显现时，我们应像祂一样，因为我们会看见祂如祂所是。 [犹1:24](https://biblehub.com/jude/1-24.htm) 归向祂，祂有能力使你们避开跌倒，并无过错而以极大的喜乐将你们在祂荣耀的临在前呈现---
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter8">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter10">下一章</a></center>

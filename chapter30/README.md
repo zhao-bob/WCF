@@ -2,6 +2,8 @@
 
 Of Church Censures
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter29">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter31">下一章</a></center>
+
 ## 30.1
 
 > The Lord Jesus, as king and head of His Church, has therein appointed a government, in the hand of Church officers, distinct from the civil magistrate.
@@ -33,3 +35,5 @@ Of Church Censures
 为了更好地达成这些目的，教会的职员要按照犯法的本性，和个体的过失，由劝诫；暂时暂停主餐的圣礼；以及由逐出教会来进行[^30-4]。
 
 [^30-4]: [帖前5:12](https://biblehub.com/1_thessalonians/5-12.htm) 现在我们企求你们，弟兄姊妹，去致谢那些在你们中间辛苦工作的人，在主里关心你们以及劝诫你们的人。 [帖后3:6](https://biblehub.com/2_thessalonians/3-6.htm) 奉主耶稣基督的名，我们命令你们，弟兄姊妹，要避开每一个无聊和扰乱的，并不按照你们从我们领受的教导生活的信徒。 [14](https://biblehub.com/2_thessalonians/3-14.htm) 要对任何不遵守我们在这封信中的指令的人特殊备注。不要与他们交往，为使他们能感到羞愧。 [15](https://biblehub.com/2_thessalonians/3-15.htm) 但不要把他们当作一个敌人，而要像你们会警告一个同胞信徒那样警告他们。 [林前5:4](https://biblehub.com/1_corinthians/5-4.htm) 所以当你们被集会，而我在灵里与你们同在，且我们主耶稣的大能临在时， [5](https://biblehub.com/1_corinthians/5-5.htm) 为肉体的摧毁将此人送交给撒旦，以致他的灵能在主的日子被拯救。 [13](https://biblehub.com/1_corinthians/5-13.htm) 上帝会审判那些外面的人。“从你们中间把那邪恶的个体驱逐出去。” [太18:17](https://biblehub.com/matthew/18-17.htm) 如果他们仍然拒绝听从，要将其告诉教会；而如果他们甚至拒绝听从教会，你要对待他们如异教徒或税吏一样。 [多3:10](https://biblehub.com/titus/3-10.htm) 警告制造分裂的个体一次，而后警告他们第二次。在那之后，要与他们断绝关系。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter29">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter31">下一章</a></center>

@@ -2,6 +2,8 @@
 
 Of God's Covenant with Man
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter6">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter8">下一章</a></center>
+
 ## 7.1
 
 > The distance between God and the creature is so great, that although reasonable creatures do owe obedience unto Him as their Creator, yet they could never have any fruition of Him as their blessedness and reward, but by some voluntary condescension on God's part, which He has been pleased to express by way of covenant.
@@ -73,3 +75,5 @@ Of God's Covenant with Man
 [^7-17]: [路22:20](https://biblehub.com/luke/22-20.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是我血中的新约，为你们被倾倒出来。”
 
 [^7-18]: [加3:14](https://biblehub.com/galatians/3-14.htm) 祂救赎了我们，为使赐给亚伯拉罕的福分能藉着基督耶稣来到外邦人，以致由信心我们能领受圣灵的应许。 [16](https://biblehub.com/galatians/3-16.htm) 这些应许被讲给亚伯拉罕并给他的苗裔。经书没有说“给众苗裔”，意味着许多族民，而是“并给你的苗裔”，意味着一个个体，就是基督。 [徒15:11](https://biblehub.com/acts/15-11.htm) 不！我们相信是藉着我们主耶稣的恩典使我们被拯救，正如他们一样。” [罗3:21](https://biblehub.com/romans/3-21.htm) 但现在除去律法，上帝的正义已经被揭晓了，律法和众先知也向它作证。 [22](https://biblehub.com/romans/3-22.htm) 这正义藉着在耶稣基督中的信心被赐给所有相信的人。犹太人和外邦人之间没有差异， [23](https://biblehub.com/romans/3-23.htm) 因为所有人都已犯了罪恶，而亏欠了上帝的荣耀， [30](https://biblehub.com/romans/3-30.htm) 既然惟有一位上帝，祂会称由信心受割礼的人和藉着那相同信心未受割礼的人为义。 [诗32:1](https://biblehub.com/psalms/32-1.htm) 大卫的训诲诗。那违犯被饶恕，罪恶被遮盖的人是有福的。 [罗4:3](https://biblehub.com/romans/4-3.htm) 经书说什么？“亚伯拉罕信了上帝，而这作为义被归功于他。” [6](https://biblehub.com/romans/4-6.htm) 大卫在谈到上帝除去功劳将义归功于的那人的福分时，说出相同的事情： [16](https://biblehub.com/romans/4-16.htm) 因此，那应许由信心而来，以致它能靠恩典，并能被保障给亚伯拉罕的所有孩子---不仅给那些属律法的人，而且给那些拥有亚伯拉罕信心的人。他是我们所有人的父亲。 [17](https://biblehub.com/romans/4-17.htm) 如经上所记：“我已立你为许多国族的父亲。”在上帝的视域中，他是我们的父亲。他信仰祂---祂是赐给死人生命并将没有存有的东西招入存有的上帝。 [23](https://biblehub.com/romans/4-23.htm) “这被归功于他”这词句不是惟独为他记的， [24](https://biblehub.com/romans/4-24.htm) 而且也是为我们，上帝会将正义归功给我们---为我们这些信仰祂将耶稣我们的主从死人苏醒的人。 [来13:8](https://biblehub.com/hebrews/13-8.htm) 耶稣基督昨天和今天且永远是一样的。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter6">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter8">下一章</a></center>

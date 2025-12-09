@@ -2,6 +2,8 @@
 
 Of Marriage and Divorce
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter23">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter25">下一章</a></center>
+
 ## 24.1
 
 > Marriage is to be between one man and one woman: neither is it lawful for any man to have more than one wife, nor for any woman to have more than one husband, at the same time.
@@ -67,3 +69,5 @@ Of Marriage and Divorce
 [^24-14]: [太19:8](https://biblehub.com/matthew/19-8.htm) 耶稣回复：“摩西允许你们与你们的妻子离婚，因为你们的心硬。但从起初不是这样的方法。 [太19:9](https://biblehub.com/matthew/19-9.htm) 我告诉你们，任何与妻子离婚的人，除了淫乱之外，而娶另一个女人，就犯通奸罪。” [林前7:15](https://biblehub.com/1_corinthians/7-15.htm) 但如果那不信者离开，就让其这样吧。在这种状况下，兄弟或姐妹不被束缚；上帝已召唤我们生活在和平中。 [太19:6](https://biblehub.com/matthew/19-6.htm) 所以他们不再是两个，而是一体。因此，上帝已结合在一起的，不让任何人分离。
 
 [^24-15]: [申24:1](https://biblehub.com/deuteronomy/24-1.htm) 如果一个男人和一个女人结婚，而她变得不使他满意因为他发现关于她一些不雅的事情，而他给她写下离婚证书，将其给她并将她从他家送出， [2](https://biblehub.com/deuteronomy/24-2.htm) 而如果她离开他的家后成为另一个男人的妻子， [3](https://biblehub.com/deuteronomy/24-3.htm) 而如果她的第二任丈夫不喜欢她，并给她写下离婚证明，将其给她并将她从他家送出，或者如果他死去， [4](https://biblehub.com/deuteronomy/24-4.htm) 那么，与她离婚的她的第一任丈夫，在她已被玷污后，不被允许再与她结婚。那会在耶和华眼中是可憎的。不要将罪恶带到这耶和华你的上帝正赐给你作为遗产的土地上。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter23">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter25">下一章</a></center>

@@ -107,3 +107,5 @@ Of God's Eternal Decree
 [^3-20]: [弗1:6](https://biblehub.com/ephesians/1-6.htm) 为赞美祂荣耀的恩典，这是祂在祂所爱的独子中已白白赐给我们的。 [罗11:33](https://biblehub.com/romans/11-33.htm) 深哉，上帝智慧和知识的丰富！祂的判断何其难测，而祂的路径超出追踪！
 
 [^3-21]: [罗11:5](https://biblehub.com/romans/11-5.htm) 所以，在现今时间也有被恩典拣选的余民。 [6](https://biblehub.com/romans/11-6.htm) 如果由恩典，那么它就不能基于功劳；假使它是，恩典就不再会是恩典。 [6:20](https://biblehub.com/romans/6-20.htm) 当你们是罪恶的奴隶时，你们免于正义的控制了。 [彼后1:10](https://biblehub.com/2_peter/1-10.htm) 因此，我的弟兄姊妹，要尽一切努力确认你们的召唤和遴选。因为如果你们做这些事，你们就绝不会跌倒， [罗8:3](https://biblehub.com/romans/8-33.htm) 谁会对上帝已拣选的人带来任何指控呢？称义的是上帝。 [路10:20](https://biblehub.com/luke/10-20.htm) 然而，不要欣喜众灵服从你们，而要欣喜你们的名字被记在天国中。”
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter2">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter4">下一章</a></center>

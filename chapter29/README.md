@@ -2,6 +2,8 @@
 
 Of the Lord's Supper
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter28">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter30">下一章</a></center>
+
 ## 29.1
 
 > Our Lord Jesus, in the night wherein He was betrayed, instituted the sacrament of His body and blood, called the Lord's Supper, to be observed in His Church, unto the end of the world, for the perpetual remembrance of the sacrifice of Himself in His death; the sealing all benefits thereof unto true believers, their spiritual nourishment and growth in Him, their further engagement in and to all duties which they owe unto Him; and, to be a bond and pledge of their communion with Him, and with each other, as members of His mystical body.
@@ -81,3 +83,5 @@ Of the Lord's Supper
 [^29-15]: [林前11:27](https://biblehub.com/1_corinthians/11-27.htm) 因此，无论谁以不配的方式吃主的饼或喝主的杯的，就是犯对主的身体和血犯罪的罪行。 [28](https://biblehub.com/1_corinthians/11-28.htm) 每个人在吃这饼和喝这杯之前都应该审查他们自己。 [29](https://biblehub.com/1_corinthians/11-29.htm) 因为那些不辨别基督的身体吃喝的人，吃喝在他们自己上的审判。 [林后6:14](https://biblehub.com/2_corinthians/6-14.htm) 不要与不信者在一起被负轭。因为正义和邪恶有什么共同？或者光明与黑暗有什么团契呢？ [15](https://biblehub.com/2_corinthians/6-15.htm) 基督和彼列之间有什么和谐呢？或者，一个信徒同一个非信徒有什么共同呢？ [16](https://biblehub.com/2_corinthians/6-16.htm) 上帝的神殿和偶像之间有什么协定？因为我们是永活上帝的殿。如上帝已说的：“我将与他们同住并行走在他们中间，而我会是他们的上帝，而他们会是我的子民。”
 
 [^29-16]: [林前5:6](https://biblehub.com/1_corinthians/5-6.htm) 你们的夸耀不好。你们不知道一点酵就能使整批面团发酵吗？ [7](https://biblehub.com/1_corinthians/5-7.htm) 去除旧酵，以使你们能成为一个新的无酵批次---与你们真实的一样。因为基督，我们的逾越节羔羊，已被献祭。 [13](https://biblehub.com/1_corinthians/5-13.htm) 上帝会审判那些外面的人。“从你们中间把那邪恶的个体驱逐出去。” [帖后3:6](https://biblehub.com/2_thessalonians/3-6.htm) 奉主耶稣基督的名，我们命令你们，弟兄姊妹，要避开每一个无聊和扰乱的，并不按照你们从我们领受的教导生活的信徒。 [14](https://biblehub.com/2_thessalonians/3-14.htm) 要对任何不遵守我们在这封信中的指令的人特殊备注。不要与他们交往，为使他们能感到羞愧。 [15](https://biblehub.com/2_thessalonians/3-15.htm) 但不要把他们当作一个敌人，而要像你们会警告一个同胞信徒那样警告他们。 [太7:6](https://biblehub.com/matthew/7-6.htm) “不要将奉神的东西给狗；不要将你们的珍珠扔给猪。如果你们如此，他们可能在他们脚下践踏它们，并转身将你们撕成碎片。
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter28">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter30">下一章</a></center>
