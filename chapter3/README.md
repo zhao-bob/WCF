@@ -2,6 +2,8 @@
 
 Of God's Eternal Decree
 
+<center><a href="https://zhao-bob.github.io/WCF/chapter2">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter4">下一章</a></center>
+
 ## 3.1
 
 > God from all eternity, did, by the most wise and holy counsel of His own will, freely, and unchangeable ordain whatsoever comes to pass; yet so, as thereby neither is God the author of sin, nor is violence offered to the will of the creatures; nor is the liberty or contingency of second causes taken away, but rather established.
