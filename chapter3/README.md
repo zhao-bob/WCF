@@ -69,7 +69,10 @@ Of God's Eternal Decree
 
 > Those of mankind that are predestinated unto life, God, before the foundation of the world was laid, according to His eternal and immutable purpose, and the secret counsel and good pleasure of His will, has chosen, in Christ, unto everlasting glory, out of His mere free grace and love, without any foresight of faith, or good works, or perseverance in either of them, or any other thing in the creature, as conditions, or causes moving Him thereunto; and all to the praise of His glorious grace.
 
-那些被预定至生命的人类，上帝，在奠定世界的根基之前，按照祂永恒不变的旨意，以及祂意志的隐秘密旨和美意，在基督里，已拣选他们至永久的荣耀[^3-9]，出自祂纯粹白白的恩典和爱，不用信心，或善功，或在它们两者之一中的持守，或受造物中任何其他事物的任何预见，作为感动祂达此目的的条件或原因[^3-10]；而所有都为祂荣耀恩典的赞美[^3-11]。
+那些被预定至生命的人类，上帝，在奠定世界的根基之前，按照祂永恒不变的旨意，以及祂意志的隐秘密旨和美意，在基督里，已拣选他们至永久的荣耀[^3-9]，出自祂纯粹白白的恩典和爱，不以信心，或善功，或在它们两者之一中的持守，或受造物中任何其他事物的任何预见，作为感动祂达此目的的条件或原因[^3-10]；而所有都为祂荣耀恩典的赞美[^3-11]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 上帝的拣选是祂在创造天地之初就已预定的，而这自然就得出人的拯救不源自功劳的结论。而信心是这一恩典的必然结果，也是祂源自拣选的恩赐。</font>
 
 [^3-9]: [弗1:4](https://biblehub.com/ephesians/1-4.htm) 因为在世界创造之前，祂在祂里面拣选了我们以在祂的视域中成为神圣和无可指摘的。在爱中 [9](https://biblehub.com/ephesians/1-9.htm) 祂按照祂在基督里立定了的祂的美意，向我们揭晓了祂意志的奥秘， [11](https://biblehub.com/ephesians/1-11.htm) 我们也在祂里面被拣选了，是按照祂的计划已被预定的，而祂遵照祂意志的旨意运行出一切， [罗8:30](https://biblehub.com/romans/8-30.htm) 而那些祂预定了的，祂也召唤了他们；那些祂召唤了的，祂也称了他们为义；那些祂称了为义的，祂也使他们荣耀。 [提后1:9](https://biblehub.com/2_timothy/1-9.htm) 祂已拯救我们，并召唤了我们向神圣的生命---不是因为任何我们已完成的，而是因为祂自身的旨意和恩典。这恩典在时间起初之前在基督耶稣里被赐给了我们， [帖前5:9](https://biblehub.com/1_thessalonians/5-9.htm) 因为上帝没有指定我们遭受忿怒，而是藉着我们主耶稣基督领受拯救。
 
