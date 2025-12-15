@@ -103,7 +103,11 @@ Of God's Eternal Decree
 
 > The rest of mankind God was pleased, according to the unsearchable counsel of His own will, whereby He extends or withholds mercy, as He pleases, for the glory of His sovereign power over His creatures, to pass by; and to ordain them to dishonor and wrath for their sin, to the praise of His glorious justice.
 
-其余的人类，上帝愿意，按照祂自身意志不可测的密旨，以此祂随祂意愿扩展或扣留宽恕，为祂对祂的受造物的全权大能的荣耀，将他们略过；并为祂荣耀的公义的赞美，按立他们为他们的罪恶至羞辱和忿怒[^3-17]。
+其余的人类，上帝愿意，按照祂自身意志不可测的密旨，以此祂随祂意愿扩展或扣留宽恕，为祂在祂的受造物之上的全权大能的荣耀，将他们略过；并为祂荣耀的公义的赞美，按立他们为他们的罪恶至羞辱和忿怒[^3-17]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. “Mercy”在本文中被翻译为“宽恕”，以将其与“compassion”“怜悯”区分，同时更强调这是上帝的无上主权。祂按照祂预定的旨意施宽恕，所以恶人得赏赐，义人受磨难只是表面现象。祂会使一切都运行出它恰当的目的，一切也都只为祂自身的荣耀。</font>
+<font color=blue size=2>2. 上帝会使用恶人，但不会召唤他们，更不会拯救他们。他们永远都按自己的意愿行事，在黑暗之中作他们自己的王。</font>
 
 [^3-17]: [太11:25](https://biblehub.com/matthew/11-25.htm) 在那时耶稣说：“圣父啊，天与地的主，我赞美祢，因为祢已向智慧和博学的人隐藏这些事，而将它们启示给小孩子。 [26](https://biblehub.com/matthew/11-26.htm) 是的，圣父，因为这是祢愿意做的事。 [罗9:17](https://biblehub.com/romans/9-17.htm) 因为经书对法老说：“我唤起你，正是为这个旨意，使我能在你里面显示我的大能，并使我的名能在全地被宣布。” [18](https://biblehub.com/romans/9-18.htm) 因此，上帝在祂想施宽恕的人上施宽恕，而祂使祂想刚硬的人刚硬。 [21](https://biblehub.com/romans/9-21.htm) 陶工难道没有权用相同的陶土团块制作一些陶器作特殊用途，而一些为通常使用吗？ [22](https://biblehub.com/romans/9-22.htm) 虽然上帝选择表明祂的忿怒并揭晓祂的大能，但倘若祂以极大的耐心承受祂忿怒的对象---为毁灭预备的呢？ [提后2:19](https://biblehub.com/2_timothy/2-19.htm) 尽管如此，上帝坚实的根基屹立坚固，被封印以这铭文：“耶和华认识那些是祂的人”，和，“每一个坦承耶和华名的，都必须从邪恶转离”。 [20](https://biblehub.com/2_timothy/2-20.htm) 在一栋大房子里，不仅有金银制品，还有木头和陶土制品；有些是为特殊用途，有些是为通常使用的。 [犹1:4](https://biblehub.com/jude/1-4.htm) 因为某些定罪先前就被写下的个人，已暗中溜进你们中间。他们是悖逆神的人，他们将我们上帝的恩典曲解为不道德的许可证，并否认耶稣基督我们惟一的主宰和君主。 [彼前2:8](https://biblehub.com/1_peter/2-8.htm) 并且，“一块导致族民跌倒的石头和一块使他们坠落的岩石。”他们跌倒因为他们忤逆这消息---这也是他们被命定了的。
 
