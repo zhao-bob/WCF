@@ -115,7 +115,10 @@ Of God's Eternal Decree
 
 > The doctrine of this high mystery of predestination is to be handled with special prudence and care, that men, attending the will of God revealed in His Word, and yielding obedience thereunto, may, from the certainty of their effectual vocation, be assured of their eternal election. So shall this doctrine afford matter of praise, reverence, and admiration of God; and of humility, diligence, and abundant consolation to all that sincerely obey the Gospel.
 
-预定论的这崇高奥秘的教义，要以特殊的审慎并仔细来被处理[^3-18]，以使投入上帝在祂的圣言中所启示的意志，并为此屈从于顺服的人们，能从他们有效神召的确定性中，被确信他们永恒的遴选[^3-19]。所以此教义也会将赞美、崇敬和仰慕上帝相关的事要[^3-20]；以及谦卑、勤勉和丰盛慰藉相关的事要给予所有真诚顺服福音的人[^3-21]。
+预定论这崇高奥秘的教义，要以特殊的审慎并仔细来被处理[^3-18]，以使投入上帝在祂圣言中所启示的意志，并为此屈从于顺服的人们，能从他们有效神召的确定性中，被确信他们永恒的遴选[^3-19]。所以此教义也会将赞美、崇敬和仰慕上帝相关的事要[^3-20]；以及谦卑、勤勉和丰盛慰藉相关的事要给予所有真诚顺服福音的人[^3-21]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 预定论带给子民是谦卑、和平和安息，使他们完完全全将自己交托给主，把今生聚焦在祂身上。</font>
 
 [^3-18]: [罗9:20](https://biblehub.com/romans/9-20.htm) 但你是谁，一个人类，来与上帝顶嘴？“被塑形之物该对塑形它的人说：‘祢为什么把我制造成这样？’” [11:33](https://biblehub.com/romans/11-33.htm) 深哉，上帝智慧和知识的丰富！祂的判断何其难测，而祂的路径超出追踪！ [申29:29](https://biblehub.com/deuteronomy/29-29.htm) 隐秘的事情属于耶和华我们的上帝，但被启示的事情永远属于我们和我们的子女，使我们能遵循这律法所有的言词。
 
