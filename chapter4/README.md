@@ -25,22 +25,22 @@ Of Creation
 
 > After God had made all other creatures, He created man, male and female, with reasonable and immortal souls, endued with knowledge, righteousness, and true holiness, after His own image; having the law of God written in their hearts, and power to fulfil it; and yet under a possibility of transgressing, being left to the liberty of their own will, which was subject unto change. Beside this law written in their hearts, they received a command, not to eat of the tree of the knowledge of good and evil; which while they kept, they were happy in their communion with God, and had dominion over the creatures.
 
-在上帝已制造所有其他的受造物之后，他创造了人，男性和女性[^4-4]：带着理性和不朽的灵魂[^4-5]，被授予知识、正义和真正的神圣，效法祂自身的形象[^4-6]；拥有上帝的律法刻在他们内心[^4-7]，以及成全它的权柄[^4-8]；也还在一种违犯的可能性下，被留有他们自身易受改变的意志的自在[^4-9]。除这刻在他们内心的律法之外，他们还领受了一条命令：不要以分辨善恶树为食[^4-10]；在他们保持此时，他们在他们同上帝的交契中是幸福的，并对受造物拥有管辖权[^4-11]。
+在上帝已制造所有其他的受造物之后，祂创造了人，男性和女性[^4-4]：带着理性和不朽的灵魂[^4-5]，被授予知识、正义和真正的神圣，照祂自身的形象[^4-6]；拥有上帝的律法刻在他们内心[^4-7]，以及成全它的权柄[^4-8]；也还在一种违犯的可能性下，被留有他们自身易于改变的意志的自在[^4-9]。除这刻在他们内心的律法之外，他们还领受了一条命令：不要以分辨善恶树为食[^4-10]；在他们保持此时，他们在他们同上帝的交契中是幸福的，并对受造物拥有管辖权[^4-11]。
 
 [^4-4]: [创1:27](https://biblehub.com/genesis/1-27.htm) 所以上帝照祂自身的形象创造了人类，照上帝的形象祂创造了他们；祂创造了他们，男性和女性。
 
-[^4-5]: [创2:7](https://biblehub.com/genesis/2-7.htm) 于是耶和华上帝用地面的尘土塑造了一个人，并将生命的气息吹进他的鼻孔，而这人就变成了一个活的存有。 [传12:7](https://biblehub.com/ecclesiastes/12-7.htm) 而尘土回归它来自的地面，而灵回归赐予它的上帝。 [路23:43](https://biblehub.com/luke/23-43.htm) 耶稣回答他：“我实在告诉你，今天你将与我一同在乐园里。” [太10:28](https://biblehub.com/matthew/10-28.htm) 不要害怕那些杀死身体但不能杀死灵魂的。相反，要害怕那能在地狱将灵魂和身体都摧毁的独一位。
+[^4-5]: [创2:7](https://biblehub.com/genesis/2-7.htm) 于是耶和华上帝从地面的尘土中塑造了一个人并将生命的气息吐息进他的鼻孔，那人就成为了一个生命体。 [传12:7](https://biblehub.com/ecclesiastes/12-7.htm) 而尘土回归它来自的地面，而灵回归赐予它的上帝。 [路23:43](https://biblehub.com/luke/23-43.htm) 耶稣回答他：“我实在告诉你，今天你将与我一同在乐园里。” [太10:28](https://biblehub.com/matthew/10-28.htm) 不要害怕那些杀死身体但不能杀死灵魂的。相反，要害怕那能在地狱将灵魂和身体都摧毁的独一位。
 
-[^4-6]: [创1:26](https://biblehub.com/genesis/1-26.htm) 然后上帝说：“让我们照我们的形象，照我们的样子制造人类，以致他们能统治海里的鱼，天空的鸟，统治牲畜和所有野兽，并统治所有在地面活动的受造物。” [西3:10](https://biblehub.com/colossians/3-10.htm) 并已穿上新的自我，它正照造物主的形象在知识上被更新。 [弗4:24](https://biblehub.com/ephesians/4-24.htm) 并要穿上新的自我，它在真正的正义和神圣上被创造得像上帝一样。
+[^4-6]: [创1:26](https://biblehub.com/genesis/1-26.htm) 然后上帝说：“让我们依我们的形象，照我们的样子制造人，以统治海里的鱼和空中的鸟，统治牲畜，并统治全地本身以及每个在其上爬行的生物。” [西3:10](https://biblehub.com/colossians/3-10.htm) 并已穿上新的自我，它正照造物主的形象在知识上被更新。 [弗4:24](https://biblehub.com/ephesians/4-24.htm) 并要穿上新的自我，它在真正的正义和神圣上被创造得像上帝一样。
 
-[^4-7]: [罗2:14](https://biblehub.com/romans/2-14.htm) （的确，当没有律法的外邦人，由本性行被律法要求的事时，尽管他们没有律法，他们就是对他们自己的一种律法。 [15](https://biblehub.com/romans/2-14.htm) （的确，当没有律法的外邦人，由本性行被律法要求的事时，尽管他们没有律法，他们就是对他们自己的一种律法。
+[^4-7]: [罗2:14](https://biblehub.com/romans/2-14.htm) （的确，当没有律法的外邦人，由本性行被律法要求的事时，尽管他们没有律法，他们就是对他们自己的一种律法。 [15](https://biblehub.com/romans/2-15.htm) 他们表明律法的要求被刻在他们心上，他们的良心也在担任证人，而且他们的思想有时控告它们，而其它时候甚至捍卫它们。）
 
 [^4-8]: [传7:29](https://biblehub.com/ecclesiastes/7-29.htm) 我仅已发现这：上帝创造人类为正直，但他们却已去探求许多诡计。”
 
-[^4-9]: [创3:6](https://biblehub.com/genesis/3-6.htm) 当这女人看见这树上的果实好作食物，又使眼睛愉悦，而且也对获得智慧诱人，她就取了一些并吃了它。她也将一些给了与她一同的丈夫，而他也吃了它。 [传7:29](https://biblehub.com/ecclesiastes/7-29.htm) 我仅已发现这：上帝创造人类为正直，但他们却已去探求许多诡计。”
+[^4-9]: [创3:6](https://biblehub.com/genesis/3-6.htm) 当那女人看见那树宜为食物且悦目，而这是为获得智慧所渴望的，她就取了果实并吃了它。她也将一些给了与她一同的丈夫，而他也吃了它。 [传7:29](https://biblehub.com/ecclesiastes/7-29.htm) 我仅已发现这：上帝创造人类为正直，但他们却已去探求许多诡计。”
 
-[^4-10]: [创2:17](https://biblehub.com/genesis/2-17.htm) 但你决不能以分辨善恶树为食，因为当你以它为食，你将肯定死。 [3:8](https://biblehub.com/genesis/3-8.htm) 然后在天转凉时那人正在园子里行走时，他和他的妻子听见耶和华上帝的声音，而他们在园子的树丛中向耶和华上帝隐藏。 [9](https://biblehub.com/genesis/3-9.htm) 但耶和华上帝向那人呼唤：“你在哪里？” [10](https://biblehub.com/genesis/3-10.htm) 他回答：“我在园子里听见了祢，而我害怕因为我裸露着；所以我躲藏了。” [11](https://biblehub.com/genesis/3-11.htm) 而祂说：“谁告诉你你是裸露着的？你已以我命令你不要为食的树为食吗？” [23](https://biblehub.com/genesis/3-23.htm) 所以耶和华上帝将他从伊甸园流放，去劳作他被取自的地面。
+[^4-10]: [创2:17](https://biblehub.com/genesis/2-17.htm) 但你决不能以分辨善恶树为食，因为当你以它为食，你将肯定死。 [3:8](https://biblehub.com/genesis/3-8.htm) 然后在那日风凉时，那人和他的妻子听见耶和华上帝在园子里行走的声音，他们就在园子的树丛中向耶和华上帝的临在隐藏。 [9](https://biblehub.com/genesis/3-9.htm) 但耶和华上帝向那人呼唤：“你在哪里？” [10](https://biblehub.com/genesis/3-10.htm) 他回应：“我在园子里听见了祢的声音，而我害怕因为我是裸露的；所以我躲藏了我自己。” [11](https://biblehub.com/genesis/3-11.htm) 而祂说：“谁告诉你你是裸露着的？你已以我命令你不要为食的树为食吗？” [23](https://biblehub.com/genesis/3-23.htm) 所以耶和华上帝将他从伊甸园流放，去劳作他被取自的地面。
 
-[^4-11]: [创1:26](https://biblehub.com/genesis/1-26.htm) 然后上帝说：“让我们照我们的形象，照我们的样子制造人类，以致他们能统治海里的鱼，天空的鸟，统治牲畜和所有野兽，并统治所有在地面活动的受造物。” [28](https://biblehub.com/genesis/1-28.htm) 上帝祝福他们并对他们说：“要富有果实，并在数目上增长；充满大地并制伏它。统治海中的鱼，天上的鸟，并统治在地面活动的每一个活物。”
+[^4-11]: [创1:26](https://biblehub.com/genesis/1-26.htm) 然后上帝说：“让我们依我们的形象，照我们的样子制造人，以统治海里的鱼和空中的鸟，统治牲畜，并统治全地本身以及每个在其上爬行的生物。” [28](https://biblehub.com/genesis/1-28.htm) 上帝祝福他们并对他们说：“要富有果实并倍增，而充满大地并制伏它；统治海里的鱼、空中的鸟、以及在地上爬行的每个生物。”
 
 <center><a href="https://zhao-bob.github.io/WCF/chapter3">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter5">下一章</a></center>
