@@ -10,11 +10,14 @@ Of Providence
 
 上帝，万物的伟大造物主，确实高举[^5-1]、指引、处置并治理所有受造物、行为和事物[^5-2]，从最大的甚至到最小的[^5-3]，由祂至智和至圣的神意[^5-4]，按祂无谬的预知[^5-5]，以及祂自身意志自由而不变的密旨[^5-6]，为赞美祂智慧，大能、公义、善良和宽恕的荣耀[^5-7]。
 
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 上帝的神意与创造都源自祂永恒的预旨，如本章第二节所述，预旨是万物的第一因，而神意则是第二因，因此上帝的神意并非绝对不变，所以自由与不变在这里形成了一种统一。</font>
+
 [^5-1]: [来1:3](https://biblehub.com/hebrews/1-3.htm) 圣子是上帝荣耀的光辉，是祂存有的精确表征，由祂大能的圣言维持万物。在祂已为罪恶提供净化之后，祂定坐在了天国中至威者的右手边。
 
-[^5-2]: [但4:34](https://biblehub.com/daniel/4-34.htm) 在那时间的末了，我，尼布甲尼撒，朝天国举目，而我的理智被恢复了。于是我赞美至高者；我尊敬并荣耀永远活着的祂。祂的统治是永恒的统治；祂的国度存续世世代代。 [35](https://biblehub.com/daniel/4-35.htm) 地上万族都被当作无物。祂随心所欲地用天国的能天使和地上的列族。没有人能拦住祂的手或对祂说：“祢已做什么？” [诗135:6](https://biblehub.com/psalms/135-6.htm) 耶和华在诸天中和在地上、在海里和它们的所有深处，做无论什么使他愿意的事。 [徒17:25](https://biblehub.com/acts/17-25.htm) 而且祂不被人手侍奉，仿佛祂需要任何东西。相反，祂本身赐给每个人生命与呼吸以及其他一切。 [26](https://biblehub.com/acts/17-26.htm) 祂从一人制造了万邦，使他们会居住在全地上；祂标明了历史上他们指定的时间和他们土地的疆界。 [27](https://biblehub.com/acts/17-27.htm) 上帝做这以使他们会寻求他，而也许会向他伸手并找到他，尽管他离我们任何人都不远。 [28](https://biblehub.com/acts/17-27.htm) 因为在祂里面我们生活、活动并拥有我们的存有’。如你们自己的一些诗人说过，‘我们是祂的后代。’ [伯38](https://biblehub.com/niv/job/38.htm)，[39](https://biblehub.com/niv/job/39.htm)，[40](https://biblehub.com/niv/job/40.htm)，[41](https://biblehub.com/niv/job/41.htm)。
+[^5-2]: [但4:34](https://biblehub.com/daniel/4-34.htm) 在那时间的末了，我，尼布甲尼撒，朝天国举目，而我的理智被恢复了。于是我赞美至高者；我尊敬并荣耀永远存活的祂。祂的统治是永恒的统治；祂的国度存续世世代代。 [35](https://biblehub.com/daniel/4-35.htm) 地上万族都被当作无物。祂随心所欲地用天国的能天使和地上的列族。没有人能拦住祂的手或对祂说：“祢已做什么？” [诗135:6](https://biblehub.com/psalms/135-6.htm) 耶和华在诸天中和在地上、在海里和它们的所有深处，做无论什么使祂愿意的事。 [徒17:25](https://biblehub.com/acts/17-25.htm) 而且祂不被人手侍奉，仿佛祂需要任何东西。相反，祂本身赐给每个人生命与呼吸以及其他一切。 [26](https://biblehub.com/acts/17-26.htm) 祂从一人制造了万邦，使他们必居住在全地上；祂标明了他们被指定的时期和他们土地的疆界。 [27](https://biblehub.com/acts/17-27.htm) 上帝做这以使他们会寻求祂，而也许会向祂伸手并找到祂，尽管祂离我们任何人都不远。 [28](https://biblehub.com/acts/17-27.htm) 因为在祂里面我们生活、活动并拥有我们的存有’。如你们自身的一些诗人说过，‘我们是祂的后代。’ [伯38](https://biblehub.com/niv/job/38.htm)，[39](https://biblehub.com/niv/job/39.htm)，[40](https://biblehub.com/niv/job/40.htm)，[41](https://biblehub.com/niv/job/41.htm)。
 
-[^5-3]: [太10:29](https://biblehub.com/matthew/10-29.htm) 两只麻雀不是卖一分钱吗？但它们没有一个会坠落在地面上，在祢圣父的护理外面。 [30](https://biblehub.com/matthew/10-30.htm) 而甚至你们那头发都被数过。 [31](https://biblehub.com/matthew/10-31.htm) 所以不要害怕；你们比许多麻雀更有价值。
+[^5-3]: [太10:29](https://biblehub.com/matthew/10-29.htm) 两只麻雀不是卖一分钱吗？但它们没有一个会坠落在地面上，在你圣父的护理外面。 [30](https://biblehub.com/matthew/10-30.htm) 而甚至你们那头发都被数过。 [31](https://biblehub.com/matthew/10-31.htm) 所以不要害怕；你们比许多麻雀更有价值。
 
 [^5-4]: [箴15:3](https://biblehub.com/proverbs/15-3.htm) 耶和华的眼睛无处不在，监察恶人和善人。 [诗104:24](https://biblehub.com/psalms/104-24.htm) 耶和华，祢的杰作何其多！祢在智慧中制造了他们所有；大地充满祢的受造物。 [145:17](https://biblehub.com/psalms/145-17.htm) 耶和华在祂所有道路上是正义的，在祂做的所有上是信实的。
 
