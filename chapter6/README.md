@@ -49,6 +49,9 @@ Of the Fall of Man, of Sin, and the Punishment thereof
 
 从这种原初的败坏中---我们由此十足地对所有善嫌恶，失能，并与之作对[^6-7]，且全然倾向于所有恶[^6-8]---确实发出所有现行的违犯[^6-9]。
 
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 本条是对全然败坏的注解。罪恶一方面是源自于始祖的原罪，这是根植于我们内心的败坏，是我们犯罪的动机；另一方面是我们所犯下的实实在在的恶，这是现行的罪恶。</font>
+
 [^6-7]: [罗5:6](https://biblehub.com/romans/5-6.htm) 你们看到，恰好在正确的时间，当我们仍然无能为力时，基督为悖逆神的人而死。 [8:7](https://biblehub.com/romans/8-7.htm) 被肉体支配的心灵与上帝为敌；它即不服从上帝的律法，也不能如此做。 [7:18](https://biblehub.com/romans/7-18.htm) 因为我知道，善本身并不栖居在我里面，也就是，在我罪恶的本性里。因为我有做那善事的渴望，但我不能将其实行。 [西1:21](https://biblehub.com/colossians/1-21.htm) 曾经因为你们的邪恶习性，你们与上帝疏离，而在你们心灵中敌对。
 
 [^6-8]: [创6:5](https://biblehub.com/genesis/6-5.htm) 耶和华看到人类种族在地上的邪恶已变得多么巨大，而无时无刻人类内心思想的每个倾向尽都是恶的。 [8:21](https://biblehub.com/genesis/8-21.htm) 耶和华闻到那愉悦的芬芳，就在内心说：“我绝不再次会因为人类而咒诅地面，即使人类内心的每个倾向从童年起就是邪恶的。而我绝不再次如我已做的那样摧毁所有的活物。 [罗3:10](https://biblehub.com/romans/3-10.htm) 如经上所记：“无人正义，甚至一个也没有； [11](https://biblehub.com/romans/3-11.htm) 无人领悟；无人寻求上帝。 [12](https://biblehub.com/romans/3-12.htm) 所有人都已转身离开，他们已一起变得毫无价值；无人行善，甚至一个也没有。”
