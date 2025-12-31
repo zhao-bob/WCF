@@ -73,7 +73,10 @@ Of the Fall of Man, of Sin, and the Punishment thereof
 
 > Every sin, both original and actual, being a transgression of the righteous law of God, and contrary thereunto, does in its own nature, bring guilt upon the sinner, whereby he is bound over to the wrath of God, and curse of the law, and so made subject to death, with all miseries spiritual, temporal, and eternal.
 
-每个罪恶，原初的和现行的，兼是上帝正义律法的一种违犯，并且与之相悖[^6-12]，在它自身本性中，确实给罪人带来罪行[^6-13]，由此他被具保于上帝的忿怒[^6-14]，和律法的咒诅[^6-15]，并因此受制于死亡[^6-16]，受所有属灵的[^6-17]，属世的[^6-18]，和永恒的痛苦[^6-19]。
+每个罪恶，原初的和现行的，皆是上帝正义律法的一种违犯，并且与之相悖[^6-12]，在它自身本性中，确实给罪人带来罪行[^6-13]，由此他被具保于上帝的忿怒[^6-14]，和律法的咒诅[^6-15]，并因此受制于死亡[^6-16]，受所有属灵的[^6-17]，属世的[^6-18]，和永恒的痛苦[^6-19]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 罪恶带来死亡，与人重生或非重生无关。所以并非基督徒犯罪就不会受罚，而可以为所欲为。相反，基督徒犯罪所致的惩罚甚至更重、更严厉---在属世的日子，他的良心会控告他自己。</font>
 
 [^6-12]: [约壹3:4](https://biblehub.com/1_john/3-4.htm) 每一个犯罪的，都破坏律法；事实上，罪恶是不守律法。
 
@@ -87,7 +90,7 @@ Of the Fall of Man, of Sin, and the Punishment thereof
 
 [^6-17]: [弗4:18](https://biblehub.com/ephesians/4-18.htm) 他们在领悟上变暗，而因为在他们里面由他们内心刚硬而引起的无知，与上帝的生命分离。
 
-[^6-18]: [罗8:20](https://biblehub.com/romans/8-20.htm) 因为此造物易受挫败，不是由它自身的抉择，而是由使它顺从的那一位的意志，在希望中 [哀3:39](https://biblehub.com/lamentations/3-39.htm) 生者为何该在为他们的罪被惩罚时抱怨呢？
+[^6-18]: [罗8:20](https://biblehub.com/romans/8-20.htm) 因为此造物易受挫败，不是由它自身的抉择，而是由使它顺从的那一位的意志，在希望中 [哀3:39](https://biblehub.com/lamentations/3-39.htm) 凡人为何要在他们的罪被惩罚时抱怨呢？
 
 [^6-19]: [太25:41](https://biblehub.com/matthew/25-41.htm) “然后祂会对那些在祂左边的人说：‘你们被咒诅的人，从我离去，到为魔鬼和它的使者们预备的永火中去。 [帖后1:9](https://biblehub.com/2_thessalonians/1-9.htm) 他们将被以永远毁灭惩罚，而被排斥在主的临在和祂权能荣耀之外
 
