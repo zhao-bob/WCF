@@ -34,9 +34,12 @@ Of God's Covenant with Man
 
 > Man, by his fall, having made himself incapable of life by that covenant, the Lord was pleased to make a second, commonly called the covenant of grace; wherein He freely offers unto sinners life and salvation by Jesus Christ; requiring of them faith in Him, that they may be saved, and promising to give unto all those that are ordained unto eternal life His Holy Spirit, to make them willing, and able to believe.
 
-人，由他的堕落，已使他自己由那圣约无能生活，主愿意再立一个[^7-5]，通常称为恩典之约；其中祂由耶稣基督白白地向罪人们供应生命和拯救；要求他们以祂为信心，以使他们能被拯救[^7-6]，并应许将祂的圣灵赐给所有那些被按立为永生的人，使他们甘愿并能够相信[^7-7]。
+人，由他的堕落，已使他自己由那圣约无能有生命，主愿意再立一个[^7-5]，通常称为恩典之约；其中祂由耶稣基督白白地向罪人们供应生命和拯救；要求他们以祂为信心，以使他们能被拯救[^7-6]，并应许将祂的圣灵赐给所有那些被按立为永生的人，使他们甘愿并能够相信[^7-7]。
 
-[^7-5]: [加3:21](https://biblehub.com/galatians/3-21.htm) 因此，律法是与上帝的应许相对吗？绝对不是！因为假使一种律法被赐予而能赋予生命，那么正义肯定就会由律法而来。 [罗8:3](https://biblehub.com/romans/8-3.htm) 对律法无能为力去做的事---因为它被肉体削弱了---上帝由差派祂自身的儿子以罪恶肉体的样子作为赎罪祭做了。而所以祂对在肉体中的罪恶定了罪， [3:20](https://biblehub.com/romans/3-20.htm) 因此，在上帝的视域中，无人会由律法的功劳而被宣告为义；相反，藉着律法，我们觉知到我们的罪恶。 [21](https://biblehub.com/romans/3-21.htm) 但现在除去律法，上帝的正义已经被揭晓了，律法和众先知也向它作证。 [创3:15](https://biblehub.com/genesis/3-15.htm) 而我会在你和那女人之间，并在你的孩子和她的孩子之间结仇。他会击碎你的头，而你会打伤他的脚跟。 [赛42:6](https://biblehub.com/isaiah/42-6.htm) “我，耶和华，已在正义中召唤祢；我会抓住祢的手。我会保持祢，而会使祢成为一个为子民的圣约和一束为外邦人的光，
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 人的犯罪背弃第一圣约，而使人与上帝隔离，无能行出善，致使人失去了生命力，死亡成为他的主宰。上帝拯救人的第二个圣约是恩典之约，是源自耶稣基督的，惟有从祂那里才能得到生命，这一圣约从亚伯向祂献上头生的羔羊开始，这是基督的预表。</font>
+
+[^7-5]: [加3:21](https://biblehub.com/galatians/3-21.htm) 因此，律法是与上帝的应许相对吗？绝对不是！因为假使一种律法被赐予而能赋予生命，那么正义肯定就会由律法而来。 [罗8:3](https://biblehub.com/romans/8-3.htm) 对律法无能为力去做的事---因为它被肉体削弱了---上帝由差派祂自身的儿子以罪恶肉体的样子作为赎罪祭做了。而所以祂对肉体中的罪恶定了罪， [3:20](https://biblehub.com/romans/3-20.htm) 因此，在上帝的视域中，无人会由律法的功劳而被宣告为义；相反，藉着律法，我们觉知到我们的罪恶。 [21](https://biblehub.com/romans/3-21.htm) 但现在除去律法，上帝的正义已经被揭晓了，律法和众先知也向它作证。 [创3:15](https://biblehub.com/genesis/3-15.htm) 而我会在你和那女人之间，并在你的孩子和她的孩子之间结仇。他会击碎你的头，而你会打伤他的脚跟。 [赛42:6](https://biblehub.com/isaiah/42-6.htm) “我，耶和华，已在正义中召唤祢；我会抓住祢的手。我会保持祢，而会使祢成为一个为子民的圣约和一束为外邦人的光，
 
 [^7-6]: [可16:15](https://biblehub.com/mark/16-15.htm) 祂对他们说：“走进全世界，并把福音传讲给所有造物。 [16](https://biblehub.com/mark/16-16.htm) 无论谁相信并受洗会被拯救，但无论谁不相信会被定罪。 [约3:16](https://biblehub.com/john/3-16.htm) 因为上帝如此爱这世界，以致祂将祂的独生子献出，以致无论谁信仰祂非但不会灭亡，而且拥有永生。 [约3:16](https://biblehub.com/john/3-16.htm) 因为上帝如此爱这世界，以致祂将祂的独生子献出，以致无论谁信仰祂非但不会灭亡，而且拥有永生。 [罗10:6](https://biblehub.com/romans/10-6.htm) 但靠着信心的正义说：“不要在你内心说：‘谁要升高入天国？’”（即，将基督带下来） [9](https://biblehub.com/romans/10-9.htm) 如果你用你的口宣告“耶稣是主”，并在你的内心相信上帝从死人将祂苏醒了，你就会被拯救。 [加3:11](https://biblehub.com/galatians/3-11.htm) 清楚地，无人依靠律法在上帝面前被称义，因为“义人将以信心为生”。
 
