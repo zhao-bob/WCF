@@ -37,7 +37,7 @@ Of God's Covenant with Man
 人，由他的堕落，已使他自己由那圣约无能有生命，主愿意再立一个[^7-5]，通常称为恩典之约；其中祂由耶稣基督白白地向罪人们供应生命和拯救；要求他们以祂为信心，以使他们能被拯救[^7-6]，并应许将祂的圣灵赐给所有那些被按立为永生的人，使他们甘愿并能够相信[^7-7]。
 
 <font color=blue size=2>译者注：</font>
-<font color=blue size=2>1. 人的犯罪背弃第一圣约，而使人与上帝隔离，无能行出善，致使人失去了生命力，死亡成为他的主宰。上帝拯救人的第二个圣约是恩典之约，是源自耶稣基督的，惟有从祂那里才能得到生命，这一圣约从亚伯向祂献上头生的羔羊开始，这是基督的预表。</font>
+<font color=blue size=2>1. 人的犯罪背弃第一圣约，而使人与上帝隔离，无能行出善，致使人失去了生命力，死亡成为他的主宰。上帝拯救人的第二个圣约是恩典之约，是源自耶稣基督的，惟有从祂那里才能得到生命，这一圣约从亚伯向祂献上头生的羔羊开始（从人的历史而言），这是基督的预表。</font>
 
 [^7-5]: [加3:21](https://biblehub.com/galatians/3-21.htm) 因此，律法是与上帝的应许相对吗？绝对不是！因为假使一种律法被赐予而能赋予生命，那么正义肯定就会由律法而来。 [罗8:3](https://biblehub.com/romans/8-3.htm) 对律法无能为力去做的事---因为它被肉体削弱了---上帝由差派祂自身的儿子以罪恶肉体的样子作为赎罪祭做了。而所以祂对肉体中的罪恶定了罪， [3:20](https://biblehub.com/romans/3-20.htm) 因此，在上帝的视域中，无人会由律法的功劳而被宣告为义；相反，藉着律法，我们觉知到我们的罪恶。 [21](https://biblehub.com/romans/3-21.htm) 但现在除去律法，上帝的正义已经被揭晓了，律法和众先知也向它作证。 [创3:15](https://biblehub.com/genesis/3-15.htm) 而我会在你和那女人之间，并在你的孩子和她的孩子之间结仇。他会击碎你的头，而你会打伤他的脚跟。 [赛42:6](https://biblehub.com/isaiah/42-6.htm) “我，耶和华，已在正义中召唤祢；我会抓住祢的手。我会保持祢，而会使祢成为一个为子民的圣约和一束为外邦人的光，
 
@@ -50,6 +50,9 @@ Of God's Covenant with Man
 > This covenant of grace is frequently set forth in scripture by the name of a testament, in reference to the death of Jesus Christ the Testator, and to the everlasting inheritance, with all things belonging to it, therein bequeathed.
 
 此恩典之约在经书中频繁以遗嘱之名被阐述，指代立遗嘱人耶稣基督的死，以及永久的遗产，与其中被遗赠的、属于它的所有事情一同[^7-8]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. “testament”也可特指“约”，比如新约就是“New Testament”，但其更一般的意义是“遗嘱”，而这也是恩典之约的本质：没有血的流出、没有耶稣基督的死就没有救赎。</font>
 
 [^7-8]: [来9:15](https://biblehub.com/hebrews/9-15.htm) 为此原因，基督是新圣约的中保，以使那些被召唤的人能领受那应许的永恒遗产---现在祂已作为赎金而死，为将他们从在第一个圣约下所犯的罪恶解放。 [16](https://biblehub.com/hebrews/9-16.htm) 就遗愿而言，证明立祂的那位的死亡是必要的， [17](https://biblehub.com/hebrews/9-17.htm) 因为遗愿仅当某人已去世时才见效；在立它的那位活着时，它绝不起效。 [7:22](https://biblehub.com/hebrews/7-22.htm) 因为这个誓言，耶稣已成为更好圣约的保证人。 [路22:20](https://biblehub.com/luke/22-20.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是我血中的新约，为你们被倾倒出来。” [林前11:25](https://biblehub.com/1_corinthians/11-25.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是在我血中新的圣约；每当你们喝它时，都要这样做，以记念我。”
 
