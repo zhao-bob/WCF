@@ -110,11 +110,14 @@ Of Christ the Mediator
 
 > The Lord Jesus, by His perfect obedience, and sacrifice of Himself, which He through the eternal Spirit, once offered up unto God, has fully satisfied the justice of His Father; and purchased, not only reconciliation, but an everlasting inheritance in the kingdom of heaven, for those whom the Father has given unto Him.
 
-主耶稣，由祂完美的顺服和祂自己的献祭，祂藉着永恒的圣灵，一次为上帝奉上，已完全满足祂圣父的公义[^8-34]；并为那些圣父已赐给祂的人，不仅赎取了和解，而且还有一份在天国国度中永久的遗产[^8-35]。
+主耶稣，由祂完美的顺服和祂自己的献祭，祂藉着永恒的圣灵，一次为上帝奉上，已完全满足祂圣父的公义[^8-34]；并为那些圣父已赐给祂的人，不仅赎取了和解，而且还赎取了一份在天国国度中永久的遗产[^8-35]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 主耶稣一次献上就成就了所有，所以祂现在已不在十字架上，而是定坐在圣父上帝的右边。现在在十字架上的应是我们自己，我们该像祂一样将自己献上。</font>
 
 [^8-34]: [罗5:19](https://biblehub.com/romans/5-19.htm) 因为正如借着那一人的忤逆，众人被定成罪人，同样也藉着这一人的顺服，众人将被定成义人。 [来9:14](https://biblehub.com/hebrews/9-14.htm) 祂藉着永恒的圣灵，将祂自己无瑕地对上帝奉上，那么基督的血就将更多地从通往死亡的作为中洗净我们的良心，以致我们能侍奉永活的上帝！ [16](https://biblehub.com/hebrews/9-16.htm) 就遗愿而言，证明立祂的那位的死亡是必要的， [10:14](https://biblehub.com/hebrews/10-14.htm) 因为由独一的献祭，祂已永远臻备那些正变得神圣的人。 [弗5:2](https://biblehub.com/ephesians/5-2.htm) 并行走在爱的道路中，正如基督爱了我们，并作一个为上帝的香甜供品和献祭，为我们献上了祂自己。 [罗3:25](https://biblehub.com/romans/3-25.htm) 上帝将基督赠送作赎罪的献祭，藉着祂的血的流出---来被信心领受。祂做这以显明祂的正义，因为在祂的克制中，祂已留有事先所犯的罪恶未受惩罚--- [26](https://biblehub.com/romans/3-26.htm) 祂做此以在现时显明祂的正义，以至于成为公义，并成为使那些在耶稣中有信心的人称义的那位。
 
-[^8-35]: [但9:24](https://biblehub.com/daniel/9-24.htm) “七十个‘七’为祢的子民和祢的圣城被降旨以结束违犯，终结罪恶，为邪恶赎罪，引进永久正义，封印异象和预言并膏抹至圣所。 [26](https://biblehub.com/daniel/9-26.htm) 在六十二个“七”之后，受膏者将被处死且会一无所有。会到来的统治者的族民将摧毁这城市和这圣殿。末了将如洪水般来到：战争将持续到末了，而荒凉已经被降旨。 [西1:19](https://biblehub.com/colossians/1-19.htm) 因为上帝愿意使祂所有的圆满都栖居在祂里面， [20](https://biblehub.com/colossians/1-20.htm) 并藉着祂使万物与祂自己和解，不管是地上的事物还是天国的事物，由藉着祂流在十字架上的血促成和平。 [弗1:11](https://biblehub.com/ephesians/1-11.htm) 我们也在祂里面被拣选了，是按照祂的计划已被预定的，而祂遵照祂意志的旨意运行出一切， [14](https://biblehub.com/ephesians/1-14.htm) 祂是保障我们遗产的定金，直到那些是上帝财产的人的救赎到来---为祂的荣耀的赞美。 [约17:2](https://biblehub.com/john/17-2.htm) 因为祢准予他在所有族民之上的权威，以使祂能将永生赐给所有那些祢已赐给祂的人。 [来9:12](https://biblehub.com/hebrews/9-12.htm) 祂不借助于山羊和牛犊的血进入；而是祂由祂自身的血进入了至圣地，一次为所有，因此取得永恒的救赎。 [15](https://biblehub.com/hebrews/9-15.htm) 为此原因，基督是新圣约的中保，以使那些被召唤的人能领受那应许的永恒遗产---现在祂已作为赎金而死，为将他们从在第一个圣约下所犯的罪恶解放。
+[^8-35]: [但9:24](https://biblehub.com/daniel/9-24.htm) “七十个‘七’为祢的子民和祢的圣城被降旨以结束违犯，终结罪恶，为邪恶赎罪，引进永久正义，封印异象和预言并膏抹至圣所。 [26](https://biblehub.com/daniel/9-26.htm) 在六十二个“七”之后，受膏者将被处死且会一无所有。会到来的统治者的族民将摧毁这城市和这圣殿。末了将如洪水般来到：战争将持续到末了，而荒凉已经被降旨。 [西1:19](https://biblehub.com/colossians/1-19.htm) 因为上帝愿意使祂所有的圆满都栖居在祂里面， [20](https://biblehub.com/colossians/1-20.htm) 并藉着祂使万物与祂自己和解，不管是地上的事物还是天国的事物，由藉着祂流在十字架上的血促成和平。 [弗1:11](https://biblehub.com/ephesians/1-11.htm) 我们也在祂里面被拣选了，是按照祂的计划已被预定的，而祂遵照祂意志的旨意运行出一切， [14](https://biblehub.com/ephesians/1-14.htm) 祂是保障我们遗产的定金，直到那些是上帝财产的人的救赎到来---为祂的荣耀的赞美。 [约17:2](https://biblehub.com/john/17-2.htm) 因为祢准予祂在所有族民之上的权威，以使祂能将永生赐给所有那些祢已赐给祂的人。 [来9:12](https://biblehub.com/hebrews/9-12.htm) 祂不借助于山羊和牛犊的血进入；而是祂由祂自身的血进入了至圣地，一次为所有，因此取得永恒的救赎。 [15](https://biblehub.com/hebrews/9-15.htm) 为此原因，基督是新圣约的中保，以使那些被召唤的人能领受那应许的永恒遗产---现在祂已作为赎金而死，为将他们从在第一个圣约下所犯的罪恶解放。
 
 ## 8.6
 
