@@ -123,7 +123,10 @@ Of Christ the Mediator
 
 > Although the work of redemption was not actually wrought by Christ till after His incarnation, yet the virtue, efficacy, and benefits thereof were communicated unto the elect, in all ages successively from the beginning of the world, in and by those promises, types, and sacrifices, wherein He was revealed, and signified to be the seed of the woman which should bruise the serpent's head; and the Lamb slain from the beginning of the world; being yesterday and today the same, and forever.
 
-虽然救赎工作没有实际上被基督运行直到祂言成肉身之后，但其中德性、效力和益处，从世界的起初在所有时代中相继地被交通给了选民，祂在那些应许、预表和献祭中，并被它们启示，并被表示为要击伤大蛇的头的女人的苗裔；和从世界的起初被残杀的羔羊；昨天和今天且永远是一样的[^8-36]。
+虽然救赎工作没有实际上被基督运行直到祂言成肉身之后，但其中德性、效力和益处，从世界的起初在所有时代中相继地被交通给了选民，祂在那些应许、预表和献祭中，并在其中被它们启示，并被表示为要击伤大蛇的头的女人的苗裔；以及从世界的起初被残杀的羔羊；昨天和今天且永远是一样的[^8-36]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 主耶稣是言成肉身的圣子，但祂并不受限于时间，因此并不是说在耶稣基督未降生前圣子不存在（基督教在犹太教之前），更不存在“上帝已死”的谎言。</font>
 
 [^8-36]: [加4:4](https://biblehub.com/galatians/4-4.htm) 但当设定的时间已完全来到，上帝差派了祂的圣子，由一个女人所生，生在律法之下， [5](https://biblehub.com/galatians/4-5.htm) 为救赎那些在律法之下的人，以使我们能为儿子名分领受收养。 [创3:15](https://biblehub.com/genesis/3-15.htm) 而我会在你和那女人之间，并在你的孩子和她的孩子之间结仇。他会击碎你的头，而你会打伤他的脚跟。 [启13:8](https://biblehub.com/revelation/13-8.htm) 地上所有的居民都会敬拜这猛兽---所有那些名字未曾被写在羔羊的生命书上的，而这羔羊是从世界创造就被残杀的。 [来13:8](https://biblehub.com/hebrews/13-8.htm) 耶稣基督昨天和今天且永远是一样的。
 
