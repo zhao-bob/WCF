@@ -27,7 +27,7 @@ Of Christ the Mediator
 
 [^8-7]: [徒17:31](https://biblehub.com/acts/17-31.htm) 因为祂已设定一天，那时祂将由祂已指定的那人以公义审判世界。祂对此已通过将祂从死人苏醒向每个人给出证明。
 
-[^8-8]: [约17:6](https://biblehub.com/john/17-6.htm) “我已将祢启示给那些祢出自世界赐给我的人。他们是祢的；祢将他们赐给了我，而他们已遵守祢的圣言。 [诗22:30](https://biblehub.com/psalms/22-30.htm) 后裔将侍奉祂；他们会将主宣告给一个新世代。 [赛53:10](https://biblehub.com/isaiah/53-10.htm) 然而是耶和华的意志要击碎祂，导致祂受难，而尽管耶和华使祂的生命成为罪恶的一个供品，祂会看到祂的后嗣并延长祂的日子，并且耶和华的意志要在祂手中兴旺。
+[^8-8]: [约17:6](https://biblehub.com/john/17-6.htm) “我已将祢启示给那些出自世界祢赐给我的人。他们是祢的；祢将他们赐给了我，而他们已遵守祢的言。 [诗22:30](https://biblehub.com/psalms/22-30.htm) 后裔将侍奉祂；他们会将主宣告给一个新世代。 [赛53:10](https://biblehub.com/isaiah/53-10.htm) 然而是耶和华的意志要击碎祂，导致祂受难，而尽管耶和华使祂的生命成为罪恶的一个供品，祂会看到祂的后嗣并延长祂的日子，并且耶和华的意志要在祂手中兴旺。
 
 [^8-9]: [提前2:6](https://biblehub.com/1_timothy/2-6.htm) 祂将祂自己作为赎金为所有族民献出。现在这已在适当的时间被目睹。 [赛55:4](https://biblehub.com/isaiah/55-4.htm) 看看，我已使祂成为对万族的证人，万族的统治者和指挥官。 [5](https://biblehub.com/isaiah/55-5.htm) 无疑祢会召集祢不认识的列邦，而不认识祢的列邦会因耶和华祢的上帝，以色列的圣者来奔向祢，因为祂已赠与祢荣耀。 [林前1:30](https://biblehub.com/1_corinthians/1-30.htm) 是因为祂，你们才在基督耶稣里，而祂已为我们成为源自上帝的智慧---即，我们的正义、神圣和救赎。
 
@@ -147,13 +147,16 @@ Of Christ the Mediator
 
 > To all those for whom Christ has purchased redemption, He does certainly and effectually apply and communicate the same; making intercession for them, and revealing unto them, in and by the word, the mysteries of salvation; effectually persuading them by His Spirit to believe and obey, and governing their hearts by His word and Spirit; overcoming all their enemies by His almighty power and wisdom, in such manner, and ways, as are most consonant to His wonderful and unsearchable dispensation.
 
-对所有那些基督已为之赎取救赎的人，祂确实肯定并有效地施用和交通相同的事情[^8-39]；为他们做调解[^8-40]，并在圣言中并由圣言，向他们启示拯救的奥秘[^8-41]；由祂的圣灵有效地说服他们相信和顺服，并由祂的圣言和圣灵治理他们的内心[^8-42]；由祂万军之大能与智慧，胜过他们所有的敌人，以这样的方式，和方法，以致与祂奇妙且不可测的实施至谐[^8-43]。
+对所有那些基督已为之赎取救赎的人，祂确实肯定并有效地施用和交通相同的事情[^8-39]；为他们做调解[^8-40]，并在言中并由这言，向他们启示拯救的奥秘[^8-41]；由祂的圣灵有效地说服他们相信和顺服，并由祂的言和圣灵治理他们的内心[^8-42]；由祂万军之大能与智慧，以这样与祂奇妙且不可测的实施至谐的方式，和方法，胜过他们所有的敌人[^8-43]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. “the word”和“the Word”是不同的，小写的“言”指的是上帝给人的命令和消息，而大写的“圣言”则是圣子本身。</font>
 
 [^8-39]: [约6:37](https://biblehub.com/john/6-37.htm) 所有那些圣父赐给我的人，会到我这里来，而无论谁到我这里来，我绝不会赶走。 [39](https://biblehub.com/john/6-39.htm) 而这是差派我的祂的意志，以使所有那些祂已所赐给我的人我不会遗失一个，而是在末日将他们苏醒。 [10:15](https://biblehub.com/john/10-15.htm) 正如圣父知道我而我知道圣父---而我为羊放下我的生命。 [16](https://biblehub.com/john/10-16.htm) 我还有其他不属于这个羊圈的羊。我也必须带上他们。他们也会听我的话音，且必只有一个羊群和一个牧羊人。
 
 [^8-40]: [约壹2:1](https://biblehub.com/1_john/2-1.htm) 我亲爱的孩子们，我将这写给你们，为使你们不会犯罪。但如果任何人确实犯罪，我们有一位的辩护者与圣父同在---义者耶稣基督。 [2](https://biblehub.com/1_john/2-2.htm) 祂是为我们罪恶的赎罪的献祭，而且不仅为我们的罪恶，也为整个世界的罪恶。 [罗8:34](https://biblehub.com/romans/8-34.htm) 于是谁是定罪的那位？没有人。死了的基督耶稣---不仅如此，祂向生命被苏醒了---在上帝的右手边，并也在为我们做调解。
 
-[^8-41]: [约15:13](https://biblehub.com/john/15-13.htm) 无人有比这更伟大的爱：为一个人的朋友们放下一个人的生命。 [15](https://biblehub.com/john/15-15.htm) 我不再称你们为仆人，因为一个仆人不知道他的主人的业务。取而代之，我已称你们为朋友，因为我从我圣父那学会的一切，我已向你们揭晓。 [弗1:7](https://biblehub.com/ephesians/1-7.htm) 在祂里面，我们藉着祂的血得到救赎，罪恶的饶恕，依照上帝恩典的丰富 [8](https://biblehub.com/ephesians/1-8.htm) 充沛赐予我们。以所有的智慧和理解， [9](https://biblehub.com/ephesians/1-9.htm) 祂按照祂在基督里立定了的祂的美意，向我们揭晓了祂意志的奥秘， [约17:6](https://biblehub.com/john/17-6.htm) “我已将祢启示给那些祢出自世界赐给我的人。他们是祢的；祢将他们赐给了我，而他们已遵守祢的圣言。
+[^8-41]: [约15:13](https://biblehub.com/john/15-13.htm) 无人有比这更伟大的爱：为一个人的朋友们放下一个人的生命。 [15](https://biblehub.com/john/15-15.htm) 我不再称你们为仆人，因为一个仆人不知道他的主人的业务。取而代之，我已称你们为朋友，因为我从我圣父那学会的一切，我已向你们揭晓。 [弗1:7](https://biblehub.com/ephesians/1-7.htm) 在祂里面，我们藉着祂的血得到救赎，罪恶的饶恕，依照上帝恩典的丰富 [8](https://biblehub.com/ephesians/1-8.htm) 充沛赐予我们。以所有的智慧和理解， [9](https://biblehub.com/ephesians/1-9.htm) 祂按照祂在基督里立定了的祂的美意，向我们揭晓了祂意志的奥秘， [约17:6](https://biblehub.com/john/17-6.htm) “我已将祢启示给那些出自世界祢赐给我的人。他们是祢的；祢将他们赐给了我，而他们已遵守祢的言。
 
 [^8-42]: [约14:16](https://biblehub.com/john/14-16.htm) 我会企求圣父，而祂会赐给你们另一位辩护者来帮助你们，并永远与你们同在--- [来12:2](https://biblehub.com/hebrews/12-2.htm) 让我们定睛在耶稣上，祂是信心的先驱者和完美者。为了摆在祂面前的喜乐，祂忍受了十字架，蔑视它的耻辱，并定坐在上帝宝座的右手边。 [林后4:13](https://biblehub.com/2_corinthians/4-13.htm) 经上记着：“我相信了；因此我已讲话。”既然我们有那信心相同的灵，我们也相信而因此讲话， [罗8:9](https://biblehub.com/romans/8-9.htm) 然而，如果上帝的圣灵的确住在你们里面，你们就不是在肉体的辖域中，而是在圣灵的辖域中。如果任何人没有基督的圣灵，他们就不属于基督。 [14](https://biblehub.com/romans/8-14.htm) 因为那些被上帝的圣灵引导的人是上帝的子女。 [15:18](https://biblehub.com/romans/15-18.htm) 除了基督借着我已成就的事，我不会冒昧谈到在由我已说和已完成的带领外邦人顺服上帝上的任何事情--- [19](https://biblehub.com/romans/15-19.htm) 而是由神迹奇事的大能，藉着上帝圣灵的大能。因此，从耶路撒冷一路转到以利哩古，我已充分宣布了基督的福音。 [约17:17](https://biblehub.com/john/17-17.htm) 由真理圣洁他们；祢的圣言是真理。
 
