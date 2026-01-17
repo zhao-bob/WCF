@@ -32,7 +32,11 @@ Of Free Will
 
 > Man, by his fall into a state of sin, has wholly lost all ability of will to any spiritual good accompanying salvation: so as, a natural man, being altogether averse from that good, and dead in sin, is not able, by his own strength, to convert himself, or to prepare himself thereunto.
 
-人，由他堕落进入罪恶的状态中，已全然失去对与拯救相伴的任何属灵的善愿想的所有能力[^9-4]：因此，一个本性的人，完完全全厌弃那善[^9-5]，并死在罪恶中[^9-6]，不能够，由他自身的力量，向此转变他自己，或预备他自己[^9-7]。
+人，由他堕落进入罪恶的状态中，已全然失去对与拯救相伴的任何属灵的善愿想的所有能力[^9-4]：因此，一个本性之人，完完全全厌弃那善[^9-5]，并死在罪恶中[^9-6]，不能够，由他自身的力量，向此转变他自己，或预备他自己[^9-7]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 本性之人“natural man”是指未重生的人，按照人类本性和欲望生活，不接受圣灵的指引。见林前2:14。</font>
+<font color=blue size=2>2. 随着人对上帝的背离而成为魔鬼的奴隶、自由意志就成为了魔鬼的帮凶，人无法依靠自由意志得救。</font>
 
 [^9-4]: [罗5:6](https://biblehub.com/romans/5-6.htm) 你们看到，恰好在正确的时间，当我们仍然无能为力时，基督为悖逆神的人而死。 [8:7](https://biblehub.com/romans/8-7.htm) 被肉体支配的心灵与上帝为敌；它即不服从上帝的律法，也不能如此做。 [约15:5](https://biblehub.com/john/15-5.htm) “我是葡萄树；你们是树枝。如果你们留存在我里面，而我在你们里面，你们就会结许多果实；除去我，你们什么都不能做。
 
@@ -40,7 +44,7 @@ Of Free Will
 
 [^9-6]: [弗2:1](https://biblehub.com/ephesians/2-1.htm) 至于你们，你们在你们的违犯和罪恶中死了， [5](https://biblehub.com/ephesians/2-5.htm) 即使当我们在违犯中死了时，祂使我们与基督一同变活---你们已被拯救是由恩典。 [西2:13](https://biblehub.com/colossians/2-13.htm) 当你们死在你们的罪恶中和在你们未受割礼的肉体中时，上帝使你们与基督一同变活。祂饶恕了我们所有的罪恶，
 
-[^9-7]: [约6:44](https://biblehub.com/john/6-44.htm) “没有人能到我这里来，除非差派我的圣父牵引他们，而我会在末日将他们唤起。 [65](https://biblehub.com/john/6-65.htm) 祂继续说：“这是为什么我告诉过你们，除非圣父已赋能他们，无人能到我这里来。 [弗2:2](https://biblehub.com/ephesians/2-2.htm) 在你们跟随这个世界和空中国度的统治者的道路，以及现在在那些忤逆的人中做工的灵时，你们惯常以此生活。 [3](https://biblehub.com/ephesians/2-3.htm) 我们所有人也都一度生活在它们中间，纵容我们肉体的渴求，并跟随它的欲望和思想。像其余人一样，我们天生就应得忿怒。 [4](https://biblehub.com/ephesians/2-4.htm) 但因为祂为我们的大爱，富于宽恕的上帝， [5](https://biblehub.com/ephesians/2-5.htm) 即使当我们在违犯中死了时，祂使我们与基督一同变活---你们已被拯救是由恩典。 [林前2:14](https://biblehub.com/1_corinthians/2-14.htm) 没有圣灵同在的个体不接受从上帝的圣灵而来的东西，而认为它们愚蠢，且不能理解它们，因为它们惟有藉着圣灵辨别。 [多3:3](https://biblehub.com/titus/3-3.htm) 我们一度也是愚蠢的、忤逆的、被各种情感和欲念欺骗和奴役。我们生活在恶意和忌妒中，被恨并恨着彼此。 [4](https://biblehub.com/titus/3-4.htm) 但当我们的救主上帝的温良和爱显现了时， [5](https://biblehub.com/titus/3-5.htm) 祂拯救了我们，不是因为我们已完成的正义的事情，而是因为祂的宽恕。祂藉着再生的洗涤和由圣灵的更新拯救了我们，
+[^9-7]: [约6:44](https://biblehub.com/john/6-44.htm) “没有人能到我这里来，除非差派我的圣父牵引他们，而我会在末日将他们唤起。 [65](https://biblehub.com/john/6-65.htm) 祂继续说：“这是为什么我告诉过你们，除非圣父已赋能他们，无人能到我这里来。 [弗2:2](https://biblehub.com/ephesians/2-2.htm) 在你们跟随这个世界和空中国度的统治者的道路，以及现在在那些忤逆的人中做工的灵时，你们惯常以此生活。 [3](https://biblehub.com/ephesians/2-3.htm) 我们所有人也都一度生活在它们中间，纵容我们肉体的渴求，并跟随它的欲望和思想。像其余人一样，我们天生就应得忿怒。 [4](https://biblehub.com/ephesians/2-4.htm) 但因为祂为我们的大爱，富于宽恕的上帝， [5](https://biblehub.com/ephesians/2-5.htm) 即使当我们在违犯中死了时，祂使我们与基督一同变活---你们已被拯救是由恩典。 [林前2:14](https://biblehub.com/1_corinthians/2-14.htm) 本性之人不接受从上帝的圣灵而来的东西，而认为它们愚蠢，且不能理解它们，因为它们惟有藉着圣灵辨别。 [多3:3](https://biblehub.com/titus/3-3.htm) 我们一度也是愚蠢的、忤逆的、被各种情感和欲念欺骗和奴役。我们生活在恶意和忌妒中，被恨并恨着彼此。 [4](https://biblehub.com/titus/3-4.htm) 但当我们的救主上帝的温良和爱显现了时， [5](https://biblehub.com/titus/3-5.htm) 祂拯救了我们，不是因为我们已完成的正义的事情，而是因为祂的宽恕。祂藉着再生的洗涤和由圣灵的更新拯救了我们，
 
 ## 9.4
 
