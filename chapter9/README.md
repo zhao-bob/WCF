@@ -35,7 +35,7 @@ Of Free Will
 人，由他堕落进入罪恶的状态中，已全然失去对与拯救相伴的任何属灵的善愿想的所有能力[^9-4]：因此，一个本性之人，完完全全厌弃那善[^9-5]，并死在罪恶中[^9-6]，不能够，由他自身的力量，向此转变他自己，或预备他自己[^9-7]。
 
 <font color=blue size=2>译者注：</font>
-<font color=blue size=2>1. 本性之人“natural man”是指未重生的人，按照人类本性和欲望生活，不接受圣灵的指引。见林前2:14。</font>
+<font color=blue size=2>1. 本性之人“natural man”是指未重生的人，按照人类本性和欲望生活，不受圣灵的指引。见林前2:14。</font>
 <font color=blue size=2>2. 随着人对上帝的背离而成为魔鬼的奴隶、自由意志就成为了魔鬼的帮凶，人无法依靠自由意志得救。</font>
 
 [^9-4]: [罗5:6](https://biblehub.com/romans/5-6.htm) 你们看到，恰好在正确的时间，当我们仍然无能为力时，基督为悖逆神的人而死。 [8:7](https://biblehub.com/romans/8-7.htm) 被肉体支配的心灵与上帝为敌；它即不服从上帝的律法，也不能如此做。 [约15:5](https://biblehub.com/john/15-5.htm) “我是葡萄树；你们是树枝。如果你们留存在我里面，而我在你们里面，你们就会结许多果实；除去我，你们什么都不能做。
@@ -51,6 +51,9 @@ Of Free Will
 > When God converts a sinner, and translates him into the state of grace, He frees him from his natural bondage under sin; and, by His grace alone, enables him freely to will and to do that which is spiritually good; yet so, as that by reason of his remaining corruption, he does not perfectly, or only, will that which is good, but does also will that which is evil.
 
 当上帝使一个罪人转变，并将他转化到恩典的状态中时，祂将他从他在罪恶下的本性捆绑中释放[^9-8]；并且，惟独由祂的恩典，使他有能力自由地去意愿并去做那属灵上善的事[^9-9]；尽管如此，由他留存的败坏的原因，他不是完美地或唯独愿想那善的，而是也愿想那恶的[^9-10]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 恩典状态下的人是指被上帝拣选、受祂恩典被祂召唤、追求并信靠祂的人。这些人在今生并非完美，并在这些人内心中存在着属灵与属体的争战，但倚靠祂最终得神。</font>
 
 [^9-8]: [西1:13](https://biblehub.com/colossians/1-13.htm) 因为祂把我们从黑暗的管辖中营救，并把我们带进祂所爱的儿子的国度中， [约8:34](https://biblehub.com/john/8-34.htm) 耶稣回复：“我实实在在告诉你们，每一个犯罪的，都是罪恶的奴隶。 [36](https://biblehub.com/john/8-36.htm) 所以如果圣子解放你们，你们将真确地自由。
 
