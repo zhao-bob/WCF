@@ -11,8 +11,8 @@ Of Effectual Calling
 所有那些上帝已预定向生的人，且惟有那些，祂愿意在祂指定的时间，有效地召唤他们[^10-1]，由祂的圣言和圣灵[^10-2]，脱离那他们由本性所在的罪恶和死亡的状态，由耶稣基督至于恩典和拯救[^10-3]；属灵地与拯救性地启迪他们的心灵以理解上帝的事情[^10-4]，拿走他们的石心，并赐给他们一颗肉心[^10-5]；更新他们的意志，并，由祂万军之大能，使他们决意向那善的[^10-6]，并有效地将他们牵引向耶稣基督[^10-7]：尽管如此，由于他们被祂的恩典变得甘愿，是至自由地到来[^10-8]。
 
 <font color=blue size=2>译者注：</font>
-<font color=blue size=2>1. 被拣选的人受召唤从罪恶状态进入恩典状态，或者说被召唤是一个被拣选的充分必要条件。</font>
-<font color=blue size=2>2. 被召唤不出自个人的心愿，而完完全全是祂的工作。人在这过程中是被动的，不是主动带着主观目的去靠近祂，而是完完全全被祂降伏，没有任何借口拒绝，而甘心接受祂的召唤。但这种被动是个人自由意志与祂的意志真正的契合，所以不仅没有强迫，反而是自由意志最大的自由。</font>
+<font color=blue size=2>1. 被拣选的人受召唤从罪恶状态进入恩典状态，或者说被召唤是一个被拣选的必要条件。</font>
+<font color=blue size=2>2. 被召唤不出自个人的心愿，而完完全全是祂的工作。人在这过程中是被动的（见本章第二条），不是主动带着主观目的去靠近祂，而是完完全全被祂降伏，没有任何借口拒绝，而甘心接受祂的召唤。但这种被动是个人自由意志与祂的意志真正的契合，所以不仅没有强迫，反而是自由意志最大的自由。</font>
 
 [^10-1]: [罗8:30](https://biblehub.com/romans/8-30.htm) 而那些祂预定了的，祂也召唤了他们；那些祂召唤了的，祂也称了他们为义；那些祂称了为义的，祂也使他们荣耀。 [11:7](https://biblehub.com/romans/11-7.htm) 然后呢？以色列子民如此诚挚寻求的，他们没有得偿。他们之间的选民做到了，但其他人却被刚硬了， [弗1:10](https://biblehub.com/ephesians/1-10.htm) 当这时期达到它们的成全时，就要被生效---以在基督之下，将合一带至天国中和地上的万物。 [11](https://biblehub.com/ephesians/1-11.htm) 我们也在祂里面被拣选了，是按照祂的计划已被预定的，而祂遵照祂意志的旨意运行出一切，
 
@@ -35,6 +35,10 @@ Of Effectual Calling
 > This effectual call is of God's free and special grace alone, not from anything at all foreseen in man, who is altogether passive therein, until, being quickened and renewed by the Holy Spirit, he is thereby enabled to answer this call, and to embrace the grace offered and conveyed in it.
 
 此有效召唤是惟独属于上帝自由和特殊的恩典，根本不源自对人预见的任何东西[^10-9]，人在其中是完完全全被动的，直到，被圣灵复苏并更新[^10-10]，他从而被赋能以响应此召唤，并拥抱在其中供应和传达的恩典[^10-11]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 有效召唤是特殊恩典。太22:14“被召唤的人多，被选上的人少”说明非选民也会被召，但不是有效召唤。只有预定的人才会被圣灵唤醒，并回应此召唤。作为例子，可以对比彼得与犹大，他们都被召唤，但彼得被召唤悔改向永生，但犹大却心硬向永死。</font>
+<font color=blue size=2>2. 恩典与信心都源自上帝，并非个人的作为。我们受召唤的恩典源自祂，我们回应祂的信心也源自祂。所以恩典与信心是并重的，见弗2:8。</font>
 
 [^10-9]: [提后1:9](https://biblehub.com/2_timothy/1-9.htm) 祂已拯救我们，并召唤了我们向神圣的生命---不是因为任何我们已完成的，而是因为祂自身的旨意和恩典。这恩典在时间起初之前在基督耶稣里被赐给了我们， [多3:4](https://biblehub.com/titus/3-4.htm) 但当我们的救主上帝的温良和爱显现了时， [5](https://biblehub.com/titus/3-5.htm) 祂拯救了我们，不是因为我们已完成的正义的事情，而是因为祂的宽恕。祂藉着再生的洗涤和由圣灵的更新拯救了我们， [弗2:4](https://biblehub.com/ephesians/2-4.htm) 但因为祂为我们的大爱，富于宽恕的上帝， [5](https://biblehub.com/ephesians/2-5.htm) 即使当我们在违犯中死了时，祂使我们与基督一同变活---你们已被拯救是由恩典。 [8](https://biblehub.com/ephesians/2-8.htm) 因为你们已被拯救是由恩典，藉着信心---而这不源自你们自己，它是上帝的恩赐--- [9](https://biblehub.com/ephesians/2-9.htm) 不是由功劳，所以无人能夸耀。 [罗9:11](https://biblehub.com/romans/9-11.htm) 然而，在双胞胎出生或已做任何好事或坏事之前---为使上帝在遴选中的旨意能贯彻：
 
