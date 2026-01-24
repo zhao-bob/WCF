@@ -28,7 +28,7 @@ Of Good Works
 
 [^16-6]: [林后9:2](https://biblehub.com/2_corinthians/9-2.htm) 因为我知道你们对帮助的殷切，而我已在向马其顿人对此夸耀，告诉他们，自去年以来，你们在亚该亚就做好了献出的准备；你们的热情已激发他们的大多数来行为。 [太5:16](https://biblehub.com/matthew/5-16.htm) 以同样的方法，让你们的光在别人面前照耀，以使他们看到你们的善迹并荣耀你们在天国的圣父。
 
-[^16-7]: [多2:5](https://biblehub.com/titus/2-5.htm) 要自制而纯洁，要在家忙碌，要温良，并要顺从于她们的丈夫，以致无人会诋毁上帝的言。 [9](https://biblehub.com/titus/2-9.htm) 教导奴仆在一切上顺从他们的主人，设法使他们满意，不要跟他们顶嘴， [10](https://biblehub.com/titus/2-10.htm) 也不要从他们那偷窃，而是要表明他们能被完全信任，以致他们就会在每个方面使关于上帝我们救主的教导有吸引力。 [11](https://biblehub.com/titus/2-11.htm) 因为上帝的恩典已显现，而为所有族民供应拯救。 [12](https://biblehub.com/titus/2-12.htm) 它教导我们对不敬神和世俗的情感说“不”，并在这现在的时代过自制、正直和敬神的生活， [提前6:1](https://biblehub.com/1_timothy/6-1.htm) 所有在奴役轭下的人应认为他们的主人值得充分尊重，以致上帝的名和我们的教导就不能被毁谤。
+[^16-7]: [多2:5](https://biblehub.com/titus/2-5.htm) 要自制而纯洁，要在家忙碌，要良善，并要顺从于她们的丈夫，以致无人会诋毁上帝的言。 [9](https://biblehub.com/titus/2-9.htm) 教导奴仆在一切上顺从他们的主人，设法使他们满意，不要跟他们顶嘴， [10](https://biblehub.com/titus/2-10.htm) 也不要从他们那偷窃，而是要表明他们能被完全信任，以致他们就会在每个方面使关于上帝我们救主的教导有吸引力。 [11](https://biblehub.com/titus/2-11.htm) 因为上帝的恩典已显现，而为所有族民供应拯救。 [12](https://biblehub.com/titus/2-12.htm) 它教导我们对不敬神和世俗的情感说“不”，并在这现在的时代过自制、正直和敬神的生活， [提前6:1](https://biblehub.com/1_timothy/6-1.htm) 所有在奴役轭下的人应认为他们的主人值得充分尊重，以致上帝的名和我们的教导就不能被毁谤。
 
 [^16-8]: [彼前2:15](https://biblehub.com/1_peter/2-15.htm) 因为上帝意志是，你们应该由行善让愚蠢族民无知的言论静默。
 
@@ -68,7 +68,7 @@ Of Good Works
 
 [^16-17]: [路17:10](https://biblehub.com/luke/17-10.htm) 所以，当你们已完成你们被吩咐去做的一切时，你们也应该说：‘我们是不配的仆人；我们仅仅已完成我们的职责。’” 
 
-[^16-18]: [加5:22](https://biblehub.com/galatians/5-22.htm) 但圣灵的果实是爱、喜乐、和平、克制、温良、善良、信实， [23](https://biblehub.com/galatians/5-23.htm) 温柔和自制。没有律法针对这些事情。
+[^16-18]: [加5:22](https://biblehub.com/galatians/5-22.htm) 但圣灵的果实是爱、喜乐、和平、克制、良善、善良、信实， [23](https://biblehub.com/galatians/5-23.htm) 温柔和自制。没有律法针对这些事情。
 
 [^16-19]: [赛64:6](https://biblehub.com/isaiah/64-6.htm) 我们所有人都已变得像那不洁净的人，而我们所有的正义行动都像污秽的破布；我们都皱缩得像一片叶子，而我们的罪恶像风一样将我们清扫。 [加5:17](https://biblehub.com/galatians/5-17.htm) 因为肉体渴望与圣灵相悖的，而圣灵渴望与肉体相悖的。它们相互冲突，以致你们不会做无论任何你们想要的。 [罗7:15](https://biblehub.com/romans/7-15.htm) 我不理解我所做的。因为我想去做的我不做，但我做我所厌恶的。 [18](https://biblehub.com/romans/7-18.htm) 因为我知道，善本身并不栖居在我里面，也就是，在我罪恶的本性里。因为我有做那善事的渴望，但我不能将其实行。 [诗143:2](https://biblehub.com/psalms/143-2.htm) 不要将祢的仆人带入审判，因为活着的无人在祢面前是义的。 [130:3](https://biblehub.com/psalms/130-3.htm) 耶和华啊，如果祢对罪恶做记录，主啊，谁能站立呢？
 
