@@ -89,6 +89,9 @@ Of Justification
 
 在旧约下信徒的称义，在所有这些特点上，与新约下信徒的称义是一个且同一个[^11-17]。
 
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 公义是不变的，因为祂是不变的，“耶稣基督昨天和今天且永远是一样的”，因此称义的准则也是不变的。变化的是时间，在不同的时代上帝的命令和启示是不同的。</font>
+
 [^11-17]: [加3:9](https://biblehub.com/galatians/3-9.htm) 所以那些依靠信心的人与亚伯拉罕---信心之人一道有福。 [13](https://biblehub.com/galatians/3-13.htm) 基督通过为我们成为一个咒诅而把我们从律法的咒诅救赎，因为经上记着：“每个被悬挂在柱子上的，都被咒诅。” [14](https://biblehub.com/galatians/3-14.htm) 祂救赎了我们，为使赐给亚伯拉罕的福分能藉着基督耶稣来到外邦人，以致由信心我们能领受圣灵的应许。 [罗4:22](https://biblehub.com/romans/4-22.htm) 这就是为什么“这作为义被归功于他”。 [23](https://biblehub.com/romans/4-23.htm) “这被归功于他”这言词不是惟独为他记的， [24](https://biblehub.com/romans/4-24.htm) 而且也是为我们，上帝会将正义归功给我们---为我们这些信仰祂将耶稣我们的主从死人苏醒的人。 [来13:8](https://biblehub.com/hebrews/13-8.htm) 耶稣基督昨天和今天且永远是一样的。
 
 <center><a href="https://zhao-bob.github.io/WCF/chapter10">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter12">下一章</a></center>
