@@ -12,7 +12,7 @@ Of Adoption
 
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>1. 被称义的人得到的不仅仅是义这个称号，而且会在耶稣基督里面与上帝圣父建立真实的父子关系，而这样的关系使我们能被救赎直至永生。</font>
-<font color=blue size=2>2. “adoption”被翻直译为“收养”，以区分“sonship”儿子名分这个词。</font>
+<font color=blue size=2>2. “adoption”被直译为“收养”，以区分“sonship”儿子名分这个词。</font>
 
 [^12-1]: [弗1:5](https://biblehub.com/ephesians/1-5.htm) 祂藉着耶稣基督为收养为儿子名分而预定了我们，依照祂的意愿和意志--- [加4:4](https://biblehub.com/galatians/4-4.htm) 但当设定的时间已完全来到，上帝差派了祂的圣子，由一个女人所生，生在律法之下， [5](https://biblehub.com/galatians/4-5.htm) 为救赎那些在律法之下的人，以使我们能为儿子名分领受收养。
 
