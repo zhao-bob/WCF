@@ -63,6 +63,8 @@ Of Repentance unto Life
 > Man ought not to content themselves with a general repentance, but it is every man's duty to endeavour to repent of his particular sins, particularly.
 
 人不应该使他们自己止足于一种通用的悔改，而竭力对他特定的罪恶特定地悔改，是每个人的职责[^15-10]。
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 悔改不是只是口上说对不起，而是要加以行动，附上代价，在圣灵的带领下竭力离弃罪恶。</font>
 
 [^15-10]: [诗19:13](https://biblehub.com/psalms/19-13.htm) 也要使祢的仆人避开故意的罪恶；愿它们不要统治我。于是我就会无可指摘，对巨大的违犯无罪。 [路19:8](https://biblehub.com/luke/19-8.htm) 撒该站起来对主说：“主，看哪！此时此地，我把我个人财产的一半给穷人，而假使我骗取任何人任何东西，我会偿还这数量的四倍。” [提前1:13](https://biblehub.com/1_timothy/1-13.htm) 尽管我曾经是一个渎神者、迫害者和一个暴力的人，但我被展示了宽恕，因为我在无知和不信中行事。 [15](https://biblehub.com/1_timothy/1-15.htm) 这里有一句应得完全悦纳而值得信赖的话：基督耶稣到世界里面来拯救罪人---我是其中最坏的。
 
