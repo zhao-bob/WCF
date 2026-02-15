@@ -48,7 +48,10 @@ Of Good Works
 
 > Their ability to do good works is not at all of themselves, but wholly from the Spirit of Christ. And that they may be enabled thereunto, beside the graces they have already received, there is required an actual influence of the same Holy Spirit, to work in them to will, and to do, of His good pleasure: yet are they not hereupon to grow negligent, as if they were not bound to perform any duty unless upon a special motion of the Spirit; but they ought to be diligent in stirring up the grace of God that is in them. 
 
-他们做善功的能力根本不属于他们自己，而是全然源自基督的圣灵[^16-12]。而为使他们能为此被赋能，除他们早已领受的恩典之外，还需要相同圣灵的实际影响，在他们里面运行，以愿想并去做属于祂的美意[^16-13]：但他们不会随后逐渐变得疏忽，仿佛除非圣灵特殊动念，他们就不具责实行任何职责；而是他们应该勤勉地激发起在他们里面的上帝的恩典[^16-14]。
+他们做善功的能力根本不属于他们自己，而是全然源自基督的圣灵[^16-12]。而为使他们能为此被赋能，除他们早已领受的恩典之外，还需要相同圣灵的实际影响，在他们里面运行，以愿想并去做属于祂的美意[^16-13]：但他们不会因此变得疏忽，仿佛除非圣灵特殊动念，他们就不具责实行任何职责；而是他们应该勤勉地激发起在他们里面的上帝的恩典[^16-14]。
+
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 善功完全出于圣灵的功效，但并非因此就与实施的个体无关。因为圣灵使整个人完完全全改变，而积极向善，而善功只是圣灵的果子之一。</font>
 
 [^16-12]: [约15:4](https://biblehub.com/john/15-4.htm) 留存在我里面，如同我也留存在你们里面。没有树枝能由它自己结果实；它必须留存在葡萄树上。除非你们留存在我里面，否则你们也不能结果实。 [5](https://biblehub.com/john/15-5.htm) “我是葡萄树；你们是树枝。如果你们留存在我里面，而我在你们里面，你们就会结许多果实；除去我，你们什么都不能做。 [6](https://biblehub.com/john/15-6.htm) 如果你们不留存在我里面，你们就像一根被扔掉而枯萎的树枝；这些树枝被捡起来，被扔进火里并被烧掉。 [结36:26](https://biblehub.com/ezekiel/36-26.htm) 我会赐给你们一颗新心，并放置一个新的灵在你们里面；我会从你们中移除你们的石心，并赐给你们一颗肉心。 [27](https://biblehub.com/ezekiel/36-27.htm) 而我会把我的圣灵放置在你们里面，并感动你们以遵循我的预旨，而谨慎保持我的律法。
 
