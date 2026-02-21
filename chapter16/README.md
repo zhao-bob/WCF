@@ -91,9 +91,12 @@ Of Good Works
 
 > Notwithstanding, the persons of believers being accepted through Christ, their good works also are accepted in Him; not as though they were in this life wholly unblamable and unreproveable in God's sight; but that He, looking upon them in His Son, is pleased to accept and reward that which is sincere, although accompanied with many weaknesses and imperfections.
 
-尽管，众信徒个体藉着基督被接受，他们的善行也在祂里面被接受[^16-20]；但不是在上帝视域中他们在此生仿佛是全然无可厚非的且不受指摘的[^16-21]；而是祂在祂儿子里看待他们，愿意接受并赏赐那真诚的，尽管伴随着许多软弱和不完美[^16-22]。
+尽管，众信徒个体藉着基督被接受，他们的善功也在祂里面被接受[^16-20]；但不是在上帝视域中他们在此生仿佛是全然无可厚非的且不受指摘的[^16-21]；而是祂在祂儿子里看待他们，愿意接受并赏赐那真诚的，尽管伴随着许多软弱和不完美[^16-22]。
 
-[^16-20]: [弗1:6](https://biblehub.com/ephesians/1-6.htm) 为赞美祂荣耀的恩典，这是祂在祂所爱的独子中已白白赐给我们的。 [彼前2:5](https://biblehub.com/1_peter/2-5.htm) 你们也像活石一样，正被建到一座属灵的住所中，以成为一个神圣的司祭职，藉着耶稣基督为上帝悦纳的属灵献祭。 [出28:38](https://biblehub.com/exodus/28-38.htm) 它将在亚伦的额头上，而祂将承受以色列人尊崇的奉神的礼物所牵涉的罪行，无论他们的礼物能是什么。它将持续地在亚伦的额头上，以致他们将为耶和华悦纳。 [创4:4](https://biblehub.com/genesis/4-4.htm) 而亚伯也带了一份供品---源自他的羊群的头胎的脂肪部分。耶和华看中了亚伯和他的供品， [来11:4](https://biblehub.com/hebrews/11-4.htm) 由信心，亚伯给上帝带了比该隐更好的供品。由信心，当上帝说他的供品好时，他被举荐为义人。而由信心，亚伯依然说话，即使他死了。
+<font color=blue size=2>译者注：</font>
+<font color=blue size=2>1. 我们不完美的善功会被祂接受，是藉着祂儿子耶稣基督，凭借着信心。</font>
+
+[^16-20]: [弗1:6](https://biblehub.com/ephesians/1-6.htm) 为赞美祂荣耀的恩典，这是祂在祂所爱的独子中已白白赐给我们的。 [彼前2:5](https://biblehub.com/1_peter/2-5.htm) 你们也像活石一样，正被建到一座属灵的住所中，以成为一个神圣的司祭职，藉着耶稣基督为上帝悦纳的属灵献祭。 [出28:38](https://biblehub.com/exodus/28-38.htm) 它将在亚伦的额头上，而他将承受以色列人尊崇的奉神的礼物所牵涉的罪行，无论他们的礼物能是什么。它将持续地在亚伦的额头上，以致他们将为耶和华悦纳。 [创4:4](https://biblehub.com/genesis/4-4.htm) 而亚伯也带了一份供品---源自他的羊群的头胎的脂肪部分。耶和华看中了亚伯和他的供品， [来11:4](https://biblehub.com/hebrews/11-4.htm) 由信心，亚伯给上帝带了比该隐更好的供品。由信心，当上帝说他的供品好时，他被举荐为义人。而由信心，亚伯依然说话，即使他死了。
 
 [^16-21]: [伯9:20](https://biblehub.com/job/9-20.htm) 即使我是无罪的，我的嘴会定我的罪；假使我是无可指摘的，它会宣扬我的罪行。 [诗143:2](https://biblehub.com/psalms/143-2.htm) 不要将祢的仆人带入审判，因为活着的无人在祢面前是义的。
 
