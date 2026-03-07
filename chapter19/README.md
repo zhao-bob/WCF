@@ -44,7 +44,9 @@ Of the Law of God
 
 > To them also, as a body politic, He gave sundry judicial laws, which expired together with the State of that people; not obliging under any now, further than the general equity thereof may require.
 
-对他们，作为一个政治体，祂也赐下各种司法律法，它们与那子民的国家一起到期；现在不责成子民在任何之下，而远超其中通用的公平可能要求的[^19-7]。
+对他们，作为一个政治体，祂也赐下各种司法律法，它们与那子民的国家一起到期；现在不责成子民在任何之下，而超出其中通用的公平可能要求的[^19-7]。
+
+<font color=blue size=2>1. 旧约中具体的司法条例也与旧约的子民一起过期，新约子民不再对其负有义务，但它们中包含着的通用的公平性并未过期，依然是我们进行判断的依据。</font>
 
 [^19-7]: （[出21](https://biblehub.com/niv/exodus/21.htm) - [出22](https://biblehub.com/niv/exodus/22.htm) ） [创49:10](https://biblehub.com/genesis/49-10.htm) 权杖不会背离犹大，统治者的手杖也不会背离他的脚间，直到它所属的祂要来时，而列邦的顺服都将是祂的。 [彼前2:13](https://biblehub.com/1_peter/2-13.htm) 为主的缘故，要使你们自己服从每个人类权威：不管是皇帝---作为最高权威； [14](https://biblehub.com/1_peter/2-14.htm) 还是总督---他们被祂差派来惩罚那些行恶的人，而举荐那些行义的人。 [太5:17](https://biblehub.com/matthew/5-17.htm) “不要以为我已来要废除律法或众先知；我未曾为废除它们而来，而是为成全它们。 [38](https://biblehub.com/matthew/5-38.htm) “你们已听过经上说，‘以眼还眼，以牙还牙。’ [39](https://biblehub.com/matthew/5-39.htm) 但我告诉你们，不要反抗一个邪恶个体。如果任何人掴你的右脸颊，也要把另一边的脸颊转向他们。 [林前9:8](https://biblehub.com/1_corinthians/9-8.htm) 我仅仅以人类权威说这吗？难道律法没说相同的事吗？ [9](https://biblehub.com/1_corinthians/9-9.htm) 因为经上在摩西律法上记着：“公牛在踩谷的时候，不要给它笼嘴。”这是关于上帝所担忧的公牛吗？ [10](https://biblehub.com/1_corinthians/9-10.htm) 无疑祂为我们而说这，不是吗？是的，这是为我们记的，因为无论谁犁地和脱粒，都应该有能力这样做以希望有份于收获。
 
