@@ -42,7 +42,7 @@ Of Assurance of Grace and Salvation
 
 > This infallible assurance does not so belong to the essence of faith, but that a true believer may wait long, and conflict with many difficulties, before he be partaker of it: yet, being enabled by the Spirit to know the things which are freely given him of God, he may, without extraordinary revelation in the right use of ordinary means, attain thereunto. And therefore it is the duty of every one to give all diligence to make his calling and election sure, that thereby his heart may be enlarged in peace and joy in the Holy Ghost, in love and thankfulness to God, and in strength and cheerfulness in the duties of obedience, the proper fruits of this assurance; so far is it from inclining men to looseness.
 
-此无谬的确信并不完全属于信心的本质，但一个真正的信徒在他成为其共享者之前，可能等侯很久，并与许多困难冲突[^18-10]：然而，由圣灵被赋能以知道白白被赐给他的上帝的事情，他可能，不以非凡启示在平凡手段正确的使用中，达成至此[^18-11]。而因此，将所有勤勉献出以让他的召唤和遴选变得确知是每个人的职责[^18-12]，以致因此他的心可能在圣魂中的和平和喜乐上，在对上帝的爱和感谢上，并在顺服的职责中的力量和情愿上被扩充[^18-13]---这些是此确信恰当的果实；所以它远非使人倾向于放纵[^18-14]。
+此无谬的确信并不完全属于信心的本质，但一个真正的信徒在他成为其共享者之前，可能等侯很久，并与许多困难冲突[^18-10]：然而，由圣灵被赋能以知道白白被赐给他的上帝的事情，他可能，不以非凡启示在平凡手段正确的使用中，达成至此[^18-11]。而因此，将所有勤勉献出以让他的召唤和遴选变得确知是每个人的职责[^18-12]，以致因此他的心可能在圣魂中的和平和喜乐上，在对上帝的爱和感谢上，并在顺服的职责中的力量和快乐上被扩充[^18-13]---这些是此确信恰当的果实；所以它远非使人倾向于放纵[^18-14]。
 
 <font color=blue size=2>1. 确信与信心并不完全相同。有信仰的人获得确信而完全心甘情愿地侍奉祂，是需要圣灵的工作的。要尽一切努力确认我们的召唤和遴选。</font>
 

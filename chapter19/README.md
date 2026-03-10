@@ -96,8 +96,12 @@ Of the Law of God
 
 > Neither are the forementioned uses of the law contrary to the grace of the Gospel, but do sweetly comply with it; the Spirit of Christ subduing and enabling the will of man to do that freely, and cheerfully, which the will of God, revealed in the law, requires to be done.
 
-律法前述的使用都不与福音的恩典相悖，而确实甜美地与它依从[^19-21]；基督的圣灵制伏并赋能人的意志以自由地、并情愿地做那，这是律法中被启示的上帝的意志所要求被完成的[^19-22]。
+律法前述的使用都不与福音的恩典相悖，而确实甜美地与它依从[^19-21]；基督的圣灵制伏并赋能人的意志以自由地、并快乐地做那，这是律法中被启示的上帝的意志所要求被完成的[^19-22]。
+
+<font color=blue size=2>1. 律法与恩典并不矛盾。被圣灵降伏而重生的人在圣灵的带领下会心甘情愿地顺服律法，并为其感到快乐。</font>
 
 [^19-21]: [加3:21](https://biblehub.com/galatians/3-21.htm) 因此，律法是与上帝的应许相对吗？绝对不是！因为假使一种律法被赐予而能赋予生命，那么正义肯定就会由律法而来。
 
 [^19-22]: [结36:27](https://biblehub.com/ezekiel/36-27.htm) 而我会把我的圣灵放置在你们里面，并感动你们以遵循我的预旨，而谨慎保持我的律法。 [来8:10](https://biblehub.com/hebrews/8-10.htm) 这是在那时之后我会与以色列子民确立的约，主宣告。我会将我的律法放置在他们的心灵里并将它们刻在他们心上。我会是他们的上帝，而他们会是我的子民。 [耶31:33](https://biblehub.com/jeremiah/31-33.htm) “这是我在那时之后会与以色列子民立的圣约。”耶和华宣告。“我会将我的律法放置在他们的心灵中并将它刻在他们心上。我会是他们的上帝，而他们会是我的子民。”
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter18">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter20">下一章</a></center>
