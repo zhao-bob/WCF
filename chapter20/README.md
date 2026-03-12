@@ -34,9 +34,11 @@ Of Christian Liberty, and Liberty of Conscience
 
 > God alone is Lord of the conscience, and has left it free from the doctrines and commandments of men, which are, in any thing, contrary to His Word; or beside it, in matters of faith, or worship. So that, to believe such doctrines, or to obey such commands, out of conscience, is to betray true liberty of conscience: and the requiring of an implicit faith, and an absolute and blind obedience, is to destroy liberty of conscience, and reason also.
 
-惟独上帝是良心之主[^20-10]，且已使它从那些在任何事情上都与祂的圣言相悖，或在信心或敬拜的事要上与它无关人的教义和诫命中释放[^20-11]。因此，出自良心相信这种教义，或遵守这种命令，就是出卖真正的良心自在[^20-12]：并要求一种隐性的信心，和一种绝对而盲目的顺从，就是摧毁良心以及理性的自在[^20-13]。
+惟独上帝是良心之主[^20-10]，且已使它从那些在任何事情上都与祂的圣言相悖，或在信心或敬拜的事要上与它无关人的教义和诫命中释放[^20-11]。因此，出自良心相信这样的教义，或遵守这样的命令，就是出卖真正的良心自在[^20-12]：而要求一种隐性的信心，和一种绝对而盲目的顺从，也是摧毁良心以及理性的自在[^20-13]。
 
-[^20-10]: [雅4:12](https://biblehub.com/james/4-12.htm) 惟有一位立法者和审判者---有能力拯救和摧毁的那位。可是你---你是谁来审判你的邻人？ [罗14:4](https://biblehub.com/romans/14-4.htm) 你是谁来审判别人的仆人？对他们自身的主人，仆人要么站立，要么倒下。而他们会站立，因为主有能力使他们站立。
+<font color=blue size=2>1. 良心是属基督的，如果我们背弃它，就是对祂的背叛。它不该服从人的传统或命令，而它对祂的服从出自显式的信心，出于对祂的理解。</font>
+
+[^20-10]: [雅4:12](https://biblehub.com/james/4-12.htm) 惟有一位立法者和审判者---有能力拯救和摧毁的那位。可是你---你凭什么来审判你的邻人？ [罗14:4](https://biblehub.com/romans/14-4.htm) 你凭什么来审判别人的仆人？对他们自身的主人，仆人要么站立，要么倒下。而他们会站立，因为主有能力使他们站立。
 
 [^20-11]: [徒4:19](https://biblehub.com/acts/4-19.htm) 但彼得和约翰回复：“在上帝的眼中，哪个是正确的？听从你们，还是他？你们是审判者！ [5:29](https://biblehub.com/acts/5-29.htm) 彼得和其他使徒回复：“我们必须顺服上帝，而不是人类！ [林前7:23](https://biblehub.com/1_corinthians/7-23.htm) 你们是以高价被买来了的；不要成为人类的奴隶。 [太23:8](https://biblehub.com/matthew/23-8.htm) “但你们不该被称为‘拉比’，因为你们只有一位教师，而你们都是兄弟。 [9](https://biblehub.com/matthew/23-9.htm) 而且不要称地上任何人为'父'，因为你们有一位父，而祂在天国中。 [10](https://biblehub.com/matthew/23-10.htm) 你们也不该被称为导师，因为你们有一位导师，弥赛亚。 [林后1:24](https://biblehub.com/2_corinthians/1-24.htm) 并不是我们在你们的信心之上作它的主，而是为你们的喜乐我们与你们同工，因为是由信心你们坚固站立。 [太15:9](https://biblehub.com/matthew/15-9.htm) 他们徒然地敬拜我；他们的教导不过是人类的规则。’”
 
