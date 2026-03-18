@@ -56,7 +56,9 @@ Of Religious Worship, and the Sabbath Day
 
 > Prayer is to be made for things lawful; and for all sorts of men living, or that shall live hereafter: but not for the dead, nor for those of whom it may be known that they have sinned the sin unto death.
 
-祷告是为合法的事情[^21-13]；以及为活着的，或那今后要活的各类人而求[^21-14]：而不是为死人[^21-15]，也不是为那些能尽知他们已犯向死之罪恶的人[^21-16]。
+祷告是为合法的事情[^21-13]；以及为活着的，或那今后要活的各类人而求[^21-14]：而不是为死人[^21-15]，也不是为那些能尽知他们已犯向死之罪的人[^21-16]。
+
+<font color=blue size=2>1. 向死之罪指的是叛教，亵渎圣灵（将上帝的功劳归功于撒旦，故意否认上帝的权能和临在）和对罪恶拒不悔改。</font>
 
 [^21-13]: [约壹5:14](https://biblehub.com/1_john/5-14.htm) 这是我们在接近上帝时拥有的信赖：如果我们按照祂的意志问求任何事情，祂就听见我们。
 
