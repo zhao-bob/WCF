@@ -64,7 +64,9 @@ Of Lawful Oaths and Vows
 
 > A vow is of the like nature with a promissory oath, and ought to be made with the like religious care, and to be performed with the like faithfulness.
 
-誓约与应许性誓言具有同样的本性，而应以同样的宗教护理来被作，并以同样的信实来被实行[^22-13]。
+誓约与应许性誓言具有同样的本性，而应以同样的宗教护理来被起，并以同样的信实来被实行[^22-13]。
+
+<font color=blue size=2>1. 誓约是带承诺或应许的，要同誓言一样来遵行。</font>
 
 [^22-13]: [赛19:21](https://biblehub.com/isaiah/19-21.htm) 所以耶和华会向埃及人揭晓祂自己，而在那日他们会承认耶和华。他们会用献祭和素祭敬拜；他们会向耶和华宣誓，并遵守它们。 [传5:4](https://biblehub.com/ecclesiastes/5-4.htm) 当你向上帝宣誓时，不要耽搁成全它。祂不喜悦愚蠢的人；要成全你的誓约。 [5](https://biblehub.com/ecclesiastes/5-5.htm) 不宣誓好过宣誓而不成全它。 [6](https://biblehub.com/ecclesiastes/5-6.htm) 不要让你的嘴引导你进入罪恶。不要向神殿信使抗议，“我的誓约是一个失误。”为什么上帝会对你说的愤怒，并摧毁你双手的作品呢？ [诗61:8](https://biblehub.com/psalms/61-8.htm) 那时，我将在赞美祢的名中不断歌唱，并日复一日成全我的誓约。 [66:13](https://biblehub.com/psalms/66-13.htm) 我会带着燔祭来到祢的神殿并向祢成全我的誓约--- [14](https://biblehub.com/psalms/66-14.htm) 当我窘困时我嘴唇上承诺的和我口中讲的誓约。
 
