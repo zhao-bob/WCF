@@ -74,7 +74,9 @@ Of Lawful Oaths and Vows
 
 > It is not to be made to any creature, but to God alone: and that it may be accepted, it is to be made voluntarily, out of faith, and conscience of duty, in way of thankfulness for mercy received, or for the obtaining of what we want, whereby we more strictly bind ourselves to necessary duties: or, to other things, so far and so long as they may fitly conduce thereunto.
 
-它不能向任何受造物而被作，而惟独向上帝[^22-14]：而为使它能被接受，它是志愿做出的，出自信心，和职责的良心，以对领受的宽恕，或对我们想要的得偿的感谢的方法，从而我们更严格地将我们自己与必要的职责绑定： 或者，与其他事情，就其而言并只要它们能适宜地导引至此[^22-15]。
+它不能向任何受造物而被起，而惟独向上帝[^22-14]：而为使它能被接受，它是志愿做出的，出自信心，和职责的良心，以对领受的宽恕，或对我们想要的得偿的感谢的方法，从而我们更严格地将我们自己与必要的职责绑定：或者，与其他事情，就其而言并只要它们能适宜地导引至此[^22-15]。
+
+<font color=blue size=2>1. 誓约也惟独向上帝而起，是为了表达我们的感恩、使我们在为祂服侍时更加负责用心。</font>
 
 [^22-14]: [诗76:11](https://biblehub.com/psalms/76-11.htm) 向耶和华你的上帝宣誓，并成全它们；让所有邻近土地的人都将礼物带给要被敬畏的独一位。 [耶44:25](https://biblehub.com/jeremiah/44-25.htm) 这是万军之耶和华，以色列的上帝说的：你们和你们的妻子已完成在你们承诺时你们说的你们要做的事：‘我们肯定会落实我们做的誓约，向天国的皇后烧香和浇酒祭。’“那就去吧，做你们承诺了的！信守你们的誓约！ [26](https://biblehub.com/jeremiah/44-26.htm) 但是你们所有住在埃及的犹太人，请听见耶和华的言词：‘我对我的大名发誓，’耶和华说，‘住在埃及任何地方而来自犹大的，无人会再一次祈求我的名或发誓，“如主宰耶和华永活一样无疑。”
 
