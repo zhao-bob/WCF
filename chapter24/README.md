@@ -10,7 +10,7 @@ Of Marriage and Divorce
 
 婚姻要在一男和一女之间：在相同时间，任何男人有一个以上的妻子，或任何女人有一个以上的丈夫都是不合法的[^24-1]。
 
-<font color=blue size=2>1. 婚姻是限定在一个男人和一个女人之间的关系，上帝将他们结合在一起形成一体。</font>
+<font color=blue size=2>1. 婚姻是限定在一个男人和一个女人之间的关系，上帝将他们结合在一起形成一体。同性婚姻是非法的。</font>
 
 [^24-1]: [创2:24](https://biblehub.com/genesis/2-24.htm) 这是为什么一个男人离开他的父亲和母亲，与他的妻子联合，而他们就成为一体。 [太19:5](https://biblehub.com/matthew/19-5.htm) 并说：‘因这个理由，一个男人会离开他的父亲和母亲并与他的妻子联合，而二者会成为一体’？ [6](https://biblehub.com/matthew/19-6.htm) 所以他们不再是两个，而是一体。因此，上帝已结合在一起的，不让任何人分离。 [箴2:17](https://biblehub.com/proverbs/2-17.htm) 她已离开了她青年的伴侣，并忘记她上帝的圣约。
 
@@ -47,6 +47,8 @@ Of Marriage and Divorce
 > Marriage ought not to be within the degrees of consanguinity or affinity forbidden by the Word. Nor can such incestuous marriages ever be made lawful by any law of man or consent of parties, so as those persons may live together as man and wife. The man may not marry any of his wife's kindred, nearer in blood than he may of his own: nor the woman of her husband's kindred, nearer in blood than of her own.
 
 婚姻不应在被圣言禁止的血缘或亲缘的限度之内[^24-8]。这样乱伦婚姻也永不能由任何人的法律或双方的许可变得合法，以致这些个体能作为男人和妻子生活在一起[^24-9]。男人不能与妻子的在血统上比他自身的能更近的任何亲属结婚：女人也不能与她丈夫的在血统上比她自身的更近的亲属结婚[^24-10]。
+
+<font color=blue size=2>1. 这个时代，不允许近亲结婚，更不用说乱伦。</font>
 
 [^24-8]: （[利18](https://biblehub.com/niv/leviticus/18.htm) ）[林前5:1](https://biblehub.com/1_corinthians/5-1.htm) 竟然据悉你们中间有淫乱，而且甚至是异教徒都不容忍的一类：一个人和他父亲的妻子上床。 [摩2:7](https://biblehub.com/amos/2-7.htm) 他们践踏在穷人的头上，如在地面的尘土上，并且否认对受压迫者的公义。父亲与儿子用同一个女孩而如此污渎我的圣名。
 
