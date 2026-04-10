@@ -64,7 +64,7 @@ Of Marriage and Divorce
 
 <font color=blue size=2>1. 解除婚约的正当情形是犯通奸或私通。通奸（Adultery）是指已婚者的淫乱，而私通（Fornication）是指未婚者的淫乱。总之，婚约之外的性行为都是极大的罪恶。</font>
 
-<font color=blue size=2>2. 合法解除的婚约后，离婚是一种彻底的状态。</font>
+<font color=blue size=2>2. 合法解除的婚约后，离婚是一种彻底的状态。祂结合的无人能分开，而祂分开的无人再能结合。</font>
 
 [^24-11]: [太1:18](https://biblehub.com/matthew/1-18.htm) 这是弥赛亚耶稣的诞生是如何产生的：祂的母亲马利亚被许诺要被嫁给约瑟，但在他们来到一起之前，她被发现藉着圣灵怀孕了。 [19](https://biblehub.com/matthew/1-19.htm) 因为她的丈夫约瑟对律法信实，而未想将她暴露给公众羞耻，所以他有主意要悄悄地与她离婚。 [20](https://biblehub.com/matthew/1-20.htm) 但在他已思虑这之后，主的一位天使在一个梦中向他显现并说：“约瑟大卫的儿子，不要害怕将马利亚取到家为你的妻子，因为在她里面被孕育的源自圣灵。
 
@@ -77,6 +77,8 @@ Of Marriage and Divorce
 > Although the corruption of man be such as is apt to study arguments unduly to put asunder those whom God has joined together in marriage: yet, nothing but adultery, or such wilful desertion as can no way be remedied by the Church, or civil magistrate, is cause sufficient of dissolving the bond of marriage: wherein, a public and orderly course of proceeding is to be observed; and the persons concerned in it not left to their own wills, and discretion, in their own case.
 
 虽然人的败坏如此以致易于不适当地研究论据，以将那些上帝已在婚姻中结合在一起的人拆散：但除了通奸，或那由教会或民事长官没有办法能补救的故意离弃之外，没有任何是解除婚姻纽带的充足理由[^24-14]：其中，应当遵从一种公开、有序的起诉过程；而涉及在其中的个体在他们自身的案件中，不应被放任给他们自身的意志和独裁[^24-15]。
+
+<font color=blue size=2>1. 婚约是一种圣礼，因而离婚不是随意的，不能凭个人的意志而行，否则在祂眼中是极大的恶。</font>
 
 [^24-14]: [太19:8](https://biblehub.com/matthew/19-8.htm) 耶稣回复：“摩西允许你们与你们的妻子离婚，因为你们的心硬。但从起初不是这样的方法。 [太19:9](https://biblehub.com/matthew/19-9.htm) 我告诉你们，任何与妻子离婚的人，除了淫乱之外，而娶另一个女人，就犯通奸罪。” [林前7:15](https://biblehub.com/1_corinthians/7-15.htm) 但如果那不信者离开，就让其这样吧。在这种状况下，兄弟或姐妹不被束缚；上帝已召唤我们生活在和平中。 [太19:6](https://biblehub.com/matthew/19-6.htm) 所以他们不再是两个，而是一体。因此，上帝已结合在一起的，不让任何人分离。
 
