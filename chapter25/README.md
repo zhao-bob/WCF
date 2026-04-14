@@ -48,6 +48,8 @@ Of the Church
 
 此大公教会曾有时更显眼，也曾有时隐蔽[^25-8]。而特定教会，是这其中的成员，其纯洁性依据在它们中教导、拥立福音的教义，施行教仪以及实行公共敬拜的纯洁度的多少，或多或少[^25-9]。
 
+<font color=blue size=2>1. 大公教会的成员并非都是纯洁的。</font>
+
 [^25-8]: [罗11:3](https://biblehub.com/romans/11-3.htm) “主啊，他们已杀死祢的先知，拆毁祢的祭坛；我是唯一一个剩下的，而他们正试图杀我”？ [4](https://biblehub.com/romans/11-4.htm) 而上帝对他的回答是什么？“我已为我自己预留七千人，他们不曾向巴力屈膝。” [启12:6](https://biblehub.com/revelation/12-6.htm) 这女人逃进荒野到一个由上帝为她准备的地方，那里她能被看护1260天。 [14](https://biblehub.com/revelation/12-14.htm) 这女人被赐予巨鹰的两只翅膀，以致她能飞到荒野中为她准备的在大蛇到达范围之外的地方，那里她会被看护一载加二载又半载。
 
 [^25-9]: （[启2](https://biblehub.com/niv/revelation/2.htm)、[3](https://biblehub.com/niv/revelation/3.htm) 全部） [林前5:6](https://biblehub.com/1_corinthians/5-6.htm) 你们的夸耀不好。你们不知道一点酵就能使整批面团发酵吗？ [7](https://biblehub.com/1_corinthians/5-7.htm) 去除旧酵，以使你们能成为一个新的无酵批次---与你们真实的一样。因为基督，我们的逾越节羔羊，已被献祭。
