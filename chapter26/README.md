@@ -24,6 +24,8 @@ Of the Communion of Saints
 
 圣徒由宣信具责维护一个神圣的团契和交契在敬拜上帝中，和在实行那些其他属灵的服侍中，以有助于他们互相教化[^26-4]；也按照他们的多种能力和急需，在外在的事情上相互缓和。当上帝供应机会时，这种交契就要被扩展到所有那些，在任何地方，求靠主耶稣之名的人[^26-5]。
 
+<font color=blue size=2>1. 圣徒在敬拜服侍上帝中相互教化，相互帮助，这种交契不限于时间、空间，而是能扩展到所有信祂的人。</font>
+
 [^26-4]: [来10:24](https://biblehub.com/hebrews/10-24.htm) 而让我们思虑如何能向着爱心和善迹，鞭策彼此。 [25](https://biblehub.com/hebrews/10-25.htm) 不要放弃一起聚会，像有些人习惯于做的，而是彼此鼓励---而当你们看见那一天接近时，愈发如此。 [徒2:42](https://biblehub.com/acts/2-42.htm) 他们将他们自己奉献给使徒们的教导并献给团契，擘饼及祷告。 [46](https://biblehub.com/acts/2-46.htm) 他们每天都持续在神殿院内一起会见。他们在家里擘饼，并怀着高兴和真诚的心一起吃饭。 [赛2:3](https://biblehub.com/isaiah/2-3.htm) 许多人会来并说：“来，让我们上到耶和华的山，到雅各的上帝的神殿。祂会教导我们祂的道，以使我们行在祂的路径上。”律法会从锡安发出，耶和华的言会从耶路撒冷发出。 [林前11:20](https://biblehub.com/1_corinthians/11-20.htm) 所以，那么当你们来到一起时，你们吃的不是主餐，
 
 [^26-5]: [徒2:44](https://biblehub.com/acts/2-44.htm) 所有的信徒都在一起，并共有一切。 [45](https://biblehub.com/acts/2-45.htm) 他们卖了财物和财产，给与任何贫乏的人。 [约壹3:17](https://biblehub.com/1_john/3-17.htm) 如果任何人有物质财产而看见一位弟兄或姊妹贫乏，却不对他们有可怜，上帝的爱怎能在那个人里呢？ （[林后8](https://biblehub.com/niv/2_corinthians/8.htm) 、[9](https://biblehub.com/niv/2_corinthians/9.htm) ） [徒11:29](https://biblehub.com/acts/11-29.htm) 门徒们尽各人所能，决定为住在犹大的弟兄姊妹提供帮助。 [30](https://biblehub.com/acts/11-30.htm) 他们做了这，由巴拿巴和扫罗将他们的礼物送给长老们。
