@@ -52,6 +52,8 @@ Of the Sacraments
 
 在福音中惟有两种由基督我们主按立的圣礼；那就是说，洗礼和主餐：除了由一位合法被按立的圣言牧师外，这两者都不能由任何人实施[^27-10]。
 
+<font color=blue size=2>1. 主按立的圣礼是洗礼和主餐，且只能由合法按立的牧师实施。</font>
+
 [^27-10]: [太28:19](https://biblehub.com/matthew/28-19.htm) 因此去并使万民作我的门徒，奉圣父、圣子和圣灵的名给他们施洗， [林前11:20](https://biblehub.com/1_corinthians/11-20.htm) 所以，那么当你们来到一起时，你们吃的不是主餐， [23](https://biblehub.com/1_corinthians/11-23.htm) 因为我从主领受了的我也传给了你们：主耶稣在祂被出卖的那夜，拿起饼，[4:1](https://biblehub.com/1_corinthians/4-1.htm) 那时，这是你们应该如何待我们的：作为基督的仆人，并作为那些被授信以上帝已启示的奥秘的人。 [来5:4](https://biblehub.com/hebrews/5-4.htm) 而无人自行担当这荣誉，但当被上帝召唤时，祂领受了它，正如亚伦一样。
 
 ## 27.5
