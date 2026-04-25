@@ -62,6 +62,8 @@ Of the Sacraments
 
 旧约圣礼，关于其中所表示和展现的属灵事情，本体上，与新约的那些相同[^27-11]。
 
+<font color=blue size=2>1. 旧约圣礼与新约在本体上相同。</font>
+
 [^27-11]: [林前10:1](https://biblehub.com/1_corinthians/10-1.htm) 弟兄姊妹，因为我不想你们对这事实无知：我们的祖先所有都在那云下，而他们所有人都穿越了那海。 [2](https://biblehub.com/1_corinthians/10-2.htm) 他们所有人都在那云中和那海中受洗归入摩西。 [3](https://biblehub.com/1_corinthians/10-3.htm) 他们都吃了相同的灵粮 [4](https://biblehub.com/1_corinthians/10-4.htm) 并喝相同的灵饮；因为他们以源自相伴他们的灵岩为饮，而那岩石是基督。
 
 <center><a href="https://zhao-bob.github.io/WCF/chapter26">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter28">下一章</a></center>
