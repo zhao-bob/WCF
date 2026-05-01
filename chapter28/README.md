@@ -54,7 +54,7 @@ Of Baptism
 
 不仅那些确实实际宣信对基督的信心和顺服的人[^28-11]，而且一个，或两者都信主的父母的婴儿也要受洗[^28-12]。
 
-<font color=blue size=2>1. 婴儿受洗也是非常重要的。</font>
+<font color=blue size=2>1. 婴儿受洗也是必要的。</font>
 
 [^28-11]: [可16:15](https://biblehub.com/mark/16-15.htm) 祂对他们说：“走进全世界，并把福音传讲给所有造物。 [16](https://biblehub.com/mark/16-16.htm) 无论谁相信并受洗会被拯救，但无论谁不相信会被定罪。 [徒8:37](https://biblehub.com/acts/8-37.htm) 于是腓力说：“如果你用你所有的心相信，你就可以。”他回答并说：“我相信耶稣基督是上帝的儿子。” [38](https://biblehub.com/acts/8-38.htm) 他就下令人停下马车。于是腓力和那阉人都下到水里，腓力就为他施洗。
 
@@ -65,6 +65,8 @@ Of Baptism
 > Although it is a great sin to contemn or neglect this ordinance, yet grace and salvation are not so inseparably annexed unto it, as that no person can be regenerated, or saved, without it: or, that all that are baptized are undoubtedly regenerated.
 
 虽然轻视或忽略此教仪是一种巨大的罪恶[^28-13]，但恩典和拯救不是如此不可分地附属于它，既不是没有它，就无个体能被重生或被拯救[^28-14]：也不是所有受洗的人都毋庸置疑被重生[^28-15]。
+
+<font color=blue size=2>1. 受洗是重生的必要条件，但不是充分条件。</font>
 
 [^28-13]: [路7:30](https://biblehub.com/luke/7-30.htm) 但法利赛人和律法专家们为他们自己拒斥上帝的旨意，因为他们还未曾被约翰施洗。） [出4:24](https://biblehub.com/exodus/4-24.htm) 在路上的一个借宿处里，耶和华会见摩西并将要杀他。 [25](https://biblehub.com/exodus/4-25.htm) 但西坡拉拿一把燧石刀，切下她儿子的包皮并以它摸摩西的脚。“无疑你对我是血的新郎，”她说。 [26](https://biblehub.com/exodus/4-26.htm) 所以耶和华就放他走了。（在那时她说“血的新郎”，是指割礼。）
 
