@@ -92,6 +92,8 @@ Of Baptism
 
 洗礼的圣礼对任何个人只被施行一次[^28-18]。
 
+<font color=blue size=2>1. 洗礼只需要一次。</font>
+
 [^28-18]: [多3:5](https://biblehub.com/titus/3-5.htm) 祂拯救了我们，不是因为我们已完成的正义的事情，而是因为祂的宽恕。祂藉着再生的洗涤和由圣灵的更新拯救了我们，
 
 <center><a href="https://zhao-bob.github.io/WCF/chapter27">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter29">下一章</a></center>
