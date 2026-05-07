@@ -32,7 +32,9 @@ Of the Lord's Supper
 
 > The Lord Jesus has, in this ordinance, appointed His ministers to declare His word of institution to the people, to pray, and bless the elements of bread and wine, and thereby to set them apart from a common to an holy use; and to take and break the bread, to take the cup, and (they communicating also themselves) to give both to the communicants; but to none who are not then present in the congregation.
 
-主耶稣，在此教仪中，已指定祂的牧师们向子民宣告祂的设立之圣言，祷告，并祝福饼和酒的元素，而由此将它们从一种通常用途分别，成为一种神圣用途；而拿起并擘开饼，拿起杯，并（他们也和他们自己交通）把两者都给领圣餐者[^29-5]；但不给任何那时不出席在会众中的人[^29-6]。
+主耶稣，在此教仪中，已指定祂的牧师们向子民宣告祂的设立之圣言，祷告，并祝福饼和酒的元素，而由此将它们从一种通常用途分别，成为一种神圣用途；而拿起并擘开饼，拿起杯，并（他们也自己交通）把两者都给领圣餐者[^29-5]；但不给任何那时不出席在会众中的人[^29-6]。
+
+<font color=blue size=2>1. 主餐中的饼和酒通过祷告、祝福被分别，而从通常用途变为神圣用途，其效力只对在场的人有用。</font>
 
 [^29-5]: [太26:26](https://biblehub.com/matthew/26-26.htm) 他们正在吃的时候，耶稣拿起饼，而当祂献完感谢时，祂擘开它并将它给祂的门徒，说：“拿去吃；这是我的身体。” [27](https://biblehub.com/matthew/26-27.htm) 于是祂拿了一杯，而当祂献完感谢，祂把它给他们，说：“你们所有人，都以它为饮。 [28](https://biblehub.com/matthew/26-28.htm) 这就是我圣约的血，它为罪恶的减免，为许多人被倾倒出来。 [可14:22](https://biblehub.com/mark/14-22.htm) 他们正在吃的时候，耶稣拿起饼，而当祂献完感谢时，祂擘开它并将它给他的门徒，说：“拿去；这是我的身体。” [23](https://biblehub.com/mark/14-23.htm) 然后祂拿了一杯，而当祂献完感谢，祂把它给他们，而他们所有人都以它为饮。 [24](https://biblehub.com/mark/14-24.htm) “这是我圣约的血，为许多人被倾倒出来，”祂对他们说。 [路22:19](https://biblehub.com/luke/22-19.htm) 而祂拿起饼，献了感谢就擘开它，并将它给他们，说：“这是我的身体赐给你们；要如此行以记念我。” [20](https://biblehub.com/luke/22-20.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是我血中的新约，为你们被倾倒出来。” [林前11:23](https://biblehub.com/1_corinthians/11-23.htm) 因为我从主领受了的我也传给了你们：主耶稣在祂被出卖的那夜，拿起饼， [24](https://biblehub.com/1_corinthians/11-24.htm) 而当祂献完感谢时，祂擘开它并说：“这是我的身体，是为你们的；要这样做以记念我。” [25](https://biblehub.com/1_corinthians/11-25.htm) 以同样的方法，晚饭后，祂拿起杯子说：“这杯是在我血中新的圣约；每当你们喝它时，都要这样做，以记念我。” [26](https://biblehub.com/1_corinthians/11-26.htm) 因为无论何时你们吃这饼，喝这杯，你们就宣布主的死，直到祂来。
 
