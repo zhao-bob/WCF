@@ -46,7 +46,7 @@ Of the Lord's Supper
 
 私人弥撒，或独自从一位祭司或任何其他人领受此圣礼[^29-7]；类似地，否决将杯给子民[^29-8]，敬拜这些元素，为爱慕将它们举起，或将它们随身携带，以及为任何假装的宗教用途预留它们；都与这圣礼的本性，和基督的设立相悖[^29-9]。
 
-<font color=blue size=2>1. 主餐必须由多位牧师来施行，不能私自领受；主餐的元素不是敬拜的对象。</font>
+<font color=blue size=2>1. 主餐必须由多位牧师来施行，不能私自施行或领受；主餐的元素不是敬拜的对象。</font>
 
 [^29-7]: [林前10:16](https://biblehub.com/1_corinthians/10-16.htm) 我们为之献出感谢的感恩之杯不是一种对基督的血的参与？而我们擘开的饼不是一种对基督的身体的参与吗？
 
@@ -59,6 +59,8 @@ Of the Lord's Supper
 > The outward elements in this sacrament, duly set apart to the uses ordained by Christ, have such relation to Him crucified, as that, truly, yet sacramentally only, they are sometimes called by the name of the things they represent, to wit, the body and blood of Christ; albeit, in substance and nature, they still remain truly and only bread and wine, as they were before.
 
 此圣礼中的外在元素，适当地被分别为由基督按立的用途，与祂被钉十字架有如此关系，以致真正地，但惟圣礼性地，它们有时被它们表征的事情的名称称呼，即基督的身体和血[^29-10]；纵使如此，在本体和性质上，它们仍然依旧，真正且仅是饼和酒，如它们之前所是[^29-11]。
+
+<font color=blue size=2>1. 主餐的外在元素的本质并不改变，但经过圣礼的分别与基督的身体和血在属灵上紧密关联在一起。我们在身体上领受的是饼与酒，但在灵性上领受的是基督的身体与血。</font>
 
 [^29-10]: [太26:26](https://biblehub.com/matthew/26-26.htm) 他们正在吃的时候，耶稣拿起饼，而当祂献完感谢时，祂擘开它并将它给祂的门徒，说：“拿去吃；这是我的身体。” [27](https://biblehub.com/matthew/26-27.htm) 于是祂拿了一杯，而当祂献完感谢，祂把它给他们，说：“你们所有人，都以它为饮。 [28](https://biblehub.com/matthew/26-28.htm) 这就是我圣约的血，它为罪恶的减免，为许多人被倾倒出来。
 
