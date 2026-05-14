@@ -18,9 +18,11 @@ Of Church Censures
 
 > To these officers the keys of the kingdom of heaven are committed; by virtue whereof, they have power, respectively, to retain, and remit sins; to shut that kingdom against the impenitent, both by the Word, and censures; and to open it unto penitent sinners, by the ministry of the Gospel; and by absolution from censures, as occasion shall require.
 
-天国的钥匙被交托给这些职员；由其中的德性，他们各自有权柄来保有并减免罪恶；既由圣言，也由谴罚对不悔罪者关闭那国度；并在情形应要求时，由福音的事工，和由源自谴罚的赦罪向悔罪的罪人将它打开[^30-2]。
+天国国度的钥匙被交托给这些职员；由其中的德性，他们各自有权柄来保有并减免罪恶；既由圣言，也由谴罚对不悔罪者关闭那国度；并在情形应要求时，由福音的事工，和赦除谴罚将它向悔罪的罪人打开[^30-2]。
 
-[^30-2]: [太16:19](https://biblehub.com/matthew/16-19.htm) 我会将天国国度的钥匙给你；无论你在地上束缚什么，在天国也会被束缚，而无论你在地上松开什么，在天国也会被松开。” [18:17](https://biblehub.com/matthew/18-17.htm) 如果他们仍然拒绝听从，要将其告诉教会；而如果他们甚至拒绝听从教会，你要对待他们如异教徒或税吏一样。 [18](https://biblehub.com/matthew/18-18.htm) “我实在告诉你们，无论你们在地上束缚什么，在天国也将被束缚，无论你们在地上松开什么，在天国也将被松开。 [约20:21](https://biblehub.com/john/20-21.htm) 耶稣再次说：“愿和平与你们同在！如圣父已差派我，我也正在差派你们。” [22](https://biblehub.com/john/20-22.htm) 而与此同时，祂吐息在他们上并说：“领受圣灵。 [23](https://biblehub.com/john/20-23.htm) 如果你们饶恕任何人的罪恶，他们的罪恶就被饶恕；如果你们不饶恕他们，他们就不被饶恕。” [林后2:6](https://biblehub.com/2_corinthians/2-6.htm) 由多数人在他上施加的惩罚是充足的。 [7](https://biblehub.com/2_corinthians/2-7.htm) 现在取而代之，你们该饶恕并安慰他，以致他不会被过度的忧愁压倒。 [8](https://biblehub.com/2_corinthians/2-8.htm) 因此，我敦促你们，以重申你们对他的爱。
+<font color=blue size=2>1. 教会职员有权柄谴罚和赦罪：对不悔改者关闭天国国度，对悔改者打开天国国度。</font>
+
+[^30-2]: [太16:19](https://biblehub.com/matthew/16-19.htm) 我会将天国国度的钥匙给你；无论你在地上束缚什么，在天国也会被束缚，而无论你在地上松开什么，在天国也会被松开。” [18:17](https://biblehub.com/matthew/18-17.htm) 如果他们仍然拒绝听从，要将其告诉教会；而如果他们甚至拒绝听从教会，你要对待他们如异教徒或税吏一样。 [18](https://biblehub.com/matthew/18-18.htm) “我实在告诉你们，无论你们在地上束缚什么，在天国也将被束缚，无论你们在地上松开什么，在天国也将被松开。 [约20:21](https://biblehub.com/john/20-21.htm) 耶稣再次说：“愿和平与你们同在！如圣父已差派我，我也正在差派你们。” [22](https://biblehub.com/john/20-22.htm) 而与此同时，祂吐息在他们上并说：“领受圣灵。 [23](https://biblehub.com/john/20-23.htm) 如果你们饶恕任何人的罪恶，他们的罪恶就被饶恕；如果你们不饶恕他们，他们就不被饶恕。” [林后2:6](https://biblehub.com/2_corinthians/2-6.htm) 由多数人在他身上施加的惩罚是充足的。 [7](https://biblehub.com/2_corinthians/2-7.htm) 现在取而代之，你们该饶恕并安慰他，以致他不会被过度的忧愁压倒。 [8](https://biblehub.com/2_corinthians/2-8.htm) 因此，我敦促你们，以重申你们对他的爱。
 
 ## 30.3
 
