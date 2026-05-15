@@ -30,6 +30,8 @@ Of Church Censures
 
 教会的谴罚是必要的，是为改造并获得犯罪过的弟兄，为制止其他人犯类似的罪过，为清除可能传染整个团块的发酵，为证实基督的尊贵，和福音的神圣宣信，并为防止上帝的忿怒：它可能公正地落在教会上，如果他们要使祂的圣约，及其中的封印，遭受被顽梗昭著的罪犯污渎[^30-3]。
 
+<font color=blue size=2>1. 谴罚是必要的，虽然教会中稗子和麦子一起生长不可避免，但并不意味着要包容罪恶。</font>
+
 [^30-3]: （[林前5全篇](https://biblehub.com/niv/1_corinthians/5.htm)）[提前5:20](https://biblehub.com/1_timothy/5-20.htm) 但那些正在犯罪的长老们，你要在每个人面前责备，以使其他人能引以为戒。 [太7:6](https://biblehub.com/matthew/7-6.htm) “不要将奉神的东西给狗；不要将你们的珍珠扔给猪。如果你们如此，他们可能在他们脚下践踏它们，并转身将你们撕成碎片。 [提前1:20](https://biblehub.com/1_timothy/1-20.htm) 他们中间有许米乃和亚历山大，我已将他们交送给撒旦，以被教导不去渎神。 [林前11:27](https://biblehub.com/1_corinthians/11-27.htm) 因此，无论谁以不配的方式吃主的饼或喝主的杯的，就是犯对主的身体和血犯罪的罪行。 [28](https://biblehub.com/1_corinthians/11-28.htm) 每个人在吃这饼和喝这杯之前都应该审查他们自己。 [29](https://biblehub.com/1_corinthians/11-29.htm) 因为那些不辨别基督的身体吃喝的人，吃喝在他们自己上的审判。 [30](https://biblehub.com/1_corinthians/11-30.htm) 这是为什么你们中许多人软弱患病，并且你们很多都已入睡。 [31](https://biblehub.com/1_corinthians/11-31.htm) 但是假使我们对于我们自己更有辨别力，我们就不会来到这样的审判下。 [32](https://biblehub.com/1_corinthians/11-32.htm) 尽管如此，当我们被主以这种方法审判时，我们是在被规训以致我们不会最终与世界一同被定罪。 [33](https://biblehub.com/1_corinthians/11-33.htm) 那么所以，我的弟兄姊妹，当你们聚集吃饭时，你们应该一起吃。 [34](https://biblehub.com/1_corinthians/11-34.htm) 任何饿了的人应该在家吃些东西，使你们一起会见时，就不会致使评判。而当我来时，我会给出进一步的指引。 [犹1:23](https://biblehub.com/jude/1-23.htm) 通过将其他人从火里抓起以拯救他们；对其他人展示宽恕，混合着畏惧---甚至厌恶被败坏的肉体染色的衣物。
 
 ## 30.4
