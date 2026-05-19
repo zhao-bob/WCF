@@ -50,7 +50,7 @@ Of the Civil Magistrate
 
 <font color=blue size=2>1. 民事长官的信仰并不影响他们的权威，而基督徒应顺从他们的统治。</font>
 
-[^23-8]: [提前2:1](https://biblehub.com/1_timothy/2-1.htm) 于是我敦促，首先，请愿、祷告、调解和感恩要为所有子民来求--- [2](https://biblehub.com/1_timothy/2-2.htm) 为国王和所有那些当权者，以使我们能在所有敬神和神圣中过和平和安静的生活。
+[^23-8]: [提前2:1](https://biblehub.com/1_timothy/2-1.htm) 于是我敦促，首先，请愿、祷告、调解和感恩要为每一个人来求--- [2](https://biblehub.com/1_timothy/2-2.htm) 为国王和所有那些当权者，以使我们能在所有敬神和神圣中过和平和安静的生活。
 
 [^23-9]: [彼前2:17](https://biblehub.com/1_peter/2-17.htm) 要对每个人展示恰当的尊重，爱信徒的家庭，敬畏上帝，尊敬皇帝。
 
