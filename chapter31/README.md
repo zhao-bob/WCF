@@ -40,7 +40,9 @@ Of Synods and Councils
 
 > All synods or councils, since the apostles' times, whether general or particular, may err; and many have erred. Therefore they are not to be made the rule of faith, or practice; but to be used as a help in both.
 
-所有的公会或议会，自使徒时代以来，无论是普遍的还是特定的，都可能错谬；且许多已经错谬。因此，它们不应被作为信心或实践的规则；而应在这两者中作为一种帮助被使用[^31-5]。
+所有公会或议会，自使徒时代以来，无论是普遍的还是特定的，都可能错谬；且许多已经错谬。因此，它们不应被作为信心或实践的规则；而应在这两者中作为一种帮助被使用[^31-5]。
+
+<font color=blue size=2>1. 所有公会和议会都可能存在错误，不是真理本身，只能作为辅助。惟有圣经才是信心或实践的规则。</font>
 
 [^31-5]: [弗2:20](https://biblehub.com/ephesians/2-20.htm) 以基督耶稣祂自己为主奠基石，建造在众使徒和众先知的根基上。 [徒17:11](https://biblehub.com/acts/17-11.htm) 现在庇哩亚犹太人有比帖撒罗尼迦犹太人更高尚的品格，因为他们以很大的殷切领受了消息，并每天都考察圣经，以看保罗说的是否真实。 [林前2:5](https://biblehub.com/1_corinthians/2-5.htm) 以致你们的信心能不安息在人类智慧上，而是在上帝的大能上。 [林后1:24](https://biblehub.com/2_corinthians/1-24.htm) 并不是我们在你们的信心之上作它的主，而是为你们的喜乐我们与你们同工，因为是由信心你们坚固站立。
 
