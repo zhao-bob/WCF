@@ -52,5 +52,9 @@ Of Synods and Councils
 
 公会和议会除那神职性的事情外，不要处理或推断任何事情：而且除非在非凡的案例下，通过谦卑请愿的方式；或者，如果他们被民事长官为此被要求为良心的偿赎，而通过劝告的方式，否则不得干预牵扯其治区的民事事务[^31-6]。
 
+<font color=blue size=2>1. 除非特殊情况，公会和议会不能干涉民事事务。</font>
+
 [^31-6]: [路12:13](https://biblehub.com/luke/12-13.htm) 人群中某人对祂说：“老师，吩咐我兄弟同我分割遗产。”  [14](https://biblehub.com/luke/12-14.htm) 耶稣回复：“男士，谁指定我在你们之间作审判者或仲裁人呢？” [约18:36](https://biblehub.com/john/18-36.htm) 耶稣说：“我的国度不属这世界。假使它是，我的仆人就会为防止我被犹太领袖逮捕而战斗。但现在我的国度源自另一个地方。”
+
+<center><a href="https://zhao-bob.github.io/WCF/chapter30">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a> <a href="https://zhao-bob.github.io/WCF/chapter32">下一章</a></center>
 
