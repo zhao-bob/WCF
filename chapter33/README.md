@@ -1,14 +1,16 @@
-# 第三十二章 论最后的审判
+# 第三十三章 论最后的审判
 
 Of the Last Judgment
 
 <center><a href="https://zhao-bob.github.io/WCF/chapter32">上一章</a><a href="https://zhao-bob.github.io/WCF/">目录</a><a href="https://zhao-bob.github.io/WCF/chapter1">下一章</a></center>
 
-## 32.1
+## 33.1
 
 > God has appointed a day, wherein He will judge the world, in righteousness, by Jesus Christ, to whom all power and judgment is given of the Father. In which day, not only the apostate angels shall be judged, but likewise all persons that have lived upon earth shall appear before the tribunal of Christ, to give an account of their thoughts, words, and deeds; and to receive according to what they have done in the body, whether good or evil.
 
 上帝已指定一天，其间祂将以正义，由耶稣基督，审判世界[^33-1]，所有权柄和审判都自圣父被赐给祂[^33-2]。在那天，不仅叛教的天使们会被审判[^33-3]，而且类似地，已住在地上的所有个体也会显现在基督的裁判所前，为他们的思想、言词，和事迹交账；并按照他们在身体中已完成的，无论善或恶，都要领受[^33-4]。
+
+<font color=blue size=2>1. 最后的审判由耶稣基督来执行，所有的天使和人都要在那一天交账，领受其应当的。</font>
 
 [^33-1]: [徒17:31](https://biblehub.com/acts/17-31.htm) 因为祂已设定一天，那时祂将由祂已指定的那人以公义审判世界。祂对此已通过将祂从死人苏醒向每个人给出证明。
 
@@ -18,7 +20,7 @@ Of the Last Judgment
 
 [^33-4]: [林后5:10](https://biblehub.com/2_corinthians/5-10.htm) 因为我们所有人必须显现在基督的审判席前，以致我们各人能为在身体里时已完成的事情，无论好或坏，领受我们应当的。 [传12:14](https://biblehub.com/ecclesiastes/12-14.htm) 因为上帝会将每个事迹带入审判，包括每个隐藏的事，无论善或恶。 [罗2:16](https://biblehub.com/romans/2-16.htm) 这将在上帝藉着耶稣基督审判族民秘密的那天发生，如我的福音宣告的。 [14:10](https://biblehub.com/romans/14-10.htm) 那么你们，为什么你们评判你们的弟兄或姊妹呢？或者为什么你们以轻蔑对待他们？而我们所有人都会站在上帝的审判席前。 [12](https://biblehub.com/romans/14-12.htm) 所以那时，我们各人会亲自向上帝交账。 [太12:36](https://biblehub.com/matthew/12-36.htm) 但我告诉你们，在审判之日，每个人将不得不为他们说过的每一个空言交账。 [37](https://biblehub.com/matthew/12-37.htm) 因为由你们的言词，你们会被开释，而也由你们的言词你们会被定罪。
 
-## 32.2
+## 33.2
 
 > The end of God's appointing this day is for the manifestation of the glory of His mercy, in the eternal salvation of the elect; and of His justice, in the damnation of the reprobate, who are wicked and disobedient. For then shall the righteous go into everlasting life, and receive that fullness of joy and refreshing, which shall come from the presence of the Lord; but the wicked who know not God, and obey not the Gospel of Jesus Christ, shall be cast into eternal torments, and be punished with everlasting destruction from the presence of the Lord, and from the glory of His power.
 
@@ -26,7 +28,7 @@ Of the Last Judgment
 
 [^33-5]: [太25:31](https://biblehub.com/matthew/25-31.htm) 当人子在祂的荣耀中，并与所有的天使一同来时，祂将坐在祂荣耀的宝座上。 [32](https://biblehub.com/matthew/25-32.htm) 万邦都会被聚集在祂之前，而祂会将子民与另外的分离，如同牧羊人将绵羊从山羊中分离。 [33](https://biblehub.com/matthew/25-33.htm) 祂会将绵羊放置在祂的右边，而将山羊放置在祂的左边。 [34](https://biblehub.com/matthew/25-34.htm) “然后君王会对在祂右边的人说：‘来，你们这些被我的圣父祝福的；取你们的遗产，那自创世以来为你们预备的国度。 [35](https://biblehub.com/matthew/25-35.htm) 因为我饿了，而你们给了我一些东西吃；我渴了，你们就给了我一些东西喝；我是寄居者，你们邀请了我入住。 [36](https://biblehub.com/matthew/25-36.htm) 我需要衣服，你们就穿戴了我；我病了，你们就照看了我；我坐牢了，你们就来探望了我。’ [37](https://biblehub.com/matthew/25-37.htm) “那时义人将回答祂：‘主，我们什么时候看到祢饿了而喂养祢，或什么时候渴了而给祢一些东西喝呢？ [38](https://biblehub.com/matthew/25-38.htm) 我们什么时候看到祢是一位寄居者而邀请祢入住，或者需要衣服并穿戴祢呢？ [39](https://biblehub.com/matthew/25-39.htm) 我们什么时候看到祢生病了，或坐牢，就去探望祢呢？’ [40](https://biblehub.com/matthew/25-40.htm) “君王会回复：‘我实在告诉你们，无论你们为我这些弟兄姊妹中最小的一个做了什么，你们就是为我做了。’ [41](https://biblehub.com/matthew/25-41.htm) “然后祂会对那些在祂左边的人说：‘你们被咒诅的人，从我离去，到为魔鬼和它的使者们预备的永火中去。 [42](https://biblehub.com/matthew/25-42.htm) 因为我饿了而你们什么都不给我吃，我渴了而你们什么都不给我喝， [43](https://biblehub.com/matthew/25-43.htm) 我是一个寄居者而你们不邀请我入住，我需要衣服而你们不穿戴我，我病了和坐牢了而你们不照看我。’ [44](https://biblehub.com/matthew/25-44.htm) “他们也会回答：‘主啊，我们什么时候看到祢饿了、或渴了、或是寄居者、或需要衣服、或病了、或坐牢，而没有帮助祢呢？’ [45](https://biblehub.com/matthew/25-45.htm) “祂会回复：‘我实在告诉你们，无论你们没为这些最小的一个做了什么，你们都没有为我做。’ [46](https://biblehub.com/matthew/25-46.htm) “那时他们会走开受永恒的惩罚，但义人受永生。” [罗2:5](https://biblehub.com/romans/2-5.htm) 但因你们的固执和你们不悔改的心，你们正在对自己为上帝忿怒的那天积蓄忿怒，那时祂正义的审判会被显露。 [6](https://biblehub.com/romans/2-6.htm) 上帝 “会报应各个个体，按照他们已行的”。 [9:22](https://biblehub.com/romans/9-22.htm) 虽然上帝选择表明祂的忿怒并揭晓祂的大能，但倘若祂以极大的耐心承受祂忿怒的对象---为毁灭预备的呢？ [23](https://biblehub.com/romans/9-23.htm) 倘若祂做这以向祂宽恕的对象揭晓祂荣耀的丰富，而祂提前为荣耀预备了他们--- [太25:21](https://biblehub.com/matthew/25-21.htm) “他的主人回复：‘干得好，善良而信实的仆人！你已在少许事上信实；我会让你负责许多事情。过来并分享你主人的幸福！’ [徒3:19](https://biblehub.com/acts/3-19.htm) 那么，要悔改，并转向上帝，以致你们的罪恶能被擦除，而复新的时期能从主而来。 [帖后1:7](https://biblehub.com/2_thessalonians/1-7.htm) 并赐予受烦恼的你们解脱，而对我们也是。这将当主耶稣与祂大能的天使一同在炽烧之火中从天国被显露时发生。 [8](https://biblehub.com/2_thessalonians/1-8.htm) 祂会惩罚那些不知道上帝，并不顺服我们主耶稣福音的人。 [9](https://biblehub.com/2_thessalonians/1-9.htm) 他们将被以永远毁灭惩罚，而被排斥在主的临在和祂权能荣耀之外 [10](https://biblehub.com/2_thessalonians/1-10.htm) 在祂来到以在神圣的子民中被荣耀，并在所有那些已相信的人之间被称奇的那天。这包括你们，因为你们相信了我们对你们的见证。
 
-## 32.3
+## 33.3
 
 > As Christ would have us to be certainly persuaded that there shall be a day of judgment, both to deter all men from sin; and for the greater consolation of the godly in their adversity: so will He have that day unknown to men, that they may shake off all carnal security, and be always watchful, because they know not at what hour the Lord will come; and may be ever prepared to say, Come Lord Jesus, come quickly, Amen.
 
