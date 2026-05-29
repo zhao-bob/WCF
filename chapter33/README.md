@@ -34,7 +34,7 @@ Of the Last Judgment
 
 > As Christ would have us to be certainly persuaded that there shall be a day of judgment, both to deter all men from sin; and for the greater consolation of the godly in their adversity: so will He have that day unknown to men, that they may shake off all carnal security, and be always watchful, because they know not at what hour the Lord will come; and may be ever prepared to say, Come Lord Jesus, come quickly, Amen.
 
-既然基督会使我们肯定被信服必有审判的一天，既为制止所有人犯罪；同时也为敬神者在他们的逆境中更大的安慰[^33-6]：那么祂会使那天不为人知，以使他们能抖落所有肉身的安稳，并总是警醒，因为他们不知道主会在什么时辰来；且能随时准备好说：来主耶稣，快来，阿们[^33-7]。
+既然基督会使我们肯定被信服必有审判的一天，既为制止所有人犯罪；同时也为敬神者在他们的逆境中更大的安慰[^33-6]：那么祂会使那天不为人知，以使他们能抖落所有肉身的安稳，并总是警醒，因为他们不知道主会在什么时辰来；且能随时准备好说：来主耶稣，快来，阿门[^33-7]。
 
 <font color=blue size=2>1. 这一天对我们大有益处，让我们藉着祂为这一天的到来时刻准备好自己。</font>
 
