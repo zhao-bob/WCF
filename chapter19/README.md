@@ -44,7 +44,7 @@ Of the Law of God
 
 > To them also, as a body politic, He gave sundry judicial laws, which expired together with the State of that people; not obliging under any now, further than the general equity thereof may require.
 
-对他们，作为一个政治体，祂也赐下各种司法律法，它们与那子民的国家一起到期；现在不责成子民在任何之下，而超出其中通用的公平可能要求的[^19-7]。
+对他们，作为一个政治体，祂也赐下各种司法律法，它们与那子民的国家一起到期；现在不责成子民在任何之下，超出其中通用的公平可能要求的[^19-7]。
 
 <font color=blue size=2>1. 旧约中具体的司法条例也与旧约的子民一起过期，新约子民不再对其负有义务，但它们中包含着的通用的公平性并未过期，依然是我们进行判断的依据。</font>
 
