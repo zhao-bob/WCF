@@ -24,7 +24,7 @@ Of the Holy Scripture
 
 [^1-3]: [来1:1](https://biblehub.com/hebrews/1-1.htm) 过去上帝藉着众先知在许多时代以多样方法对我们的祖先讲话，
 
-[^1-4]: [箴22:19](https://biblehub.com/proverbs/22-19.htm) 为使你信奉耶和华，我今天教导你，就是你。 [20](https://biblehub.com/1_corinthians/2-13.htm) 我不是已为你写下三十句警句，关于密旨和知识的警句吗？ [21](https://biblehub.com/proverbs/22-21.htm) 教导你要诚实并讲真理，以致你给那些你服侍的人将讲真理的汇报带回？ [路1:3](https://biblehub.com/luke/1-3.htm) 以此在心，由于我亲自从开始就已仔细调查一切，我也决定为你，最杰出的提阿非罗，写一个有序的记述， [4](https://biblehub.com/luke/1-4.htm) 以使你能知道你已被教导的事情的确定性。[罗15:4](https://biblehub.com/romans/15-4.htm) 因为在过去所记的一切被写来教导我们，以致藉着在经书中被教导的忍受和它们提供的鼓励，我们能有希望。 [太4:4](https://biblehub.com/matthew/4-4.htm) 耶稣回答：“经上记着：‘人不应惟独靠干粮生活，而靠来自上帝口中的每句言词。’”  [7](https://biblehub.com/matthew/4-7.htm) 耶稣回答他：“经上也记着：'不要使主你的上帝受试探。’” [10](https://biblehub.com/matthew/4-10.htm) 耶稣对他说：“远离我，撒旦！因为经上记着：‘要敬拜主你们的上帝，并惟独侍奉祂。’” [赛8:19](https://biblehub.com/isaiah/8-19.htm) 当某人吩咐你们请教那些喃喃自语的灵媒和招魂师时，难道一族人不应该询问他们的上帝吗？为什么要为了生者请教死人呢？ [20](https://biblehub.com/isaiah/8-20.htm) 请教上帝的指令和警告的见证，如果任何人不按照这言词讲话，他们就没有黎明之光。
+[^1-4]: [箴22:19](https://biblehub.com/proverbs/22-19.htm) 为使你信奉耶和华，我今天教导你，就是你。 [20](https://biblehub.com/1_corinthians/2-13.htm) 我不是已为你写下三十句警句，关于谋略和知识的警句吗？ [21](https://biblehub.com/proverbs/22-21.htm) 教导你要诚实并讲真理，以致你给那些你服侍的人将讲真理的汇报带回？ [路1:3](https://biblehub.com/luke/1-3.htm) 以此在心，由于我亲自从开始就已仔细调查一切，我也决定为你，最杰出的提阿非罗，写一个有序的记述， [4](https://biblehub.com/luke/1-4.htm) 以使你能知道你已被教导的事情的确定性。[罗15:4](https://biblehub.com/romans/15-4.htm) 因为在过去所记的一切被写来教导我们，以致藉着在经书中被教导的忍受和它们提供的鼓励，我们能有希望。 [太4:4](https://biblehub.com/matthew/4-4.htm) 耶稣回答：“经上记着：‘人不应惟独靠干粮生活，而靠来自上帝口中的每句言词。’”  [7](https://biblehub.com/matthew/4-7.htm) 耶稣回答他：“经上也记着：'不要使主你的上帝受试探。’” [10](https://biblehub.com/matthew/4-10.htm) 耶稣对他说：“远离我，撒旦！因为经上记着：‘要敬拜主你们的上帝，并惟独侍奉祂。’” [赛8:19](https://biblehub.com/isaiah/8-19.htm) 当某人吩咐你们请教那些喃喃自语的灵媒和招魂师时，难道一族人不应该询问他们的上帝吗？为什么要为了生者请教死人呢？ [20](https://biblehub.com/isaiah/8-20.htm) 请教上帝的指令和警告的见证，如果任何人不按照这言词讲话，他们就没有黎明之光。
 
 [^1-5]: [提后3:15](https://biblehub.com/2_timothy/3-15.htm) 而你已知道如何从幼年起就明白圣经，它们能够使你对藉着在基督耶稣中的信心的拯救变得智慧。 [彼后1:19](https://biblehub.com/2_peter/1-19.htm) 我们也有预言性的消息作为完备可靠的重要事情，你们对其专注就会做得好，要像对在黑暗中照耀的一盏灯，直到白昼破晓而晨星在你们内心升起。
 
@@ -233,10 +233,10 @@ Of the Holy Scripture
 
 > The whole counsel of God concerning all things necessary for His own glory, man's salvation, faith and life, is either expressly set down in Scripture, or by good and necessary consequence may be deduced from Scripture: unto which nothing at any time is to be added, whether by new revelations of the Spirit, or traditions of men. Nevertheless, we acknowledge the inward illumination of the Spirit of God to be necessary for the saving understanding of such things as are revealed in the Word and that there are some circumstances concerning the worship of God, and government of the Church, common to human actions and societies, which are to be ordered by the light of nature, and Christian prudence, according to the general rules of the Word, which are always to be observed.
 
-上帝涉及对祂自身的荣耀、人的拯救、信心和生命必要的所有事情的整个密旨，要么在经书中被明确记载，要么能从经书中由切实而必要的结论被推导出：在任何时候都不要对其添加任何东西，无论是由圣灵新的启示，还是人的传统[^1-12]。尽管如此，我们承认上帝的灵的内在光照对于在圣言中被启示的这些事情的拯救性领悟是必要的[^1-13]，而且有些涉及上帝的敬拜和教会的治理的状况与人类行为和社会是共通的，要由本性之光和基督徒的审慎，按照始终要被遵从的圣言的通用规则来被排定[^1-14]。
+上帝涉及对祂自身的荣耀、人的拯救、信心和生命必要的所有事情的整个谋略，要么在经书中被明确记载，要么能从经书中由切实而必要的结论被推导出：在任何时候都不要对其添加任何东西，无论是由圣灵新的启示，还是人的传统[^1-12]。尽管如此，我们承认上帝的灵的内在光照对于在圣言中被启示的这些事情的拯救性领悟是必要的[^1-13]，而且有些涉及上帝的敬拜和教会的治理的状况与人类行为和社会是共通的，要由本性之光和基督徒的审慎，按照始终要被遵从的圣言的通用规则来被排定[^1-14]。
 
 <font color=blue size=2>译者注：</font>
-<font color=blue size=2>1. "counsel"在本文被译为“密旨”，这是上帝至绝对、至奥妙的旨意，而区分于一般的旨意。</font>
+<font color=blue size=2>1. "counsel"在本文被译为“谋略”，这是上帝至绝对、至奥妙的旨意，而区分于一般的旨意。</font>
 <font color=blue size=2>2. 圣经是完备的。因此原则上讲，只有圣经这一本书，我们也只需要这一本书。圣经之外没有真理。但人作为罪人，已死在罪中，即使蒙圣灵重生也因为自身理性受限，往往不能直接理解并接受圣经的真理。因此，我们需要借助其他有纯真信仰的文字，来逐步净化归正我们的心灵。但无论如何，我们必须警醒，任何话语必须以圣经为根据，是圣经的注解。</font>
 <font color=blue size=2>3. 圣经的话语当然应运用于世俗的治理，但基督徒在行使时必须遵从上帝的意志，慎之又慎。</font>
 

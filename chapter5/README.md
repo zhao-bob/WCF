@@ -8,7 +8,7 @@ Of Providence
 
 > God the great Creator of all things does uphold, direct, dispose, and govern all creatures, actions, and things, from the greatest even to the least, by His most wise and holy providence, according to His infallible foreknowledge, and the free and immutable counsel of His own will, to the praise of the glory of His wisdom, power, justice, goodness, and mercy.
 
-上帝，万物的伟大造物主，确实高举[^5-1]、指引、处置并治理所有受造物、行为和事物[^5-2]，从最大的甚至到最小的[^5-3]，由祂至智和至圣的神意[^5-4]，按祂无谬的预知[^5-5]，以及祂自身意志自由而不变的密旨[^5-6]，为赞美祂智慧，大能、公义、善良和宽恕的荣耀[^5-7]。
+上帝，万物的伟大造物主，确实高举[^5-1]、指引、处置并治理所有受造物、行为和事物[^5-2]，从最大的甚至到最小的[^5-3]，由祂至智和至圣的神意[^5-4]，按祂无谬的预知[^5-5]，以及祂自身意志自由而不变的谋略[^5-6]，为赞美祂智慧，大能、公义、善良和宽恕的荣耀[^5-7]。
 
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>1. 上帝的神意与创造都源自祂永恒的预旨，如本章第二节所述，预旨是万物的第一因，而神意则是第二因，因此上帝的神意并非绝对不变，所以自由与不变在这里形成了一种统一。</font>

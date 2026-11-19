@@ -78,7 +78,7 @@ Of Baptism
 
 > The efficacy of Baptism is not tied to that moment of time wherein it is administered; yet, notwithstanding, by the right use of this ordinance, the grace promised is not only offered, but really exhibited, and conferred, by the Holy Ghost, to such (whether of age or infants) as that grace belongs unto, according to the counsel of God's own will, in His appointed time.
 
-洗礼的效力不和它被施行的的时间的那一瞬间联系[^28-16]；但尽管如此，由此教仪的正确使用，应许的恩典不仅按照上帝自身的意志的密旨，在祂指定的时间里，被圣魂供应，而且被真实地展现和颁授，给那恩典属于的这人（无论业已成年还是婴儿）[^28-17]。
+洗礼的效力不和它被施行的的时间的那一瞬间联系[^28-16]；但尽管如此，由此教仪的正确使用，应许的恩典不仅按照上帝自身的意志的谋略，在祂指定的时间里，被圣魂供应，而且被真实地展现和颁授，给那恩典属于的这人（无论业已成年还是婴儿）[^28-17]。
 
 <font color=blue size=2>1. 受洗的效力不发生在受洗的瞬间，而是会按祂预定的时间发生。</font>
 

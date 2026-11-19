@@ -8,7 +8,7 @@ Of God, and of the Holy Trinity
 
 > There is but one only, living, and true God, who is infinite in being and perfection, a most pure spirit, invisible, without body, parts, or passions; immutable, immense, eternal, incomprehensible, almighty, most wise, most holy, most free, most absolute, working all things according to the counsel of His own immutable and most righteous will, for His own glory; most loving, gracious, merciful, long-suffering, abundant in goodness and truth, forgiving iniquity, transgression, and sin; the rewarder of them that diligently seek Him; and withal, most just, and terrible in His judgments, hating all sin, and who will by no means clear the guilty.
 
-有且惟有一位[^2-1]，永活，且永真的上帝[^2-2]，祂在存有和完美上是无限的[^2-3]，一位至纯的灵[^2-4]，不可见的[^2-5]，无身体，器官[^2-6]，或情感[^2-7]；不变的[^2-8]，无垠的[^2-9]，永恒的[^2-10]，无法掌握的[^2-11]，全能的[^2-12]，至智的[^2-13]，至圣的[^2-14]，至自由的[^2-15]，至绝对的[^2-16]，按照祂自身不变且至义的意志的密旨运行万物[^2-17]，为祂自身的荣耀[^2-18]；至爱[^2-19]，仁慈、宽容、坚忍、盛于善良和真理，饶恕罪邪、违犯和罪恶[^2-20]；是那些勤勉寻求祂的人的赏赐者[^2-21]；而且，在祂的审判中至公，而至可惧[^2-22]，憎恨所有罪恶[^2-23]，和那些决不会清洁罪行的人[^2-24]。
+有且惟有一位[^2-1]，永活，且永真的上帝[^2-2]，祂在存有和完美上是无限的[^2-3]，一位至纯的灵[^2-4]，不可见的[^2-5]，无身体，器官[^2-6]，或情感[^2-7]；不变的[^2-8]，无垠的[^2-9]，永恒的[^2-10]，无法掌握的[^2-11]，全能的[^2-12]，至智的[^2-13]，至圣的[^2-14]，至自由的[^2-15]，至绝对的[^2-16]，按照祂自身不变且至义的意志的谋略运行万物[^2-17]，为祂自身的荣耀[^2-18]；至爱[^2-19]，仁慈、宽容、坚忍、盛于善良和真理，饶恕罪邪、违犯和罪恶[^2-20]；是那些勤勉寻求祂的人的赏赐者[^2-21]；而且，在祂的审判中至公，而至可惧[^2-22]，憎恨所有罪恶[^2-23]，和那些决不会清洁罪行的人[^2-24]。
 
 [^2-1]: [申6:4](https://biblehub.com/deuteronomy/6-4.htm) 以色列啊，请聆听：耶和华我们的上帝，耶和华是独一的。 [林前8:4](https://biblehub.com/1_corinthians/8-4.htm) 那么所以，关于吃献祭给偶像的食物：我们知道“偶像在世界上根本是无物”，以及“除独一位外，没有上帝”。 [6](https://biblehub.com/1_corinthians/8-6.htm) 但对我们，有且惟有一位上帝，圣父，万物都从祂而来，而我们为祂而活；并且有且仅有一位主，耶稣基督，万物都藉着祂而来，而我们藉着祂而活。
 
@@ -62,7 +62,7 @@ Of God, and of the Holy Trinity
 
 > God has all life, glory, goodness, blessedness, in and of Himself; and is alone in and unto Himself all-sufficient, not standing in need of any creatures which He has made, nor deriving any glory from them, but only manifesting His own glory in, by, unto, and upon them. He is the alone fountain of all being, of whom, through whom, and to whom are all things; and has most sovereign dominion over them, to do by them, for them, or upon them whatsoever Himself pleases. In His sight all things are open and manifest, His knowledge is infinite, infallible, and independent upon the creature, so as nothing is to Him contingent, or uncertain. He is most holy in all His counsels, in all His works, and in all His commands. To Him is due from angels and men, and every other creature, whatsoever worship, service, or obedience He is pleased to require of them.
 
-上帝有所有生命[^2-25]，荣耀[^2-26]，善良[^2-27]，和祝福[^2-28]，都在祂自己里面并属于祂自己；且惟独在祂自己里面并对祂自己完全充足的，既不需要靠祂已制造的任何受造物站立[^2-29]，也不从它们派生任何荣耀[^2-30]，但惟在它们中、通过它们、向它们并在它们上彰显祂自身的荣耀。祂是万有的惟独泉源，而万物都属于祂，藉着祂并归向祂[^2-31]；并对它们拥有至全权的管辖权，以由它们、为它们或在它们上做无论什么祂自己愿意的[^2-32]。在祂视域中，万物都是敞开并明显的[^2-33]，祂的知识是无限的、无缪的、并独立于受造物的[^2-34]，因此，没有什么对祂是偶然的或不确定的[^2-35]。祂在祂所有密旨、在祂所有杰作并在祂所有命令中是至圣的[^2-36]。归向祂是源自众天使和人，以及每个其他受造物的责任，而无论谁敬拜、服侍或顺服，祂都愿意以此要求他们[^2-37]。
+上帝有所有生命[^2-25]，荣耀[^2-26]，善良[^2-27]，和祝福[^2-28]，都在祂自己里面并属于祂自己；且惟独在祂自己里面并对祂自己完全充足的，既不需要靠祂已制造的任何受造物站立[^2-29]，也不从它们派生任何荣耀[^2-30]，但惟在它们中、通过它们、向它们并在它们上彰显祂自身的荣耀。祂是万有的惟独泉源，而万物都属于祂，藉着祂并归向祂[^2-31]；并对它们拥有至全权的管辖权，以由它们、为它们或在它们上做无论什么祂自己愿意的[^2-32]。在祂视域中，万物都是敞开并明显的[^2-33]，祂的知识是无限的、无缪的、并独立于受造物的[^2-34]，因此，没有什么对祂是偶然的或不确定的[^2-35]。祂在祂所有谋略、在祂所有杰作并在祂所有命令中是至圣的[^2-36]。归向祂是源自众天使和人，以及每个其他受造物的责任，而无论谁敬拜、服侍或顺服，祂都愿意以此要求他们[^2-37]。
 
 [^2-25]: [约5:26](https://biblehub.com/john/5-26.htm) 因为如同圣父在祂自己里面有生命，祂已准予圣子也在祂自己里面有生命。
 

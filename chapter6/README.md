@@ -8,7 +8,7 @@ Of the Fall of Man, of Sin, and the Punishment thereof
 
 > Our first parents, being seduced by the subtilty and temptations of Satan, sinned, in eating the forbidden fruit. This their sin, God was pleased, according to His wise and holy counsel, to permit, having purposed to order it to His own glory.
 
-我们的始祖被撒旦的狡诈和诱惑唆使，在吃禁果时犯了罪[^6-1]。上帝愿意，按照祂智慧和神圣的密旨，来准许他们的这罪恶，已立定向祂自身的荣耀将它排定[^6-2]。
+我们的始祖被撒旦的狡诈和诱惑唆使，在吃禁果时犯了罪[^6-1]。上帝愿意，按照祂智慧和神圣的谋略，来准许他们的这罪恶，已立定向祂自身的荣耀将它排定[^6-2]。
 
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>1. “permit”准许不是同意或赞许，而是祂没有禁止犯罪发生，并赐给罪人机会，因为祂的荣耀永远不变，而罪恶是我们自食其果。祂没有尽灭一切罪恶，出于祂对我们不衰的爱，这与祂的神性是一致的。</font>

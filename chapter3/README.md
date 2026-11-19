@@ -8,10 +8,10 @@ Of God's Eternal Decree
 
 > God from all eternity, did, by the most wise and holy counsel of His own will, freely, and unchangeable ordain whatsoever comes to pass; yet so, as thereby neither is God the author of sin, nor is violence offered to the will of the creatures; nor is the liberty or contingency of second causes taken away, but rather established.
 
-上帝从所有永恒中，确实，由祂自身意志的至智和至圣的密旨，自由地，并不可改变地按立了无论任何来临的[^3-1]；而所以，由此一来上帝既不是罪恶的著者[^3-2]，暴力也没被供应给受造物的意志；第二因的自在性或偶然性也没被夺去，反而被确立[^3-3]。
+上帝从所有永恒中，确实，由祂自身意志的至智和至圣的谋略，自由地，并不可改变地按立了无论任何来临的[^3-1]；而所以，由此一来上帝既不是罪恶的著者[^3-2]，暴力也没被供应给受造物的意志；第二因的自在性或偶然性也没被夺去，反而被确立[^3-3]。
 
 <font color=blue size=2>译者注：</font>
-<font color=blue size=2>1. 由此可见，“密旨”是与永恒预旨密切相关的旨意。</font>
+<font color=blue size=2>1. 由此可见，“谋略”是与永恒预旨密切相关的旨意。</font>
 <font color=blue size=2>2. “第一因”就是上帝的预旨，是至善、至绝对、至自由且不可改变的；而“第二因”是指上帝赐给人和物的“自由意志”。或者说上帝造的万物是活的，它们有有限的生命和有限的自由，但它们不是绝对的，而是偶然的。而正是“第二因”违背于“第一因”导致了罪恶。上帝赐予我们自由，我们却用它来犯罪。</font>
 <font color=blue size=2>3. “violence”本文翻译为“暴力”，其词根是“violare”和“violation”违背、违反相关。译者认为这里是说人犯罪的动机也不是祂提供的，因为在上一章中至善、至爱、不轻易发怒是祂的本性，所以祂不提供“暴力”，或者说情感的狂暴不源自祂。这里不是说祂压制或侵犯人的意志，而且这个意思与第二性不被剥夺是重复的。</font>
 <font color=blue size=2>4. “liberty”本文翻译为自在，以区别于自由“freedom”。</font>
@@ -69,7 +69,7 @@ Of God's Eternal Decree
 
 > Those of mankind that are predestinated unto life, God, before the foundation of the world was laid, according to His eternal and immutable purpose, and the secret counsel and good pleasure of His will, has chosen, in Christ, unto everlasting glory, out of His mere free grace and love, without any foresight of faith, or good works, or perseverance in either of them, or any other thing in the creature, as conditions, or causes moving Him thereunto; and all to the praise of His glorious grace.
 
-那些被预定至生命的人类，上帝，在奠定世界的根基之前，按照祂永恒不变的旨意，以及祂意志的隐秘密旨和美意，在基督里，已拣选他们至永久的荣耀[^3-9]，出自祂纯粹白白的恩典和爱，不以信心，或善功，或在它们两者之一中的持守，或受造物中任何其他事物的任何预见，作为感动祂达此目的的条件或原因[^3-10]；而所有都为祂荣耀恩典的赞美[^3-11]。
+那些被预定至生命的人类，上帝，在奠定世界的根基之前，按照祂永恒不变的旨意，以及祂意志的隐秘谋略和美意，在基督里，已拣选他们至永久的荣耀[^3-9]，出自祂纯粹白白的恩典和爱，不以信心，或善功，或在它们两者之一中的持守，或受造物中任何其他事物的任何预见，作为感动祂达此目的的条件或原因[^3-10]；而所有都为祂荣耀恩典的赞美[^3-11]。
 
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>1. 上帝的拣选是祂在创造天地之初就已预定的，而这自然就得出人的拯救不源自功劳的结论。而信心是这一恩典的必然结果，也是祂源自拣选的恩赐。</font>
@@ -103,7 +103,7 @@ Of God's Eternal Decree
 
 > The rest of mankind God was pleased, according to the unsearchable counsel of His own will, whereby He extends or withholds mercy, as He pleases, for the glory of His sovereign power over His creatures, to pass by; and to ordain them to dishonor and wrath for their sin, to the praise of His glorious justice.
 
-其余的人类，上帝愿意，按照祂自身意志不可测的密旨，以此祂随祂意愿扩展或扣留宽恕，为祂在祂的受造物之上的全权大能的荣耀，将他们略过；并为祂荣耀的公义的赞美，按立他们为他们的罪恶至羞辱和忿怒[^3-17]。
+其余的人类，上帝愿意，按照祂自身意志不可测的谋略，以此祂随祂意愿扩展或扣留宽恕，为祂在祂的受造物之上的全权大能的荣耀，将他们略过；并为祂荣耀的公义的赞美，按立他们为他们的罪恶至羞辱和忿怒[^3-17]。
 
 <font color=blue size=2>译者注：</font>
 <font color=blue size=2>1. “Mercy”在本文中被翻译为“宽恕”，以将其与“compassion”“怜悯”区分，同时更强调这是上帝的无上主权。祂按照祂预定的旨意施宽恕，所以恶人得赏赐，义人受磨难只是表面现象。祂会使一切都运行出它恰当的目的，一切也都只为祂自身的荣耀。</font>
